@@ -1,13 +1,16 @@
+# Alphabetic List of Theories
+
 ## Alphabetic List of Theories
+
 ### Alphabetic List of Theories
+
 #### Alphabetic List of Theories
 
 ---
 
-This is a big, big list of academic theories, hypotheses, or whatever you want to call them, that have some bearing on persuasion. 
+This is a big, big list of academic theories, hypotheses, or whatever you want to call them, that have some bearing on persuasion.
 
 ##### A
-
 
 [Acquiescence Effect](http://changingminds.org/explanations/theories/acquiescence_effect.htm)
 
@@ -51,7 +54,6 @@ Anticipatory Regret see [Regret Theory](http://changingminds.org/explanations/th
 
 ##### B
 
-
 Balance Theory see [Consistency Theory](http://changingminds.org/explanations/theories/consistency_theory.htm)
 
 Barnum Effect see [Personal Validation Fallacy](http://changingminds.org/explanations/theories/person_validation.htm)
@@ -79,7 +81,6 @@ Body language see Non-verbal Behavior
 [Bystander Effect](http://changingminds.org/explanations/theories/bystander_effect.htm)
 
 ##### C
-
 
 [Cannon-Bard Theory of Emotion](http://changingminds.org/explanations/theories/cannon_bard_emotion.htm)
 
@@ -147,7 +148,6 @@ Choice Theory see [Control Theory](http://changingminds.org/explanations/theorie
 
 ##### D
 
-
 [Decisions](http://changingminds.org/explanations/theories/decisions.htm)
 
 [Deindividuation](http://changingminds.org/explanations/theories/deindividuation.htm)
@@ -165,7 +165,6 @@ Dissonance see [Cognitive Dissonance](http://changingminds.org/explanations/theo
 [Durability bias](http://changingminds.org/explanations/theories/durability_bias.htm)
 
 ##### E
-
 
 [Ego Depletion](http://changingminds.org/explanations/theories/ego_depletion.htm)
 
@@ -201,7 +200,6 @@ Ethnocentric Bias see [Group Attribution Error](http://changingminds.org/explana
 
 ##### F
 
-
 [False Consensus Effect](http://changingminds.org/explanations/theories/false_consensus.htm)
 
 [False Memory Syndrome](http://changingminds.org/explanations/theories/false_memory.htm)
@@ -230,7 +228,6 @@ Forer Effect see [Personal Validation Fallacy](http://changingminds.org/explanat
 
 ##### G
 
-
 [Gambler's Fallacy](http://changingminds.org/explanations/theories/gamblers_fallacy.htm)
 
 [Goal-Setting Theory](http://changingminds.org/explanations/theories/goals.htm)
@@ -249,7 +246,6 @@ Group-serving Attributional Bias see [Group Attribution Error](http://changingmi
 
 ##### H
 
-
 [Halo Effect](http://changingminds.org/explanations/theories/halo_effect.htm)
 
 Hedonic Relevance see [Correspondent Inference Theory](http://changingminds.org/explanations/theories/correspondent_inference.htm)
@@ -265,7 +261,6 @@ Hedonic Relevance see [Correspondent Inference Theory](http://changingminds.org/
 [Hyperbolic discounting](http://changingminds.org/explanations/theories/hyperbolic_discounting.htm)
 
 ##### I
-
 
 [Identifiable Victim Effect](http://changingminds.org/explanations/theories/identifiable_victim.htm)
 
@@ -319,7 +314,6 @@ Invisible Correlation see [Illusory Correlation](http://changingminds.org/explan
 
 ##### J
 
-
 [James-Lange Theory of Emotion](http://changingminds.org/explanations/theories/james_lange_emotion.htm)
 
 [Justification of Effort](http://changingminds.org/explanations/theories/justification_of_effort.htm)
@@ -328,11 +322,9 @@ Invisible Correlation see [Illusory Correlation](http://changingminds.org/explan
 
 ##### K
 
-
 Kin Selection see [Prosocial Behavior](http://changingminds.org/explanations/theories/prosocial_behavior.htm)
 
 ##### L
-
 
 [Lake Wobegon effect](http://changingminds.org/explanations/theories/lake_woebegon.htm)
 
@@ -360,7 +352,6 @@ Learned Need Theory see [Acquired Needs Theory](http://changingminds.org/explana
 
 ##### M
 
-
 [Matching Hypothesis](http://changingminds.org/explanations/theories/matching_hypothesis.htm)
 
 Mental Models see [Schema](http://changingminds.org/explanations/theories/schema.htm)
@@ -381,7 +372,6 @@ Mental Models see [Schema](http://changingminds.org/explanations/theories/schema
 
 ##### N
 
-
 Negative Face see [Politeness Theory](http://changingminds.org/explanations/theories/politeness.htm)
 
 [Neglect of probability bias](http://changingminds.org/explanations/theories/neglect_probability.htm)
@@ -393,7 +383,6 @@ Negative Face see [Politeness Theory](http://changingminds.org/explanations/theo
 Norms see Social Norms
 
 ##### O
-
 
 [Objectification](http://changingminds.org/explanations/theories/objectification.htm)
 
@@ -420,7 +409,6 @@ Out-Group Bias see [In-Group Bias](http://changingminds.org/explanations/theorie
 [Overjustification Effect](http://changingminds.org/explanations/theories/overjustification.htm)
 
 ##### P
-
 
 Perceived Behavioral Control see [Planned Behavior Theory](http://changingminds.org/explanations/theories/planned_behavior.htm)
 
@@ -490,9 +478,7 @@ Pygmalion Effect see [Self-Fulfilling Prophecy](http://changingminds.org/explana
 
 ##### Q
 
-
 ##### R
-
 
 [Rationalization Trap](http://changingminds.org/explanations/theories/rationalization_trap.htm)
 
@@ -527,7 +513,6 @@ Relationship Dissolution, see [Terminating Relationships](http://changingminds.o
 Roles
 
 ##### S
-
 
 [Sapir-Whorf Hypothesis](http://changingminds.org/explanations/theories/sapir-whorf_hypothesis.htm)
 
@@ -639,7 +624,6 @@ Subjective Norms see [Planned Behavior Theory](http://changingminds.org/explanat
 
 ##### T
 
-
 [Terminating relationships](http://changingminds.org/explanations/theories/terminating_relationships.htm)
 
 [Theory of Mind](http://changingminds.org/explanations/theories/theory_of_mind.htm)
@@ -651,7 +635,6 @@ Three-factor Theory see [Acquired Needs Theory](http://changingminds.org/explana
 [Two-Factor Theory of Emotion](http://changingminds.org/explanations/theories/two-factor_emotion.htm)
 
 ##### U
-
 
 [Ultimate Attribution Error](http://changingminds.org/explanations/theories/ultimate_attribution_error.htm)
 
@@ -665,13 +648,11 @@ Three-factor Theory see [Acquired Needs Theory](http://changingminds.org/explana
 
 ##### V
 
-
 [Valence Effect](http://changingminds.org/explanations/theories/valence_effect.htm)
 
 VIE Theory see [Expectancy Theory](http://changingminds.org/explanations/theories/expectancy.htm)
 
 ##### W
-
 
 [Weak Ties Theory](http://changingminds.org/explanations/theories/weak_ties.htm)
 
@@ -681,9 +662,7 @@ Worse-Than-Average Effect see [Below-Average Effect](http://changingminds.org/ex
 
 ##### X
 
-
 ##### Y
-
 
 [Yale Attitude Change Approach](http://changingminds.org/explanations/theories/yale_attitude_change.htm)
 

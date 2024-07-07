@@ -1,4 +1,7 @@
+# Activation Theory
+
 ## Activation Theory
+
 ### Activation Theory
 
 [Explanations](../explanations.htm) > [Theories](theories.htm) > Activation Theory
@@ -14,9 +17,9 @@ The [Yerkes-Dodson Law](../motivation/yerkes-dodson.htm) points out how people n
 
 People will seek activation through different types of stimulation, including novelty, complexity, variation and uncertainty. At a low level of activation, performance is decreased due to three factors:
 
-*   A lack of alertness
-*   Dulling of the senses
-*   Limited muscular coordination
+* A lack of alertness
+* Dulling of the senses
+* Limited muscular coordination
 
 These in turn can lead to increased error or accident, and slower completion of tasks. Underactivation also leads to boredom and seeking of alternative stimulation (including by sabotage), unless the person has a low activation preference, where they are happy to daydream or otherwise be lazy.
 

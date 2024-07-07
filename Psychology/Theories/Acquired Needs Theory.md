@@ -1,4 +1,7 @@
+# Acquired Needs Theory
+
 ## Acquired Needs Theory
+
 ### Acquired Needs Theory
 
 [Explanations](../explanations.htm) > [Theories](theories.htm) > Acquired Needs Theory
@@ -10,19 +13,19 @@ Description
 
 Need are shaped over time by our experiences over time. Most of these fall into three general categories of needs:
 
-*   Achievement (nAch)
-*   Affiliation (nAff)
-*   Power (nPow)
+* Achievement (nAch)
+* Affiliation (nAff)
+* Power (nPow)
 
-Acquired Needs Theory is also known as the _Three-Need Theory_ or _Learned Need Theory_.
+Acquired Needs Theory is also known as the *Three-Need Theory* or *Learned Need Theory*.
 
 #### We Have Different Preferences
 
 We will tend have one of these needs that affects us more powerfully than others and thus affects our behaviors:
 
-*   _Achievers_ seek to excel and appreciate frequent recognition of how well they are doing. They will avoid low risk activities that have no chance of gain. They also will avoid high risks where there is a significant chance of failure.
-*   _Affiliation seekers_ look for harmonious relationships with other people. They will thus tend to conform and shy away from standing out. The seek approval rather than recognition.
-*   _Power seekers_ want power either to control other people (for their own goals) or to achieve higher goals (for the greater good). They seek neither recognition nor approval from others -- only agreement and compliance.
+* *Achievers* seek to excel and appreciate frequent recognition of how well they are doing. They will avoid low risk activities that have no chance of gain. They also will avoid high risks where there is a significant chance of failure.
+* *Affiliation seekers* look for harmonious relationships with other people. They will thus tend to conform and shy away from standing out. The seek approval rather than recognition.
+* *Power seekers* want power either to control other people (for their own goals) or to achieve higher goals (for the greater good). They seek neither recognition nor approval from others -- only agreement and compliance.
 
 #### Identifying Preferences
 

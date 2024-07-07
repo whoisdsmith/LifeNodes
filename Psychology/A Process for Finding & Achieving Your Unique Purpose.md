@@ -1,4 +1,4 @@
-# "Robert Greene: A Process for Finding & Achieving Your Unique Purpose" 
+# "Robert Greene: A Process for Finding & Achieving Your Unique Purpose"
 
 ## Chapter 1
 
@@ -6,10 +6,9 @@ Welcome to the Huberman Lab Podcast, where we discuss science and science based 
 
 I first learned about Robert's work from reading The Book Mastery, which to my mind is a brilliant exploration and a practical tool for how to think about and pursue one's purpose. Whenever I'm asked for book suggestions, I always include Mastery in my top three recommendations. During today's discussion, we cover a wide range of topics, including how to find and pursue and achieve one's purpose. We talk about the selection of a life partner as well as romantic and other types of relationships. We also discussed the topics of motivation and urgency, and this concept of Death Ground, which arose during our discussion of Robert's recent stroke. Robert's Stroke rendered him certain limitations, but also has allowed him to explore how to write, how to exercise Indeed, how to interface with life in general in new ways that allow him to continue to expand his sense of purpose.
 
-I'm certain that by the end of today's episode, you will have gleaned tremendous amounts of new knowledge that will allow you to navigate forward along the path to your purpose, perhaps find your purpose if you feel you haven't done that yet, as well as to greatly enhance your relationship with yourself, with others, and Indeed to the world around you. 
+I'm certain that by the end of today's episode, you will have gleaned tremendous amounts of new knowledge that will allow you to navigate forward along the path to your purpose, perhaps find your purpose if you feel you haven't done that yet, as well as to greatly enhance your relationship with yourself, with others, and Indeed to the world around you.
 
 ## Chapter 2
-
 
 And now for my discussion with Robert Greene, Robert, I'm so happy you're here.
 
