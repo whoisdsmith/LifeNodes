@@ -56,7 +56,7 @@ Breaking from the introspective nature of psychoanalysis, behaviorism asserts th
 
 In fact, behaviorists argue that, in order for psychology to be considered a true science, unconscious and unobservable mental states should be rejected as unexaminable. (Behaviorists went as far as labelling psychoanalysis to be [mere pseudoscience](https://helpfulprofessor.com/pseudoscience-examples/)).
 
-Behaviorism surfaced around the early 20th century with John B. Watson and Ivan Pavlov as leading figures. B.F. Skinner later further developed the theory, emphasizing operant learning, the idea that a behavior's consequence affects its likelihood of reoccurrence.
+Behaviorism surfaced around the early 20th century with John B. Watson and Ivan Pavlov as leading figures. B.F. Skinner later further developed the theory, emphasizing operant learning, the idea that a behavior's consequence affects its likelihood of recurrence.
 
 **Major Behavioral Psychology Theories**
 
@@ -165,7 +165,7 @@ Regardless of their different views, all personality theories contribute to unde
 **Major Personality Theories in Psychology**
 
 1. **[Trait Theory of Personality](https://helpfulprofessor.com/trait-theory-of-personality/):** This theory posits that personalities are composed of a set of stable characteristics or traits that influence an individual's behavior across various situations.
-2. **Five Factor Model of Personality:** This model identifies five core personality traits: openness, [conscientiousness](https://helpfulprofessor.com/conscientiousness-examples/), extraversion, agreeableness, and neuroticism, which are believed to describe the broad dimensions of human personality.
+2. **Five Factor Model of Personality:** This model identifies five core personality traits: openness, [conscientiousness](https://helpfulprofessor.com/conscientiousness-examples/), extroversion, agreeableness, and neuroticism, which are believed to describe the broad dimensions of human personality.
 3. **[Freud’s Personality Theory](https://helpfulprofessor.com/freuds-theory-of-personality/):** Freud proposed that personality is shaped by the dynamic interactions among the id (primitive desires), ego (reality-oriented mediator), and superego (moral conscience).
 4. **Adler's Individual Psychology:** Adler believed that individuals are driven by a sense of inferiority to strive for superiority or success, and that social connections and community play a crucial role in shaping personality.
 5. **[Humanist Theory of Personality](https://helpfulprofessor.com/humanistic-theory-of-personality/):** Rooted in the works of figures like Maslow and Rogers, this theory emphasizes individual potential, self-actualization, and the intrinsic nature of humans to grow towards their personal ideals in a supportive environment.

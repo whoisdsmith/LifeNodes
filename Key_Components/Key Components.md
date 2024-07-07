@@ -9,4 +9,4 @@
 - [[Values and Beliefs]]
 - [[Experiences and Memories]]
 - [[Goals and Aspirations]]
-- [[Life Nodes/Key_Components/Health and Wellness]]
+- [[Health and Wellness]]

@@ -9,6 +9,5 @@
 - [[Personal Characteristics]]
 - [[Cultural and Societal Factors]]
 - [[Psychological Development]]
-- [[Life Nodes/Definement/Health and Wellness]]
 - [[Values and Beliefs]]
 - [[Career and Professional Development]]

@@ -9,7 +9,7 @@
 	- [[Employment and Career]]
 	- [[Online Presence]]
 	- [[Contact Information]]
-	- [[Life Nodes/Life_Nodes/Health and Wellness]]
+	- [[Health and Wellbeing]]
 	- [[Hobbies and Interests]]
 	- [[Financial Information]]
 	- [[Legal Information]]
@@ -26,7 +26,7 @@
 	- [[Values and Beliefs]]
 	- [[Experiences and Memories]]
 	- [[Goals and Aspirations]]
-	- [[Life Nodes/Key_Components/Health and Wellness]]
+	- [[Health and Wellness]]
 
 - [[Definement]]
 	- [[Family and Home Environment]]
@@ -36,10 +36,5 @@
 	- [[Personal Characteristics]]
 	- [[Cultural and Societal Factors]]
 	- [[Psychological Development]]
-	- [[Life Nodes/Definement/Health and Wellness]]
 	- [[Values and Beliefs]]
 	- [[Career and Professional Development]]
-
-
-
-

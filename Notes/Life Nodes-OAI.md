@@ -205,7 +205,7 @@
    - **Milestones and Achievements**: Graduations, Awards, Personal Triumphs
 
 5. **Personal Characteristics**
-   - **Innate Personality Traits**: Temperament, Introversion/Extraversion, Resilience
+   - **Innate Personality Traits**: Temperament, Introversion/Extroversion, Resilience
    - **Interests and Talents**: Hobbies, Skills, Passions
    - **Health and Well-being**: Physical Health, Mental Health, Nutrition, Exercise
 

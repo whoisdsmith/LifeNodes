@@ -8,7 +8,7 @@
 - [[Employment and Career]]
 - [[Online Presence]]
 - [[Contact Information]]
-- [[Life Nodes/Life_Nodes/Health and Wellness]]
+- [[Health and Wellbeing]]
 - [[Hobbies and Interests]]
 - [[Financial Information]]
 - [[Legal Information]]

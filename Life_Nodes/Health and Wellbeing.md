@@ -1,4 +1,4 @@
-# Health and Wellness
+# Health and Wellbeing
 
 - Medical Conditions
 - Medical History
