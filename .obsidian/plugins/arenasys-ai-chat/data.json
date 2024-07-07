@@ -1,0 +1,21 @@
+{
+  "current": 0,
+  "names": [
+    "Default"
+  ],
+  "settings": [
+    {
+      "apiProvider": "togetherai",
+      "apiModel": "custom",
+      "apiModelCustom": "Meta Llama 3 70b Instruct",
+      "apiKey": "327772561035207ce0093925ce90f242232665260c702b425713cafc57b0d522",
+      "apiEndpoint": "",
+      "systemPrompt": "You are an assistant in Obsidian, a note-taking program. Shared notes/documents are provided. Dont show the document formatting (BEGIN DOCUMENT etc).",
+      "maxTokens": null,
+      "temperature": null,
+      "topK": null,
+      "topP": null,
+      "frequencyPenalty": null
+    }
+  ]
+}

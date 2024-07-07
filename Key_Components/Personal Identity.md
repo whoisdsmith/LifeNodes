@@ -7,4 +7,4 @@
 - **Sexual Orientation**: LGBTQ+ Identity, Relationship Preferences
 - **Self-Perception**: Self-Esteem, Confidence, Body Image
 
-[[Key Components of What Makes You, You]]
+[[Key Components]]

@@ -7,4 +7,4 @@
 - **Financial Habits**: Spending, Saving, Investing, Financial Security
 - **Home and Living**: Housing, Interior Design Preferences, Home Life
 
-[[Key Components of What Makes You, You]]
+[[Key Components]]

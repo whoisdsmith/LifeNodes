@@ -6,4 +6,4 @@
 - **Relationship Goals**: Marriage, Family Planning, Friendship Development
 - **Legacy and Impact**: Desire to Leave a Mark, Philanthropy, Influence on Others
 
-[[Key Components of What Makes You, You]]
+[[Key Components]]

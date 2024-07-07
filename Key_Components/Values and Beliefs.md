@@ -6,4 +6,4 @@
 - **Political Beliefs**: Political Affiliation, Civic Engagement, Voting Behavior
 - **Environmental Values**: Sustainability Practices, Environmental Consciousness
 
-[[Key Components of What Makes You, You]]
+[[Key Components]]

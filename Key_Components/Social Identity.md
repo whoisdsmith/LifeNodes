@@ -7,4 +7,4 @@
 - **Social Media Presence**: Online Identity, Influences, Digital Footprint
 - **Volunteerism and Activism**: Community Service, Advocacy, Political Involvement
 
-[[Key Components of What Makes You, You]]
+[[Key Components]]

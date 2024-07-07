@@ -1,4 +1,4 @@
-# Key Components of What Makes You, You
+# Key Components
 
 ## Table of Contents
 

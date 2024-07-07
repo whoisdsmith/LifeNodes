@@ -1,0 +1,199 @@
+{
+  "main": {
+    "id": "03f2f0119568d832",
+    "type": "split",
+    "children": [
+      {
+        "id": "82c1b3d1386999a4",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "45881f83f889d036",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Gemini Template.md",
+                "mode": "preview",
+                "source": true
+              }
+            }
+          },
+          {
+            "id": "e5150f1e55bbc39a",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "LLM Farm.md",
+                "mode": "source",
+                "source": true
+              }
+            }
+          },
+          {
+            "id": "c318aa472c148b3e",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Work/Work.md",
+                "mode": "preview",
+                "source": true
+              }
+            }
+          },
+          {
+            "id": "e727b5e8da8768e6",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "LLM Farm.md",
+                "mode": "preview",
+                "source": true
+              }
+            }
+          }
+        ],
+        "currentTab": 3
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "95cd1df7fb93c562",
+    "type": "mobile-drawer",
+    "children": [
+      {
+        "id": "8cfa5640af7bf822",
+        "type": "leaf",
+        "state": {
+          "type": "file-explorer",
+          "state": {
+            "sortOrder": "alphabetical"
+          }
+        }
+      },
+      {
+        "id": "e73eddb152506ab3",
+        "type": "leaf",
+        "state": {
+          "type": "search",
+          "state": {
+            "query": "",
+            "matchingCase": false,
+            "explainSearch": false,
+            "collapseAll": false,
+            "extraContext": false,
+            "sortOrder": "alphabetical"
+          }
+        }
+      }
+    ],
+    "currentTab": 0
+  },
+  "right": {
+    "id": "aa234126b21e16f1",
+    "type": "mobile-drawer",
+    "children": [
+      {
+        "id": "c459bdf3d3d76b37",
+        "type": "leaf",
+        "state": {
+          "type": "backlink",
+          "state": {
+            "file": "LLM Farm.md",
+            "collapseAll": false,
+            "extraContext": false,
+            "sortOrder": "alphabetical",
+            "showSearch": false,
+            "searchQuery": "",
+            "backlinkCollapsed": false,
+            "unlinkedCollapsed": false
+          }
+        }
+      },
+      {
+        "id": "4909e9f8e3fb7221",
+        "type": "leaf",
+        "state": {
+          "type": "outgoing-link",
+          "state": {
+            "file": "LLM Farm.md",
+            "linksCollapsed": false,
+            "unlinkedCollapsed": false
+          }
+        }
+      },
+      {
+        "id": "819b1caf100d1888",
+        "type": "leaf",
+        "state": {
+          "type": "outline",
+          "state": {
+            "file": "LLM Farm.md"
+          }
+        }
+      }
+    ],
+    "currentTab": 2
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "switcher:Open quick switcher": false,
+      "templates:Insert template": false,
+      "command-palette:Open command palette": false,
+      "obsidian-importer:Open Importer": false,
+      "markdown-importer:Open format converter": false
+    }
+  },
+  "active": "e727b5e8da8768e6",
+  "lastOpenFiles": [
+    "Gemini Template.md",
+    "Work/Paycheck Estimate.md",
+    "Mars Explo CIA.md",
+    "Work/Work.md",
+    "Work",
+    "Paycheck Estimation for Michigan.md",
+    "ChatGPT Paycheck Estimator.md",
+    "md.md",
+    "ChatGPT Estimator.md",
+    "Untitled.md",
+    "-Inbox",
+    "LLM Farm.md",
+    "Personal/Writing/Lyrics/Into The Unknown of The Cosmos.md",
+    "Personal/Writing/Gravedigger Analysis.md",
+    "Personal/Writing/All Lyrics.md",
+    "Personal/Writing/Lyrics/Endings.md",
+    "Personal/Writing/The Casket Diaries.md",
+    "Personal/Writing/Lyrics/The Casket Diaries.md",
+    "Personal/Writing/Lyrics/Gravedigger.md",
+    "Personal/Writing/Lyrics/Epilogue.md",
+    "Personal/Writing/Lyrics/I Am The Reaper.md",
+    "Personal/Writing/Lyrics/Hit The Reset.md",
+    "Personal/Writing/Lyrics/Be The Light.md",
+    "Personal/Writing/Lyrics/Lyrics.md",
+    "Timeline/Family Info.md",
+    "Personal/Writing/Lyrics.md",
+    "Personal/Writing/Lyrics",
+    "Blogs/Refactoring, Rewiring.md",
+    "Timeline/Summarizers",
+    "thecasketdiaries/Lyrics/Hit The Reset Lyrics",
+    "thecasketdiaries/Lyrics/I Am The Reaper Lyrics",
+    "thecasketdiaries/Lyrics/Be The Light Lyrics",
+    "thecasketdiaries/Images/epilogue.jpg",
+    "thecasketdiaries/Images/tcdidea3.jpg",
+    "thecasketdiaries/Images/tcdidea2.jpg",
+    "thecasketdiaries/Images/Ituotccover.jpg",
+    "thecasketdiaries/Images/casketdiarieswhiteandblack.jpeg",
+    "thecasketdiaries/Images/lay.jpg",
+    "thecasketdiaries/Images/release.jpg",
+    "thecasketdiaries/Images/The Casket Diaries-60.jpg",
+    "thecasketdiaries/Images/twliabcover.jpg",
+    "thecasketdiaries/Images/grim.jpg",
+    "thecasketdiaries/Epilogue",
+    "thecasketdiaries/Lyrics",
+    "thecasketdiaries/Images"
+  ]
+}

@@ -6,4 +6,4 @@
 - **Creative Expressions**: Artistic Pursuits, Writing, Music, Crafting
 - **Emotional Milestones**: Love, Loss, Triumphs, Failures
 
-[[Key Components of What Makes You, You]]
+[[Key Components]]
