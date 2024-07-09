@@ -19876,7 +19876,11 @@ function modifyDest(doc) {
   });
   return data;
 }
+function convertMapKeysToLowercase(map) {
+  return new Map(Array.from(map).map(([key, value]) => [key == null ? void 0 : key.toLowerCase(), value]));
+}
 function fixAnchors(doc, dest, basename) {
+  const lowerDest = convertMapKeysToLowercase(dest);
   doc.querySelectorAll("a.internal-link").forEach((el, i) => {
     var _a, _b;
     const [title, anchor] = (_b = (_a = el.dataset.href) == null ? void 0 : _a.split("#")) != null ? _b : [];
@@ -19884,7 +19888,7 @@ function fixAnchors(doc, dest, basename) {
       if ((title == null ? void 0 : title.length) > 0 && title != basename) {
         return;
       }
-      const flag3 = dest.get(anchor);
+      const flag3 = dest.get(anchor) || lowerDest.get(anchor == null ? void 0 : anchor.toLowerCase());
       if (flag3 && !anchor.startsWith("^")) {
         el.href = `an://${flag3}`;
       }

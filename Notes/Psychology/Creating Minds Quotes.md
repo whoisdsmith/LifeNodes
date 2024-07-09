@@ -1,7 +1,5 @@
 # Creating Minds Quotes
 
-## Creating Minds Quotes
-
 ### CreatingMinds - Quotes
 
 ---

@@ -13,21 +13,14 @@
 
 ### Genetics
 
-1. Do you have any specific gene variations (e.g., COMT gene affecting cognitive function)?
-2. Have you experienced any epigenetic modifications due to environmental factors?
-3. What hereditary traits do you have (e.g., physical features, predispositions to certain abilities)?
 
 ### Neurological Development
 
-1. How have synaptic pruning and myelination processes affected you?
-2. How has the development of specific brain regions (e.g., prefrontal cortex maturation in adolescence) impacted you?
-3. Describe your experiences with neuroplasticity throughout your lifespan.
+
 
 ### Physical Health
 
-1. How did prenatal and early childhood nutrition impact your development?
-2. What are the effects of your sleep patterns on cognitive function and emotional regulation?
-3. How does physical activity influence your brain health and mood?
+
 
 ## 3. Family and Relationships
 
@@ -41,7 +34,6 @@
 8. How would you describe your family dynamics?
 9. What attachment styles did you develop in early childhood?
 10. What was the impact of divorce or family restructuring on you?
-11. How has intergenerational trauma affected you?
 
 ## 4. Education
 
@@ -142,7 +134,6 @@
 ## 15. Miscellaneous
 
 1. Do you have any pets?
-2. What languages do you speak?
 3. What is your travel history?
 4. What personal projects are you working on?
 

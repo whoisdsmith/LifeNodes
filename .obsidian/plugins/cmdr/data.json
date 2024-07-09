@@ -63,6 +63,12 @@
       "icon": "headingShifter_increaseIcon",
       "name": "Heading Shifter: Increase Headings",
       "mode": "any"
+    },
+    {
+      "id": "obsidian-heading-shifter:decrease-heading",
+      "icon": "headingShifter_decreaseIcon",
+      "name": "Heading Shifter: Decrease Headings",
+      "mode": "any"
     }
   ],
   "macros": [],

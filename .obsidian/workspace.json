@@ -4,22 +4,35 @@
     "type": "split",
     "children": [
       {
-        "id": "32c1c6100d6da404",
+        "id": "f462a343daa81d4e",
         "type": "tabs",
         "children": [
           {
-            "id": "df8d88d66e87d68e",
+            "id": "c2f9914880f42c5c",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "LifeNodes.md",
+                "file": "Cause and Effect/Relationship Trauma.md",
                 "mode": "source",
-                "source": true
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "39b46679e8938099",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Blog/Blogs.md",
+                "mode": "preview",
+                "source": false
               }
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -69,7 +82,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 457.5
+    "width": 302.5
   },
   "right": {
     "id": "0357a26238033be5",
@@ -85,7 +98,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "LifeNodes.md",
+                "file": "Blog/Blogs.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -102,7 +115,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "LifeNodes.md",
+                "file": "Blog/Blogs.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -114,7 +127,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "LifeNodes.md"
+                "file": "Blog/Blogs.md"
               }
             }
           },
@@ -158,7 +171,7 @@
             }
           }
         ],
-        "currentTab": 3
+        "currentTab": 2
       }
     ],
     "direction": "horizontal",
@@ -178,48 +191,53 @@
       "bulk-exporter:Bulk Exporter Preview": false
     }
   },
-  "active": "7e202dd12cfbc8f0",
+  "active": "39b46679e8938099",
   "lastOpenFiles": [
-    "Life_Nodes/Life Nodes.md",
-    "daring.htm.md",
-    "LifeNodes.md",
-    "Key_Components/Lifestyle.md",
-    "Key_Components/Key Components.md",
-    "Definement/Definement.md",
-    "Life_Nodes/Health and Wellbeing.md",
-    "Key_Components/Health and Wellness.md",
-    "Definement/Health and Wellness.md",
-    "Notes/Life Nodes-OAI.md",
-    "README.md",
-    "Notes",
-    "Notes/Life Nodes Questionnaire.md",
-    "outline.md",
-    "Notes/Comprehensive Life Nodes.md",
-    "Personal/Feeds/FB Posts/2008-2023-Facebook Posts.md",
-    "Tawnie.md",
-    "Life Nodes/Life Nodes-OAI.md",
-    "Life Nodes/Dustin Michael Smith Nodes.md",
-    "Life Nodes/Attachments",
-    "Outline.md",
-    "Summaries/Message Summaries/Stevie Linnabary and Dustin Messages-2021 Summary.md",
-    "Summaries/Message Summaries/Stevie Linnabary and Dustin Messages-2020 Summary.md",
-    "Summaries/Message Summaries/Stevie Linnabary and Dustin Messages-2019 Summary.md",
-    "Summaries/Message Summaries/Stevie Linnabary and Dustin Messages-2017 Summary.md",
-    "Summaries/Message Summaries/Stevie Linnabary and Dustin Messages 2016 Summary.md",
-    "Summaries/Message Summaries/Stevie Linnabary and Dustin Messages 2015 Summary.md",
-    "Summaries/Message Summaries/Stevie Linnabary and Dustin Messages 2009-2011 Summary.md",
-    "Summaries/Message Summaries",
-    "About/Memoir-Bio/Years",
-    "About/Memoir-Bio",
-    "Life Nodes/Psychology/Theories",
-    "Life Nodes/Psychology",
-    "Templates",
-    "Summaries/FB Posts Summarized/FB Posts 2019-2024",
-    "Summaries/Feeds",
-    "Info/dsmithpropic.png",
-    "Life Nodes/Attachments/Nodes/20240706_061023131_iOS.png",
-    "Life Nodes/Attachments/Nodes/20240706_061010715_iOS.png",
-    "Life Nodes/Attachments/Nodes/20240706_001530212_iOS.png",
-    "Life Nodes/Attachments/Promethease Node Graph.png"
+    "Cores/Building A Solid Foundation.md",
+    "Blueprints/Blueprints For A Better Future.md",
+    "Blueprints/The Truth Is.md",
+    "Blueprints/Punches.md",
+    "Blueprints/Passenger.md",
+    "Blueprints/Light Absorption.md",
+    "Blueprints/Happy.md",
+    "Blueprints/Happiness In DNA.md",
+    "Blueprints/Grow Through Your Changes.md",
+    "Blueprints/Glad To Exist.md",
+    "Blueprints/Endings.md",
+    "Blueprints/Daily Wisdom With Everett.md",
+    "Blueprints/Time.md",
+    "Blueprints/What Is Love.md",
+    "Blueprints/Write to Inspire.md",
+    "Blog/Blogs.md",
+    "Blog/2024-01-15-Villain Perspectives.md",
+    "Blog/2022-09-14-I Am Exactly Who I Have Been Trying To Avoid.md",
+    "Blog/2024-04-15-Refactoring Rewiring.md",
+    "Blog/2022-09-02-My Internal Code Is Corrupted.md",
+    "Blog/2022-08-20-Internal Error.md",
+    "Blog/2022-09-02-Depress-Shun.md",
+    "Blog/2023-10-18-An Internal Error in the Reflection2023-10-18.md",
+    "Blog/A Revision To Dr. Jekyll’s Hangover.md",
+    "Cores/Heart of Gold.md",
+    "Cores/Navigating Light and Darkness.md",
+    "trauma-healing-website.html",
+    "trauma-healing-website.html.crdownload",
+    "Cause and Effect",
+    "Blog/State of Address.md.crdownload",
+    "Cores",
+    "Blueprints",
+    "Attachments/wisdombanner.jpg",
+    "Attachments/URWhatUThinkAbout.jpg",
+    "Attachments/themirrorprinciplecontd.jpg",
+    "Attachments/themirrorprinciple.jpg",
+    "Attachments/TheMagiciansWay.jpg",
+    "Attachments/ShiftYourIdentity.jpg",
+    "Attachments/PowerofPositiveThinkingQuotes.jpg",
+    "Attachments/NewtonsLawForRealityCreation.jpg",
+    "Attachments/EliminateProcrastination.jpg",
+    "Attachments/BPBanner.PNG",
+    "themirrorprinciplecontd.jpg.crdownload",
+    "wisdombanner.jpg.crdownload",
+    "themirrorprinciple.jpg.crdownload",
+    "URWhatUThinkAbout.jpg.crdownload"
   ]
 }

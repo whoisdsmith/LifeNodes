@@ -3,7 +3,7 @@
   "newFileLocation": "current",
   "useMarkdownLinks": false,
   "showUnsupportedFiles": true,
-  "livePreview": false,
+  "livePreview": true,
   "propertiesInDocument": "source",
   "promptDelete": false,
   "mobileToolbarCommands": [

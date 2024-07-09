@@ -1,8 +1,6 @@
 # The Laws of Human Nature
 
-## The Laws of Human Nature
-
-### The 18 Laws of Human Nature
+## The 18 Laws of Human Nature
 
 ---
 

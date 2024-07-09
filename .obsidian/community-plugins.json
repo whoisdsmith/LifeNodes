@@ -20,6 +20,6 @@
   "obsidian-pandoc",
   "swiss-army-knife",
   "links",
-  "obsidian-link-converter",
-  "editing-toolbar"
+  "editing-toolbar",
+  "text-conversions"
 ]
