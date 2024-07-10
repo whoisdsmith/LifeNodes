@@ -4,17 +4,17 @@
 
 ## In Life
 
-- **Always Be Kind**.
-- **Don't Judge** **People**. **Period**.
-- **Listen** With The Intent To **Understand** Not Just To **Respond**.
-- **Give** **More** Than You **Take**.
-- **Don't Be Afraid** To **Ask For Help**.
-- **Think** Before You **Speak**.
-- If Something Is **Important** To **You**, Let It Be Known With **Passion**.
-- Learn How To **Control Your Emotions Without Becoming Emotionless**.
-- Figure Out What You Are **Passionate** About And **Pursue It Endlessly**.
-- **Be Forgiving**.
-- Learn To **Let Shit Go**.
+- Always Be Kind.
+- Don't Judge People. Period.
+- Listen With The Intent To Understand Not Just To Respond.
+- Give More Than You Take.
+- Don't Be Afraid To Ask For Help.
+- Think Before You Speak.
+- If Something Is Important To You, Let It Be Known With Passion.
+- Learn How To Control Your Emotions Without Becoming Emotionless.
+- Figure Out What You Are Passionate About And Pursue It Endlessly.
+- Be Forgiving.
+- Learn To Let Shit Go.
 - Be the best friend you can be to those who care about you.
 - Always continue to better yourself.
 - Accept who you are and do the best you can to love and take care of yourself.
@@ -25,10 +25,26 @@
 
 ## In Love
 
-- **Communication** Is The Number One Key To A Successful Relationship.
-- **Always** Be **Honest**, No Matter What's At Stake.
-- **Be Present**, Both **Mentally** And **Physically**.
-- **Love** And **Lust** Are Two Completely Different Feelings. **Understand Them Both**.
+- Communication Is The Number One Key To A Successful Relationship.
+- Always Be Honest, No Matter What's At Stake.
+- Be Present, Both Mentally And Physically.
+- Understand yourself and learn to understand how your significant other Communicates.
+- Without Communication there is no Relationship. Period.
+- Always Be Honest.
+- If you do or say something bad, own that shit and apologize.
+- When you lie, your relationship will bleed and so will the person you lied to.
+- Understand YOUR Needs and the things YOU value.
+- It’s just important to understand THEIR needs and what they value as well.
+- Every Relationship is different because every single person is different.
+- What happened in your previous relationships have no place in your current one.
+- Just because you were lied to, cheated on or neglected before doesn’t mean the same thing will happen with this new person. If you go into a new relationship with that mindset, you are metaphorically holding a gun to the head of this new person and have condemned the relationship to fail right from the beginning.
+- Every person has baggage and wounds from someone else, it is your responsibility to be open and understanding to why people feel the way they feel and to talk about it in ways that helps your relationship.
+- When people have been hurt, they don’t always like to talk about it. Opening up is hard and even harder when it’s to someone new and someone you have feelings for. This might be because they don’t want to feel embarrassed or stupid or judged or vulnerable.
+- Be patient and be understanding.
+- Take the time to heal from your heartbreaks
+- This really should be #1 on this subject because people don’t understand that you can’t just jump into a new relationship right after your previous one fails.
+- You have to heal your wounds. You have to understand why the relationship ended. You have to feel that pain and those aches in your stomach to the full extent.
+- DO NOT run from that pain. Face it and find acceptance and closure before moving on.
 
 ---
 
@@ -63,12 +79,11 @@ In life we make mistakes, we fuck up and than we fuck up some more. What’s imp
 
 You’re going to have good days and you’re going to have bad days, really bad days and “it’s the end of the world” bad days. The good news is, those days don’t last long and they don’t come around often or at least they shouldn’t.
 
-Life is about living and dreaming and finding out who you are. Do your best to be open minded and kind and caring. Things are going to happen to you that will not be your fault, things that will be out of your control and things that will make you feel shit you never knew existed. Don’t let those things or those people turn your hearts of **gold** into stone. Don’t become the things that hurt you.
+Life is about living and dreaming and finding out who you are. Do your best to be open minded and kind and caring. Things are going to happen to you that will not be your fault, things that will be out of your control and things that will make you feel shit you never knew existed. Don’t let those things or those people turn your hearts of gold into stone. Don’t become the things that hurt you.
 
 ---
 
 ## Navigating Light and Darkness: Principles of Forgiveness and the Unforgivable
-
 
 These are the principles for which I built my entire life upon.
 
@@ -86,7 +101,7 @@ I still believe in doing the right thing but now realize that there are rare exc
 
 Some things are not ok and I see now that some people think they can do and take what they want without any consequence or remorse.
 
-Sometimes people cut you so deep that you never stop **bleeding**
+Sometimes people cut you so deep that you never stop bleeding
 
 Some people feed off the joy of hurting people
 
@@ -96,8 +111,7 @@ I have this inner light that can illuminate the the world around me, and around 
 
 ---
 
-## **The Truth Is**
-
+## The Truth Is
 
 - You never really heal from certain traumas.
 	- They become a part of you forever.

@@ -275,9 +275,9 @@
 
 ## Definitions 3
 
-### **Past Trauma from Relationships**
+# **Past Trauma from Relationships**
 
-#### **Experiences**
+## **Experiences**
 
 - **Abuse**
   - **Physical Abuse**
@@ -314,7 +314,7 @@
     - **Emotional Turmoil**: Intense emotional distress from the end of a relationship.
     - **Fear of Abandonment**: Anxiety about being left alone or unloved.
 
-#### **Emotions**
+## **Emotions**
 
 - **Fear**
   - **Fear of Rejection**
@@ -348,7 +348,7 @@
     - **Detachment**: Feeling disconnected from emotions and experiences.
     - **Suppression**: Avoiding or repressing feelings to cope with pain.
 
-#### **Behaviors**
+## **Behaviors**
 
 - **Withdrawal**
   - **Avoidance of Intimacy**
@@ -374,7 +374,7 @@
     - **Excessive Scrutiny**: Overly analyzing partner’s actions and words.
     - **Second-Guessing**: Doubting one’s own perceptions and judgments.
 
-### **Internal Processing**
+# **Internal Processing**
 
 #### **Cognitive**
 
@@ -430,7 +430,7 @@
     - **Headaches**: Frequent tension headaches due to stress.
     - **Stomach Issues**: Digestive problems related to anxiety.
 
-### **Impact On Current Relationships**
+# **Impact On Current Relationships**
 
 #### **Trust Issues**
 
@@ -480,9 +480,7 @@
 
 - **Outcomes**
   - **Miscommunication**
-    - **Misunderstandings**: Frequent confusion about each other
-
-’s intentions and feelings.
+    - **Misunderstandings**: Frequent confusion about each other’s intentions and feelings.
     - **Assumptions**: Making incorrect assumptions about partner’s thoughts and behaviors.
   - **Unmet Needs**
     - **Unexpressed Desires**: Needs and desires going unspoken and unmet.
