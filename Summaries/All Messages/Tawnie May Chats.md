@@ -1,0 +1,30 @@
+# Tawnie May Chats
+
+- Tawnie and the recipient engage in playful banter and express affection through messages.
+- Tawnie deals with work-related frustrations and financial concerns.
+- Tawnie communicates with her family, including discussions about child support and technological updates.
+- Tawnie and the recipient share intimate and humorous moments in their conversations.
+- Tawnie encounters a bat in her room, leading to humorous exchanges.
+- Tawnie expresses desire and affection towards the recipient.
+- Discussion about a "50 shades of grey room" and related products, including purchasing a sex toy
+- Exchange about building a red room and compound for sister wives
+- Conversation about missing each other, sending money, and planning activities together
+- Sharing of pictures, videos, and plans for a cabin rental and new sex toy
+- Interaction about going bowling, watching TV shows, and expressing affection
+- Mention of future plans, including a summer trip and admiration for Travis Barker
+- Flirtatious and intimate exchanges, including references to physical affection and sexual arousal
+- Cucumber incident, casual conversation, plans to go bowling and eat
+- Bowling and Denny's plans with kids, ice cream dilemma
+- Details about locations, registers, and possible police involvement
+- Conversations about relationships, bucket lists, and phone upgrades
+- Various interactions, including playful banter and shared moments
+- Plans, activities, and personal updates shared between individuals
+- Conversation about driving in the rain and lunch plans
+- Discussion about a drawing for Karter
+- Exchange regarding work and list of questions
+- Emotional conversation about feelings and relationship
+- Apology for past communication issues
+- Encouragement to communicate openly
+- Apologies for feeling confused and sleepy
+- Wishing for good sleep and future conversations
+- Expressing missing and looking forward to talking the next day

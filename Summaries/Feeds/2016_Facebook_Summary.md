@@ -1,0 +1,202 @@
+# 2016_Facebook_Summary
+
+**Summary of 2016 Events:**
+- **2016-01-01:**
+  - Stevie Marie Linnabary celebrates New Year's and shares interactions with Lydia Smith, Dustin Smith, and others.
+- **2016-01-02:**
+  - Reflective post on making amends and cherishing moments shared.
+- **2016-01-03:**
+  - Humorous moments with family and a mention of watching a movie with Lydia Smith and Everett Smith.
+- **2016-01-10:**
+  - Contemplative post about God and humanity, along with a mention of refilling a prescription.
+- **2016-01-12:**
+  - Various interactions with family members, sharing a moment with Dustin Smith.
+- **2016-01-17:**
+  - Mention of the countdown to a baby's arrival and the importance of family.
+- **2016-01-20:**
+  - Reference to a recipe for Better Than Sex Brownies and discussions about downloading apps.
+- **2016-01-22:**
+  - Playful exchanges between Stevie Marie Linnabary and Dustin Smith about sticking to a date.
+- **2016-01-24:**
+  - Social interactions with friends named and shared moments.
+- **6/29/11**
+  - A reflective piece expressing personal growth over four years and anticipation of a trip.
+- **7/25/11**
+  - Introduction to Remixing Love and Music (RL&M) as a community for music lovers.
+  - Emphasis on inclusivity of all music genres and promoting positivity.
+- **7/27/11**
+  - Emotional lyrics expressing deep feelings, love, and struggle.
+- **8/2/11**
+  - Heartfelt lyrics reflecting on love and loss.
+- **8/6/11**
+  - A message of love and dedication to a person named Everett Smith.
+- **8/20/11**
+  - Another mention of Everett Smith and music.
+- **9/2/11**
+- **9/16/11**
+- **10/26/11**
+  - A piece about seasons.
+- **11/7/11**
+  - Emotionally charged text about family dynamics and a child named Everett Smith.
+- **9/14/12**
+  - Mention of moving to a new state and anticipation of a Christmas visit.
+- **10/14/12**
+  - Business plan details for Rock and Drumroll Ent., focusing on music services.
+- **1/17/13**
+  - Recording studio schedule and aspirations for the future.
+- **6/10/13**
+  - Journal entry expressing a struggle with motivation in music.
+Focus on personal growth, music community, emotional lyrics, family dynamics, business aspirations, and struggles with motivation and mental health.
+- **2016-09-21**: Shared a humorous anniversary memory involving a finger injury with friends.
+- **2016-09-22**: Enjoying a quiet moment with sleeping kids.
+- **2016-09-23**: Feeling tired and old.
+- **2016-09-24**: Nostalgic posts about son growing up, past photos, and Halloween costume.
+- **2016-09-25**: Technical post about setting up macOS on a laptop.
+- **2016-09-28**: Reviewing a movie and sharing a Christmas sweater wish.
+- **2016-10-01**: Celebrated family milestones and son's football game.
+- **2016-10-06**: Excited about new baby's arrival.
+- **2016-10-09**: Correcting a sports update about son's football game.
+- **2016-10-22**: Reflective posts about family, relationships, and life's brevity.
+- **2016-10-28**: Anticipation for an upcoming event.
+- **2016-10-31**: Sharing watch discovery with family.
+- **2016-11-04T12:00:00**:
+  - A sentiment about the importance of being with loved ones rather than the place.
+- **2016-11-05T12:11:36**:
+  - Expressing a longing for a TV show and admiration for Alec Baldwin's humor.
+- **2016-11-10T12:00:00**:
+  - Mentions work-related tags from previous dates.
+- **2016-11-11T12:00:00**:
+  - A simple post with a timestamp.
+- **2016-11-11T12:10:28**:
+  - Expressing a desire to sing like someone.
+- **2016-11-12T12:20:50**:
+  - Starting to watch something described as a gem.
+- **2016-11-13T12:00:00**:
+  - Sharing an accomplishment by Stevie Marie Linnabary and thanking Dustin.
+- **2016-11-16T12:00:00**:
+  - Celebrating a 5-year anniversary with Dustin Smith.
+- **2016-11-16T12:14:21**:
+  - Mentioning Dustin Smith and Lori Smith positively.
+- **2016-11-16T12:23:43**:
+  - A humorous mention of a duet on Thanksgiving.
+- **2016-11-20T12:11:02**:
+  - An empty post with a timestamp.
+- **2016-11-23T00:12:00**:
+  - Mentioning multiple people in a funny context.
+- **2016-11-23T00:22:36**:
+  - Sharing a music video by Owen.
+- **2016-11-23T12:00:00**:
+  - A post with a timestamp and some photos mentioned.
+- **2016-12-01T12:00:00**:
+  - Multiple photo posts from various dates in December 2016.
+- **2016-01-25**:
+  - Stevie felt joy as Lydia said "baby" cutely.
+- **2016-01-26**:
+  - Stevie made French Toast for Dustin, showing love and care.
+- **2016-01-28**:
+  - Dustin felt depressed and unappreciated by Stevie.
+- **2016-01-30**:
+  - Dustin shared mixed emotions about his kids, calling his daughter an "asshole" but expressing love for his son.
+- **2016-02-03**:
+  - Stevie shared a humorous parenting moment with their daughter.
+- **2016-02-04**:
+  - Dustin had a positive work evaluation and received a raise, feeling happy.
+- **2016-02-12**:
+  - Stevie showed concern for Dustin's health, wanting him to go to the ER due to chest pain and coughing.
+- **2016-02-13**:
+  - Dustin looked to sell his car, sharing its condition and considering trades for electronics like a MacBook.
+- **2016-02-13:**
+  - Walking: 0.1 miles, 311 steps, 3mins 34secs, 10 calories
+  - Transport: 39.2 miles, 54mins 13secs
+- **2016-02-16:**
+  - Transport: 4.6 miles, 9mins 13secs
+  - Stevie Marie Linnabary mentions Everett Smith and the only known way to reset a phone.
+- **2016-02-17:**
+  - Walking: 0.1 miles, 234 steps, 3mins 15secs, 7 calories
+  - Transport: 8.8 miles, 29mins 14secs
+- **2016-02-18:**
+  - Expresses gratitude towards Stevie Linnabary.
+- **2016-02-20:**
+  - Walking: 0.1 miles, 279 steps, 3mins 7secs, 9 calories
+  - Transport: 5.3 miles, 24mins 41secs
+- **2016-02-27:**
+  - Announcement of naming their daughter Rayna Smith.
+- **2016-02-29:**
+  - Camryn's behavior at the grocery store and an apology.
+  - Apology from the user's brother.
+- **2016-03-01:**
+  - Affectionate moments with Dustin Smith and their daughter.
+- **2016-03-10:**
+  - Despite a bad day, appreciates the positive aspects in life.
+- **2016-03-17:**
+  - Reference to a Kodiak line.
+- **2016-03-20:**
+  - Expresses love and celebrates a birthday.
+- **2016-03-21:**
+  - Humorous interaction with the daughter and a charming memory from the past.
+- **2016-03-24**:
+  - Stevie feels lucky and appreciated by Dustin.
+- **2016-03-25**:
+  - Dustin expresses gratitude for having time to enjoy his interests.
+- **2016-03-29**:
+  - Stevie shares a humorous moment with Dustin.
+- **2016-03-31**:
+  - Snapchat fun with Dustin and Lydia.
+- **2016-04-02**:
+  - Stevie jokes about making a sexy man and shares a date night with Dustin.
+- **2016-04-09**:
+  - Stevie comments on Star Wars movie and Lydia's sleeve.
+- **2016-04-16**:
+  - Stevie celebrates Lydia's 2nd birthday.
+- **2016-04-20**:
+  - Lydia's cute reaction to an MGK video.
+- **2016-04-22**:
+  - Stevie shares one of her favorite moments.
+- **2016-04-23**:
+   - Stevie struggled with assembling a fan, but Dustin helped her out, showcasing teamwork.
+- **2016-05-14**:
+   - Reflective post by Dustin about overcoming past hardships with Stevie, emphasizing the importance of family and resilience.
+- **2016-05-19**:
+   - Stevie shares about seeing her baby girl in an ultrasound, expressing joy and anticipation.
+- **2016-05-22**: A sentiment about collecting years to bring someone back from the dead is shared.
+- **2016-05-23**: Expressing disappointment in recent movies and anticipation for a sci-fi film in 2017.
+- **2016-05-29**: Heading to a birthday party with friends.
+- **2016-06-06**: Reflecting on valuing people over material things.
+- **2016-06-19**: Father's Day wishes and appreciation for hard work.
+- **2016-06-25**: Announcement of induction for the arrival of a new baby.
+- **2016-06-26T12:21:28**: Users were asked to post their first and most recent pictures with their partners, creating a nostalgic and reflective mood.
+- **2016-06-27T00:10:00**: A positive comment about someone's dark hair, expressing admiration and warmth.
+- **2016-06-27T00:19:54**: A mother excitedly shares that her son met his new sister, conveying happiness and anticipation.
+- **2016-06-27T12:07:02**: Joyful announcement of a new baby girl's arrival, with details of her birth time and measurements.
+- **2016-06-27T12:07:39**: Emotional reaction to a song, indicating a personal connection or sentiment.
+- **2016-06-28T12:06:16**: Affectionate post highlighting admiration for a strong and inspiring woman.
+- **2016-06-28T12:11:01**: Expressing gratitude for support received during a challenging time, showing appreciation and love.
+- **2016-07-04T12:12:32**: Reflective post on family and gratitude on the occasion of Independence Day, emphasizing the importance of loved ones.
+- **2016-07-11T12:22:43**: Update on moving to a new house and the realities of exhaustion and happiness in daily life with children.
+- **2016-07-14T12:16:32**: Playful banter about naming and humor, creating a light-hearted atmosphere.
+- **2016-07-18T12:10:48**: Proud parent sharing joy over having cute children, exuding love and happiness.
+- **2016-07-22T12:11:45**: Excitement over free time and enjoying a favorite show with a partner, showcasing relaxation and contentment.
+- **2016-08-04**: Stevie Marie Linnabary expresses a desire to be rich with Dustin M Smith.
+- **2016-08-07**: Stevie impatiently waits for Everett Smith to realize his room has been moved.
+- **2016-08-09**: Stevie expresses being in a state of indifference and neglecting those who care about her.
+- **2016-08-15**: A heartfelt message from a post thanking Stevie Linnabary and family for their support and love.
+- **2016-08-19**: Stevie mentions Dustin Smith and Jensen in a post.
+- **2016-09-04**: Stevie recalls a painful memory of losing her son Jensen and expresses gratitude for Dustin's support during tough times.
+- **4/15/11**:
+  - Emotional conversation between two individuals regarding a child named Everett Smith.
+- **4/17/11**:
+  - Reflective thoughts and memories about past experiences shared with Everett Smith.
+- **4/27/11**:
+  - Contemplation on holding on versus letting go, seeking forgiveness, and reflecting on past mistakes.
+- **5/5/11**:
+  - Expressing admiration, honesty, and longing for a connection, considering reconciliation and friendship.
+- **5/6/11**:
+  - Reiteration of regret, seeking forgiveness, and realization of past mistakes.
+- **5/18/11**:
+  - Empowering lyrics reflecting overcoming struggles and proving doubters wrong.
+- **6/1/11**:
+  - Acknowledgment of personal growth, overcoming challenges, and reflection on past behavior.
+- **6/6/11**:
+  - Nostalgic mention of past memories and current estrangement.
+- **6/10/11**:
+  - Contemplation on past blame, acceptance, and the difficulty of letting go of a relationship.

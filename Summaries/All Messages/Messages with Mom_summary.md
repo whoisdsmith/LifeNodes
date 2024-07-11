@@ -1,0 +1,144 @@
+# Messages with Mom_summary
+
+- **2009-06-21T21:29:00**
+  - A detailed message from 1388409712 with financial information and family updates, expressing care and interest in Dustin Smith's well-being.
+- **2010-10-11T22:13:00**
+  - A stern message from 1388409712 urging action or consequences, indicating a serious tone in the interaction.
+- **2010-07-02T23:12:00**
+  - Concerned messages about safety and checking in with Dustin Smith, indicating a caring and protective tone.
+- **2011-12-10T00:05:00**
+  - Lori Herman Smith is curious about Phil Bishop.
+- **2011-08-22T23:12:00**
+  - Lori Herman Smith expresses love for a kid and apologizes for an interruption, mentioning Faithanne's tough situation and sharing a song link.
+- **2011-06-26T13:34:00**
+  - Words of encouragement and pride from Lori Herman Smith to the kid about living life and being strong, indicating love and support.
+- **2011-06-17T01:26:00**
+  - A message about planning a birthday celebration for someone.
+- **2011-05-03T01:05:00**
+  - Positive feedback from Lori Herman Smith to Dustin Smith regarding something that someone will love.
+- **2011-04-06T13:01:00**
+  - A query from 1388409712 about a canceled plan or lyrics, showing a light-hearted interaction.
+- **Jul 14, 2014**: Mom informs about a family emergency regarding Alice Bagi Taylor. Dustin expresses sympathy.
+- **Jul 24, 2014**: Planning a birthday party for E at Mom's house, discussing details of the event.
+- **Jul 26, 2014**: Mom advises Dustin to watch the weather, expresses concern until his return, and discusses birthday gifts for Lydia.
+- **Jul 29, 2014**: Mom faces work challenges and discusses a new employee handbook, while Dustin updates on his work situation.
+- **Aug 10, 2014**: Mom suggests counseling for Dustin and shares information about free help for potential behavioral health resources.
+- **Aug 15, 2014**: Dustin shares concerns about Stevie needing counseling and expresses the difficulties in their relationship, seeking help for both of them.
+- **Aug 23, 2014:**
+  - Emotional conflict between the user and their partner, discussing moving out and financial concerns.
+- **Aug 26, 2014:**
+  - Conversation about water softener options and family arrangements.
+- **Sep 1, 2014:**
+  - Planning for a gathering, requesting items from mom.
+- **Sep 6, 2014:**
+  - Data usage issue with AT&T and humorous exchanges with mom.
+- **Sep 8, 2014:**
+  - Light-hearted banter about family events and relationships.
+- **Sep 11, 2014:**
+  - Financial discussions regarding cell payment and surprise wedding announcement.
+- **Sep 19, 2014:**
+  - Concerns over high data usage and responsibility for data costs.
+- **Sep 20, 2014:**
+  - Mom's safety warning during storms.
+- **Sep 23, 2014:**
+  - User tasked with finding missing jump drives belonging to mom's partner.
+- **Sep 26, 2014:**
+  - Mom considers separating phone accounts due to data usage differences.
+  - Discussion on data plans and finding lost jump drives.
+  - Mom asks for help with shower head installation.
+- **Sep 28, 2014:**
+  - Plans to visit grandma and conversations about events.
+- **Oct 4, 2014:**
+  - Water leak issue and social plans with reluctance due to house conditions.
+- **Oct 6, 2014:**
+  - Financial support for phone bill and future visit plans.
+- **Oct 11, 2014:**
+  - Mom inquires about a creeper tool for cars.
+- **Oct 14, 2014:**
+  - Conversation on Ebola outbreak and potential living arrangements.
+- **Oct 16, 2014:**
+  - Kids are sick; discussion on housing and heat options.
+- **Oct 24, 2014:**
+  - Request for a photo of Michigan ID for lease file.
+- **Oct 29, 2014:**
+  - Phone trade-in update and a Facebook link shared.
+- **Oct 30, 2014:**
+  - Frustration over work shifts and unfair distribution of workload.
+- **Oct 31, 2014**
+  - Intense emotional conversation between Mom and Me regarding relationship issues and financial strain.
+- **Nov 3, 2014**
+  - Mom offers financial help for renting a house, showing concern for Me's chest pains.
+- **Nov 5, 2014**
+  - Mom plans to help move and discusses arranging assistance from family members.
+- **Nov 12, 2014**
+  - Troubles with the house lead to plans for leaving due to unresolved issues.
+- **Nov 15, 2014**
+  - Mom expresses hope for improved relationship dynamics and urges against conflict.
+- **Nov 17, 2014**
+  - Me confirms successful completion of moving out before a winter storm warning.
+- **Nov 19, 2014**
+  - Mom organizes repairs for the new place and advises on utility transfers.
+- **Nov 24, 2014**
+  - Me shares legal trouble faced by Travis, prompting empathy from Mom.
+- **Nov 26, 2014**
+  - Financial discussions and concern for Mom's sick pet.
+- **Nov 30, 2014**
+  - Me successfully sets up a dryer, prompting relief from Mom.
+- **Dec 12, 2014**
+  - Mom reminds Me about cell bill payments, with Me planning to address it the next day.
+- **Dec 14, 2014**
+   - Mom expresses missing her son and plans a family Christmas dinner.
+   - Discussion on dinner options and plans to see Santa.
+   - Son requests a specific dish for dinner.
+   - Mom mentions transferring data from an old computer and plans to meet for pickup.
+- **Dec 15, 2014**
+   - Son discusses a project with Everett Smith involving an old computer.
+   - Mom reacts humorously to unexpected computer project.
+   - Plans made to transfer data and pick up the computer.
+- **Dec 16, 2014**
+   - Son inquires about Christmas concert attendance.
+- **Dec 17, 2014**
+   - Mom asks about household issues and plans for Christmas concert.
+- **Dec 18, 2014**
+   - Mom directs son on where to find them at the concert.
+- **Dec 20, 2014**
+   - Son expresses gratitude for a gift received.
+- **Dec 22, 2014**
+   - Mom seeks tech advice for a computer issue.
+- **Dec 23, 2014**
+   - Mom expresses appreciation for tech assistance.
+- **Dec 25, 2014**
+   - Mom shares holiday sentiments and a quirky Christmas song.
+- **Dec 26, 2014**
+   - Son plans outing, asks for favor, and discusses financial matters.
+- **Dec 28, 2014**
+   - Plans for a visit and excitement about seeing family.
+- **Dec 29, 2014**
+   - Son vents about work issues and shares job opportunity.
+- **Jan 1, 2015**
+   - Son wishes a happy New Year to Mom.
+- **Jan 3, 2015:**
+  - Mom apologizes for missing a family gathering due to a miscommunication.
+  - Mom asks if the user is mad or just busy, to which the user responds they are busy.
+- **Jan 9, 2015:**
+  - Mom inquires about AT&T, user mentions putting $400 in.
+  - Conversation about car troubles and work schedule changes.
+- **Mar 13, 2015:**
+  - User asks about family history, specifically medical details.
+  - User and mom discuss grandpa's name and ancestry details.
+- **Mar 14, 2015:**
+  - User and mom continue discussing family history and genealogy.
+- **Mar 16, 2015:**
+  - User seeks clarity on parents' wedding date.
+- **Mar 20, 2015:**
+  - User asks about a family member's well-being.
+  - Banter about a movie and family dynamics.
+- **Mar 22, 2015:**
+  - User talks with mom about various topics, including coffee, birthday brownies, and finding a diploma.
+- **Jun 23, 2019:** Lori Smith expressed sadness and love.
+- **Jun 21, 2019:** Dustin Smith shared a video; Lori Smith responded positively.
+- **Jun 19, 2019:** Dustin Smith shared multiple videos; Lori Smith expressed excitement and love for them.
+- **Jun 18, 2019:** Lori Smith and Dustin Smith discussed car issues and a court summons, with Lori feeling frustrated and considering legal action.
+- **Jun 2, 2019:** Dustin Smith bought groceries and asked Lori if she needed anything, showing care and consideration.
+- **May 29, 2019:** Lori Smith tried to reach out multiple times before leaving work.
+- **May 13, 2019:** Dustin Smith shared a cover song; Lori Smith complimented the performance.

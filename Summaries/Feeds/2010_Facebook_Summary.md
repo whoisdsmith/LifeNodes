@@ -1,0 +1,319 @@
+# 2010_Facebook_Summary
+
+- **2010-01-01T12:01:52**: One expresses spreading love like violence.
+- **2010-01-06T12:01:15**: An individual shares having a crush on Katherine Heigl.
+- **2010-01-11T12:15:17**: Expresses admiration for the show Nitro Circus.
+- **2010-01-15T12:19:43**: Pays tribute to George O'Maley, calling him a hero.
+- **2010-01-27T12:12:32**: Proudly mentions having a cool kid.
+- **2010-02-12T12:13:44**: Plans an anti-Valentine's Day party and expresses frustration with Cupid.
+- **2010-02-18T12:11:57**: Realizes the beauty of life despite challenges.
+- **2010-02-24T12:13:03**: Celebrates a birthday with strippers and beers.
+- **2010-02-26T12:14:02**: Criticizes government spending on foreign aid over domestic needs.
+- **2010-02-28T12:16:47**: Finds clarity and meaning in the world.
+- **2010-03-03T12:16:59**
+  - Theme of saying goodbye and moving forward.
+- **2010-03-04T12:16:31**
+  - Feeling morally conflicted, moral compass pointing south.
+- **2010-03-04T12:18:05**
+  - Excitement for a good weekend with a loved one.
+- **2010-03-05T12:14:28**
+  - Feeling destroyed by a lover.
+- **2010-03-05T12:17:57**
+  - Acknowledging a tendency to ruin good things.
+- **2010-03-07T12:19:44**
+  - Humorous mention of watching "Alice in Wonderland" on shrooms.
+- **2010-03-07T12:19:59**
+  - Reflection on not meeting others' expectations.
+- **2010-03-08T12:00:23**
+  - Internal struggle between good and evil.
+- **2010-03-08T12:03:53**
+  - Cryptic message "WTDWYAD."
+- **2010-03-08T12:18:43**
+  - Determination to overcome challenges.
+- **2010-03-09T12:10:07**
+  - Desire for overwhelming love.
+- **2010-03-10T12:19:06**
+  - Expressing love despite uncertainties.
+- **2010-03-11T12:15:21**
+  - Enjoying music by Akon.
+- **2010-03-11T12:22:35**
+  - Feeling emotionally cold, like an "ice box."
+- **2010-03-12T12:12:25**
+  - Acknowledging lost love.
+- **2010-03-12T12:18:43**
+  - Enjoying time with Todd and music by Sublime.
+- **2010-03-13T12:07:32**
+  - Playful interaction asking who's still awake.
+- **2010-03-13T12:09:26**
+  - Expressing love and appreciation for mom.
+- **2010-03-13T12:10:04**
+  - Humorous remark about going to bed.
+- **2010-03-13T12:17:48**
+  - Desire for enduring love.
+- **2010-03-14T12:14:51**
+  - Struggling to love due to past struggles.
+- **2010-03-15T12:02:48**
+  - Seeking peace after turmoil.
+- **2010-03-15T12:18:10**
+  - Apologizing in advance for potential mistakes on St. Patrick's Day.
+- **2010-03-15T12:21:11**
+  - Feeling insignificant in someone's life.
+- **2010-03-16T12:22:51**
+  - Anticipation for a significant upcoming event.
+- **2010-03-17T12:14:16**
+  - Excitement for indulging in vices on St. Patrick's Day.
+- **2010-03-17T12:21:57**
+  - Memories of self-discovery through someone else.
+- **2010-03-19T12:02:20**
+  - Playful comment about being blown away.
+- **2010-03-19T12:08:41**
+  - Expressing resilience and independence.
+- **2010-03-19T12:16:38**
+  - Humorous contemplation of birthday celebrations.
+- **2010-03-19T12:17:04**
+  - Asserting family strength and humor.
+- **2010-03-20T12:00:00**
+  - Neutral post at 10:40.
+- **2010-03-20T12:00:22**
+  - Playful excitement for birthday celebrations.
+- **2010-03-20T12:10:40**
+  - Desire for recreational activities on birthday.
+- **2010-03-20T12:21:11**
+  - Gratefulness for birthday celebrations with family.
+- **2010-03-21T12:13:25**
+  - Contemplating settling down in the future.
+- **2010-03-22T12:10:09**
+  - Working on rebuilding life.
+- **2010-03-23T12:17:04**
+  - Beginning to move forward from negativity.
+- **2010-03-24T12:19:33**
+  - Struggling to maintain composure.
+- **2010-03-24T12:20:15**
+  - Hoping for understanding in the future.
+- **2010-04-16T12:00:55**
+  - Choosing to live differently.
+- **2010-04-16T12:01:53**
+  - Confidence and pride in oneself.
+- **2010-04-16T12:14:30**
+  - Excitement for watching a movie with a friend.
+- **2010-04-17T12:10:20**
+  - Excitement for attending a soccer game.
+- **2010-04-17T12:15:26**
+  - Celebrating a friend's safe return in a lighthearted way.
+- **2010-04-18T12:11:10**
+  - Introducing a slang term and seeking validation.
+- **2010-04-18T12:16:28**
+  - Acknowledging the importance of personal happiness.
+- **2010-04-19T12:11:52**
+  - Expressing confidence and triumph over negativity.
+- **2010-04-19T12:17:12**
+  - Humorous observation about mowing the lawn.
+- **2010-04-19T12:20:52**
+  - Reflecting on a past event.
+- **2010-04-20T12:00:30**
+  - Participating in a humorous moment with friends.
+- **2010-04-20T12:10:19**
+  - Playful comment about flavor preferences.
+- **2010-04-20T12:10:26**
+  - Inviting friends to celebrate together.
+- **2010-04-21T12:00:38**
+  - Controversial comment about eating chicken.
+- **2010-04-21T12:19:25**
+  - Enjoying sports and drinks with friends.
+- **2010-04-22T12:01:14**
+  - Playful remark about attire.
+- **2010-04-22T12:11:50**
+  - Humorous claim about studio activities.
+- **2010-04-22T12:19:49**
+  - Expressing uncertainty.
+- **2010-04-23T12:13:01**
+  - Deciding to move forward in life.
+- **2010-04-23T12:23:56**
+  - Noticing a trend of marriages.
+- **2010-04-24T12:09:39**
+  - Finding humor in children's activities.
+- **2010-04-24T12:13:50**
+  - Joking about potential influence on son's music taste.
+- **2010-04-24T12:21:40**
+  - Bold statement about ego.
+- **2010-04-25T12:13:35**
+  - Playfully teasing someone.
+- **2010-04-25T12:19:12**
+  - Aspiring for greatness.
+- **2010-04-25T12:22:10**
+  - Playful reference to attire.
+- **2010-04-26T12:12:52**
+  - Enjoying beer time.
+- **2010-04-26T12:18:47**
+  - Socializing and drinking with a friend.
+- **2010-04-28T12:02:19**
+  - Surprised by own eye color.
+- **2010-04-28T12:11:58**
+  - Joking about memory loss.
+- **2010-04-28T12:13:26**
+  - Preparing to sing about life.
+- **2010-04-28T12:14:27**
+  - Playfully quoting a song lyric.
+- **2010-04-28T12:14:42**
+  - Humorous comment about a perceived threat.
+- **2010-04-28T12:20:00**
+  - Feeling invincible.
+- **2010-04-28T12:22:48**
+  - Channeling a confident persona.
+- **2010-04-29T12:13:51**
+  - Regretting holding onto things.
+- **2010-04-29T12:15:04**
+  - Disparaging someone with humor.
+- **2010-04-29T12:16:26**
+  - Sharing a comical moment with a friend.
+- **2010-04-30T12:15:26**
+  - Socializing at a specific location.
+- **2010-05-01T12:12:11**
+  - Admiring someone's appearance.
+- **2010-05-01T12:21:10**
+  - Excitement for a party.
+- **2010-05-04T12:23:47**
+  - Enjoying a movie.
+- **2010-05-05T12:13:15**
+  - Planning fun activities with friends.
+- **2010-05-05T12:15:32**
+  - Expressing interest in a specific entertainment.
+- **2010-05-05T12:18:06**
+  - Sharing a movie preference.
+- **2010-05-06T12:17:23**
+  - Feeling nervous about a job interview.
+- **2010-05-10T12:12:11**
+  - Reflecting on past events with friends.
+- **2010-05-11**:
+  - A heartfelt message to Rebecca expressing regret and seeking understanding.
+- **2010-05-15**:
+  - Considering joining the military or working on an oil rig due to feeling stagnant in life.
+  - Shares being hungover.
+  - Excited about grandma sending her first text message.
+- **2010-05-19**:
+  - Posts positively about being alive.
+  - Gets a gym membership.
+- **2010-05-20**:
+  - Enjoys fishing with dad and awaits his child's arrival for the weekend.
+- **2010-05-23**:
+  - Celebrates successful weight loss and feeling human again.
+- **2010-05-24**:
+  - Goes on vacation to Cedar Point amusement park.
+- **2010-05-25**:
+  - Feels a shift in mindset and letting go of things.
+  - Plans to get fit by the end of summer.
+- **2010-05-27**:
+  - Toasts to starting over.
+- **2010-06-16**:
+  - Apologizes for previous behavior and expresses struggles and love for his son.
+- **2010-06-30**:
+  - Begins a new job and notes starting where he left off.
+- **2010-07-04**:
+  - Writes a message about personal struggles, including battling cancerous cells and feeling trapped in despair, but finds solace in his son Everett Smith.
+- **2010-07-04**:
+  - Dustin Smith expresses deep struggles with self, past mistakes, and lack of motivation, feeling crushed and isolated.
+  - Emotionally invested in son Everett Smith, fearing his upcoming move and the potential loss of their bond.
+  - Contemplates the harsh realities of life, expresses a sense of hopelessness, and reflects on past beliefs.
+- **2010-07-04 - Message to Everett Smith and Rebecca**:
+  - Affectionately addresses son Everett, expressing profound love and hopes for his future, regretting past mistakes, and seeking redemption.
+  - Apologizes to Rebecca, acknowledging difficulties, expressing love, and reflecting on their shared past, emphasizing Everett's importance.
+  - Shares plans to leave the current town, pursue physical work for financial stability, and expresses a sense of loss and longing for what's left behind.
+- **2010-07-05**: Expresses hope for a better future relationship.
+- **2010-07-07**: Shares feelings of anger and control in a relationship.
+- **2010-07-08**: Reflects on forgetting what being loved feels like.
+- **2010-07-14**: Expresses contentment with a life lacking belief in much.
+- **2010-08-13**: Finds joy and rejuvenation through interaction with son.
+- **2010-08-16**: Acknowledges personal growth and love for child.
+- **2010-09-15**: Celebrates one year of being single and feeling empowered.
+- **2010-09-22**: Reflects on intense love and potential consequences.
+- **2010-09-23**: Shows a boastful and humorous attitude toward life and relationships.
+- **2010-09-24**: Asserts confidence and resilience against negativity.
+- **2010-09-27**: A detailed post reflecting on a challenging past year, expressing pain, betrayal, and struggles with substance use and self-worth.
+- **2010-09-28**: Grateful post thanking the mother for movie night and steak dinner.
+- **2010-09-29**: Struggling with sleep without alcohol and pills, hinting at relationship issues.
+- **2010-09-30**: Feeling low and describing oneself negatively.
+- **2010-10-01**: Expressing frustration with a cold in a metaphorical way.
+- **2010-10-05**: Contemplating making a positive change for oneself and a child.
+- **2010-10-09**: Playfully self-deprecating statement and enthusiastic support for a sports team.
+- **2010-10-12**: Confident and defiant remarks about self-worth and overcoming past challenges.
+- **2010-10-13**: Expressing the desire for alcohol and reflecting on a strained relationship with a loved one.
+- **2010-10-18**: Showing irritability and a disregard for others' issues.
+- **2010-10-21**: Praise for a new album by a favorite band.
+- **2010-10-30**: Watching movies and enjoying alone time at the theater.
+- **2010-11-01**: Expressing a desire for help and nostalgia for past self.
+- **2010-11-03**: Light-hearted post about legal matters and self-assured comment about self-importance.
+- **2010-11-04**: Reflecting on visiting the son's room after a long time.
+- **2010-11-06**
+  - Hungover wake-up, partying with friends, kegger planned.
+- **2010-11-07**
+  - Playful antics, feeling broken down, considering a stoner lifestyle.
+- **2010-11-10**
+  - Longing to see son, proud of his progress in school, expressing love.
+- **2010-11-15**
+  - Expressing love and missing someone dearly.
+- **2010-11-19**
+  - Enjoying drinking and feeling carefree.
+- **2010-11-25**
+  - Thankful for family and son on Thanksgiving, looking forward to seeing son.
+- **2010-12-02**
+  - Humorous Christmas tree idea with beer cans.
+- **2010-12-06**
+  - Reflecting on satisfaction, wanting a drinking job, anticipating weekend plans.
+- **2010-12-07**
+  - Achieving a drunk laundry goal.
+- **2010-12-07**
+  - Feeling drunk and anticipatory of wild night out.
+  - Expressing excitement and carefree attitude towards the night's events.
+- **2010-12-09**
+  - Contemplating behavior at work event after being laid off.
+  - Indulging in alcohol and partying.
+- **2010-12-10**
+  - Humorous anticipation of potential trouble or fun.
+  - Enjoying social interactions and not needing to buy drinks.
+- **2010-12-11**
+  - Enjoying music and expressing love for a specific artist.
+- **2010-12-13**
+  - Planning to indulge in drinking and texting friends.
+  - Expressing mixed emotions and frustration.
+- **2010-12-15**
+  - Excited about plans for the day including games and music.
+  - Sharing personal emotional response to music.
+- **2010-12-17**
+  - Expressing desire for specific substance.
+  - Sharing activities and emotions related to specific locations.
+- **2010-12-18**
+  - Reflecting on personal identity and readiness to socialize.
+  - Enjoying entertainment and personal relationships.
+- **2010-12-19**
+  - Sharing activities and companionship while being inebriated.
+  - Playful and humorous interactions with family.
+- **2010-12-20**
+  - Expressing self-confidence and readiness to engage in specific activities.
+  - Humorous comparisons and social invitations.
+- **2010-12-21**
+  - Expressing candid opinions and defiance towards social norms.
+- **2010-12-22**
+  - Sharing emotional outbursts towards past relationships and friends.
+  - Toasting specific groups of friends with humor and sincerity.
+- **2010-12-22T12:17:25:**
+  - Mentioned calling a group of girls hoes.
+- **2010-12-23T12:14:55:**
+  - Mentioned sleeping all day and partying all night.
+- **2010-12-23T12:19:10:**
+  - Going to Applebee's to get drunk with favorite people.
+- **2010-12-24T12:15:56:**
+  - Expressing grinch-like feelings during Christmas.
+- **2010-12-25T12:10:03:**
+  - Anticipating Christmas with a beer.
+- **2010-12-26T12:01:26:**
+  - Witnessing a funny incident of someone jumping out of a moving car.
+- **2010-12-26T12:14:20:**
+  - Taking dad out to a movie for Christmas.
+- **2010-12-27T12:11:35:**
+  - Getting a state ID.
+- **2010-12-28T12:12:10:**
+  - Cutting wood and drinking beer.
+- **2010-12-29T12:20:53:**
+  - Joking about doing shots and lines of coke.
+- **2010-12-31T12:04:29:**
+  - Not finding anything special about the new year.

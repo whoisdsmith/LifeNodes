@@ -1,0 +1,295 @@
+# 2011_Facebook_Summary
+
+- **2011-01-18T12:23:11**
+  - Son called to sing a song, parent delighted.
+- **2011-01-27T12:19:37**
+  - Excitement over son coming home for 10 days.
+- **2011-01-28T12:14:13**
+  - Realization of joy in being with child after struggles with substances.
+- **2011-01-29T12:10:26**
+  - Heartwarming moment shared with child.
+- **2011-02-10T12:00:17**
+  - Reflecting on time spent with son before his return to Washington.
+- **2011-02-16T00:00:00**
+  - Travel confirmation for a trip from Detroit to San Diego.
+- **2011-02-17T12:00:00**
+  - Excited messages exchanged with a loved one before a meeting in San Diego.
+- **2011-02-26T12:15:08**
+  - Humorous and suggestive posts.
+- **2011-03-23T12:00:00**
+  - Reflections on personal growth, family time, and gratitude.
+- **2011-03-23T12:17:19**
+  - Family dynamics and humorous sibling interaction.
+- **2011-12-07**
+  - Person expressing thoughts about personal growth and relationship focus.
+  - Emphasizes belief in positive change.
+- **2011-12-08**
+  - Proud parent moment shared about son's test results.
+  - Appreciation for son and co-parent's efforts.
+- **2011-12-09**
+  - Mention of exes causing trouble.
+- **2011-12-16**
+  - Playful comment about love and intimacy.
+- **2011-12-17**
+  - Joyful reunion with son after 5 months.
+  - Happy family moments shared.
+- **2011-12-18**
+  - Appreciation for girlfriend and humor in family interactions.
+- **2011-12-20**
+  - Excitement for holiday activities with loved ones.
+- **2011-12-22**
+  - Excitement over experiencing 3D TV for the first time.
+- **2011-12-25**
+  - Heartwarming Christmas celebration with family.
+  - Funny anecdote involving the question "Who's Jesus?"
+- **2011-12-31**
+  - Gratitude for spending New Year's with son and girlfriend.
+  - Fun movie night plans shared with partner.
+- **2011-03-23**
+  - Met son's stepdad, aiming for friendship, letting go of hard feelings.
+  - Reflects on past family, rebuilding life, and personal growth.
+  - Excited to see son soon, proud of him.
+  - Enjoys time with son, plans to be a better role model.
+  - Struggling with past heartbreak but determined to move forward positively.
+- **2011-04-07**
+  - Reflects on past overdose incident due to relationship troubles, emphasizes self-worth and resilience.
+- **2011-04-28**
+  - Expresses deep feelings for someone named Kristin, acknowledging past mistakes and expressing regret.
+- **2011-05-03**
+  - Working on a heartfelt song for someone special, emphasizing honesty and personal storytelling in lyrics.
+- **2011-05-03**:
+  - Emotional post expressing gratitude for family, friends, and son.
+  - Proud statement about a song written for Kristin.
+- **2011-05-09**:
+  - Beginning of a new chapter in life with hopeful outlook.
+- **2011-05-21**:
+  - Reconciliation and positive interaction with son's stepdad, aiming for friendship.
+- **2011-05-22**:
+  - Cheerful post about writing a happy song and enjoying time with the child.
+- **2011-05-24**:
+  - Reflection on personal growth post-drug habit and focus on son's importance.
+- **2011-05-26**:
+  - Humorous post about son wanting a baby sister.
+- **2011-05-30**:
+  - Light-hearted posts about a dessert and son's playful behavior.
+- **2011-06-03**:
+  - Reflective post about forgiveness and moving forward positively.
+- **2011-06-08**:
+  - Inspirational message about choosing happiness and embracing life's challenges.
+- **2011-06-17**:
+  - Father-son bonding time.
+  - Expressing admiration through poetic words.
+  - Enjoying a sober and fun time.
+- **2011-06-19**:
+  - Asserting independence and reasons for likely singledom.
+  - Celebrating Father's Day with love for family.
+  - Reflecting on relationships and personal honesty.
+  - Bonding with the son through activities.
+  - Sharing music interests with friends.
+- **2011-06-20**:
+  - Overcoming drug addiction and celebrating 90 days of being clean.
+- **2011-06-21**:
+  - Regretting taking love for granted and urging appreciation before it's too late.
+- **2011-06-22**:
+  - Content with waking up alone.
+  - Appreciating music by specific artists.
+- **2011-06-23**:
+  - Light-hearted note on breakfast and adderall.
+  - Acknowledging personal flaws.
+- **2011-06-24**:
+  - Expressing goodnight wishes.
+  - Remembering a departed friend.
+  - Emphasizing the importance of music and life.
+- **2011-06-25**:
+  - Recounting a dark period of self-destructive behavior and redemption.
+  - Reflecting on past mistakes and valuing life.
+- **2011-06-26**:
+  - Wishing others a passionate night.
+- **2011-06-27**:
+  - Letting go of things.
+  - Expressing pride in the son and the bond shared.
+  - Son expressing admiration and love for the father.
+- **2011-06-28T04:12:00**
+  - Vital signs recorded: BP, heart rate, weight, respiration rate, O2 SAT, height.
+- **2011-06-28T04:12:01**
+  - Expresses frustration about rushed doctor's visit and waiting.
+- **2011-06-28T04:14:19**
+  - Playful comment about self-confidence.
+- **2011-06-28T04:15:13**
+  - Plans to upload music covers on YouTube.
+- **2011-06-28T04:16:06**
+  - Humorous interaction between parent and child about relationships.
+- **2011-06-28T04:19:39**
+  - Posed for a photo shoot and feeling confident.
+- **2011-06-28T04:20:17**
+  - Reflective post about emotions.
+- **2011-06-28T04:22:28**
+  - Humorous situation about a smelly car.
+- **2011-06-28T04:23:29**
+  - Casual comment about appearance.
+- **2011-07-24T12:20:37**
+  - Humorous comparison expressing love.
+- **2011-07-24T12:23:55**
+  - Proud and sentimental post about son turning 6.
+- **2011-07-25T00:00:00**
+  - Poetic and emotional post about self-doubt and struggles.
+- **2011-07-25T00:02:51**
+  - Playful comment about personality.
+- **2011-07-25T00:12:31**
+  - Hinting at a change in behavior.
+- **2011-07-25T00:15:06**
+  - Reference to "Goonies" movie, a symbol of perseverance.
+- **2011-07-25T00:15:43**
+  - Compliment with a touch of humor.
+- **2011-07-25T00:17:40**
+  - Attribution to a photo.
+- **2011-07-25T00:18:07**
+  - Reflection on time and love.
+- **2011-07-25T00:18:47**
+  - Desire for clear communication in relationships.
+- **2011-07-25T00:19:16**
+  - Playful humor about voiceovers.
+- **2011-07-25T00:19:51**
+  - Sentimental flashback to son's birth and appreciation for life.
+- **2011-07-25T00:20:37**
+  - Humorous comparison expressing love.
+- **2011-07-25T00:20:45**
+  - Motivational advice on finding love.
+- **2011-07-25T00:22:01**
+  - Photo credit acknowledgment.
+- **2011-07-25T00:23:18**
+  - Lyrics expressing romantic nostalgia.
+- **2011-07-25T00:23:55**
+  - Proud and sentimental post about son turning 6.
+- **2011-07-25T04:00:00**
+  - Date reference.
+- **2011-07-25T12:00:00**
+  - Sentimental post about son's birth and growth.
+- **2011-07-25T12:18:07**
+  - Reflection on time and love.
+- **2011-07-25T12:19:51**
+  - Sentimental flashback to son's birth and appreciation for life.
+- **2011-07-25T18:07:00**
+  - Reflective post on time and love.
+- **2011-07-25T19:51:00**
+  - Sentimental flashback to son's birth and appreciation for life.
+- **2011-07-26T04:02:46**
+  - Advice on sharing feelings wisely.
+- **2011-07-26T04:12:20**
+  - Birthday wish for a child turning 6.
+- **2011-07-26T04:21:11**
+  - Conflicting feelings about smoking.
+- **2011-07-26T04:22:30**
+  - Realization about alcohol consumption.
+- **2011-07-26T12:00:00**:
+  - Emotional reflection on past love, heartache, and moving on.
+  - Expresses deep love and longing for a lost relationship.
+- **2011-07-26T12:12:20**:
+  - Celebrates the 6th birthday of the user's child.
+- **2011-07-26T12:21:11**:
+  - Personal reflection on the perception of smoking in relation to attractiveness.
+- **2011-07-31T02:04:14**:
+  - Emotional post about parting with the child as they move to Georgia.
+- **2011-07-31T04:19:17**:
+  - Heartfelt message expressing love and the difficulty of separation from the child and their mother.
+- **2011-08-02T04:02:32**:
+  - Emotional reaction to hearing a voice message, expressing love and longing for the person.
+- **2011-08-03T02:16:46**:
+  - A heartfelt message to the son, expressing love and missing him after he moved away.
+- **2011-08-03T12:01:01**:
+  - Tagged post with the theme of starting anew or a different chapter in life.
+- **2011-08-03T12:15:42**:
+  - Begins writing a song for the son, showing a creative and emotional outlet.
+- **2011-08-05T12:00:00**:
+  - A message to the son expressing love, longing, and the impact of his absence on the user.
+- **2011-08-05T04:00:06**:
+  - Humorous post referencing past adventures and a carefree attitude towards nudity.
+- **2011-08-05T18:27:30**
+  - A message to **Everett Smith** to turn up the speakers and sing along.
+- **2011-08-08T12:00:00**
+  - **Dustin Smith** shares emotional thoughts about his son **Everett Smith**, expressing regret for missed time and emphasizing the importance of family.
+- **2011-08-10T04:06:52**
+  - **Dustin** expresses feeling lost.
+- **2011-08-11T12:00:00**
+  - **Dustin** reflects on past relationships and the impact of his son and his ex-partner **Rebecca Rodriguez** on his life.
+- **2011-08-12T04:18:11**
+  - Focus on expressing love and care for others.
+- **2011-08-13T04:17:06**
+  - Enjoying a date night alone with Starbucks, Chinese food, and a movie.
+- **2011-08-14T04:20:11**
+  - **Dustin** preparing a package filled with love for his son **Everett Smith**.
+- **2011-08-15**
+  - A mix of emotions: From starting the day feeling down to finding solace in treating oneself at Applebee's.
+  - Humorous and casual interaction with mentioning putting nutsack on someone's drum set.
+  - Expressing dedication in love, willing to work hard until the end.
+- **2011-08-16**
+  - Nostalgic reminiscence about past experiences on the road with brothers.
+  - Reflective on memories that resurface unexpectedly.
+- **2011-08-17**
+  - Waking up humorously with a surprising exclamation.
+  - Casual remark about consuming a lot of banana laffy taffy.
+  - Positive attitude expressed with "Superfuckingnatural" statement.
+- **2011-08-20**
+  - Using explicit language to depict emotional intensity and frustration.
+  - A detailed personal reflection on past hardships and heartbreaks.
+- **2011-08-21**
+  - Humorous desire for an "F You" button on social media.
+  - Asserting a preference for taking action rather than passivity.
+- **2011-08-24**
+  - Expressing longing and emotional attachment through lyrics-like statements.
+  - Playful analogy between sleep and relationships.
+  - Noting an impending storm with dramatic language.
+- **2011-08-25**
+  - Humorous self-deprecating comment about an accidental incident.
+  - Casual and somewhat provocative statement about partying and respecting others.
+- **2011-08-26**
+  - Playful comment showcasing confidence.
+  - Expressing enjoyment of the night and light-heartedness.
+- **2011-08-27**
+  - Offering a kind and appreciative message to others.
+- **2011-08-28**
+  - Contrasting stereotypical activities for women and a humorous alternative for men.
+  - Embracing a carefree attitude with a toast to nonchalance.
+- **2011-08-30**
+  - Reflective statement about growing apart and adapting to independence.
+- **2011-08-31**
+  - Crude humor mixed with desire for indulgence and intensity.
+  - Reference to the movie "Step Brothers."
+- **2011-09-03**
+  - Struggling with communication and emotional control.
+  - Reflecting on the aftermath of a relationship and personal growth.
+- **2011-09-04**
+  - Reflecting on past mistakes and the pain of a failed relationship.
+- **2011-09-16**
+  - Expressing feelings of abandonment and emptiness after a significant loss.
+- **2011-09-29**
+  - Praising a band's impact on emotions.
+  - Warning about the potential for love to turn into resentment.
+- **2011-10-05**
+  - Shared wisdom from a family member about the value of time and acceptance.
+- **2011-10-26**
+  - Recording personal biometric data as a post.
+- **2011-10-30 and 2011-10-31**
+  - Reflective statement about deserving outcomes over time.
+- **2011-11-01**
+  - Recording meeting someone named Stevie Linabary.
+- **2011-11-03**
+  - Humorous plans for the evening and boredom relief with shadow puppets.
+- **2011-11-05T15:18:46**
+  - Mention of partying due to extra drinking time from daylight saving time change.
+- **2011-11-07T01:05:00**
+  - Emotional reflection on son leaving home, expressing love and pride.
+- **2011-11-17T00:01:00**
+  - Feeling happy and carefree, enjoying the moment.
+- **2011-11-17T12:09:09**
+  - Son's sweet gesture of calling to say he loves the parent.
+- **2011-11-22T12:10:48**
+  - Excitement about seeing son in 18 days.
+- **2011-11-30T12:18:13**
+  - Looking forward to spending the holiday season with family and expressing some humorous thoughts.
+- **2011-12-05T05:19:07**
+  - Declaration of happiness and deserving it.
+- **2011-12-06T05:17:52**
+  - Grateful for partner's gestures and feeling lucky.
+- **2011-12-06T13:27:00**
+  - Photo credit to Stevie Linnabary.

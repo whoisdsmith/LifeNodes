@@ -1,0 +1,61 @@
+# 2018_Facebook_Summary
+
+- **2018-01-04:**
+  - Dustin Smith reflects on past pain and anger, realizing the destructive path he was on.
+  - Acknowledges the need for self-change and the importance of making better choices in life.
+- **2018-01-11:**
+  - Dustin Smith shares personal struggles, including betrayal by his wife and a friend's sudden passing.
+  - Expresses bitterness and desire for revenge but ultimately decides against destructive actions.
+  - Mourns the loss of a friend who had supported him during difficult times.
+  - Condemns cowardice in handling relationships and advocates for honesty and respect in ending affairs.
+  - Reflects on the impact of suicidal thoughts, emphasizing the value of life and resilience against negativity.
+- **2018-01-11T12:23:02:**
+  - Motivation in different directions, walking a fine line.
+- **2018-02-19T12:00:00:**
+  - Deep reflection on love, sacrifice, and commitment.
+- **2018-03-09T22:04:57 to 2018-03-11T12:38:47:**
+  - Emotional journey of Everett's wrestling competition.
+  - Supportive and proud interactions from family members.
+- **2018-03-14T00:00:00:**
+  - Introduction of Everett on Messenger.
+- **2018-03-25T00:00:00 to 2018-04-09T00:00:00:**
+  - Conversations about spending time together, playing games, and technical computer issues.
+- **2018-05-06T00:00:00 to 2018-05-12T00:00:00:**
+  - Delay in meeting due to personal challenges.
+- **2018-06-27T12:00:00:**
+  - Poignant reflection on personal struggles and the impact of relationships.
+- **2018-06-26T00:00:00**:
+  - Everett Smith expresses love and support, hopes the recipient overcomes something.
+- **2018-07-15T19:05:26**:
+  - Concern about Everett Smith's hygiene, reminder to shower.
+- **2018-07-16T13:16:03**:
+  - Request for someone to take Everett Smith to a doctor's appointment.
+- **2018-08-30T00:00:00**:
+  - Conversations about school readiness and enjoyment.
+- **2018-09-01T00:00:00**:
+  - Interaction regarding a missed call, humorous exchange about being in the tub.
+- **2018-09-05T00:00:00**:
+  - Apology for missing a game, expressing love and support.
+- **2018-09-19T00:00:00**:
+  - Notification of illness and inability to meet, discussion of meeting up in the future.
+- **2018-09-22T00:00:00**:
+  - Reminder and confirmation of a planned meetup, casual chat about a broken item and anticipation of meeting.
+- **2018-10-03T00:00:00**
+  - Father unable to make meet-up due to sickness, expresses love and support.
+  - Discussion about sports victories and plans for the weekend.
+- **2018-10-07T00:00:00**
+  - Encouraging messages despite father's sinus infection.
+  - Updates on sports victory and general well-being.
+- **2018-10-19T00:00:00**
+  - Request to spend the weekend at dad's place.
+- **2018-10-20T00:00:00**
+  - Announcement of relationship breakup with Stevie.
+  - Son's understanding and support.
+  - Son expresses love and appreciation for dad.
+  - Discussion about movies and business plans.
+- **2018-10-21T00:00:00**
+  - Father reassures son about his music career.
+  - Son shares phone number.
+  - Father involved in a car accident, assures son of safety.
+  - Concern about consequences of the accident due to no driver's license.
+  - Missed video chat between father and son, ends with mutual expressions of love.

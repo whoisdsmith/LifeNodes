@@ -1,0 +1,116 @@
+# Messages with Rebecca Rodriguez_summary
+
+- **2010-09-25**
+  - Emotional message from Dustin about his love for Everett and regrets for the situation.
+- **2010-09-03**:
+  - Mention of Christy Hampton dating cousin Chris Weiss.
+  - Everett starting school in the afternoons.
+  - Reference to getting mail; asks for confirmation.
+- **2010-05-22**:
+  - Expresses confusion over being despised.
+  - Desire to be friends despite perceived negativity.
+- **2010-03-20**:
+  - Positive interaction with E, playing card game "war."
+  - Acknowledgment of E's intelligence and resemblance to the other person.
+- **2010-01-08**:
+  - Apology for past behavior, drugs, and alcohol.
+  - Desire for distance and self-discovery.
+  - Admission of love and forgiveness.
+- **2011-11-30**
+  - Rebecca suggests combining deposits due to bad weather, discusses upcoming trip details.
+  - Dustin agrees, responds positively.
+- **2011-11-28**
+  - Rebecca checks in on the progress of things.
+- **2011-11-21**
+  - Rebecca expresses financial concerns about Everett's karate classes, suggests shared payment.
+- **2011-11-12**
+  - Rebecca updates Dustin on outstanding payments and plans for the future if caught up.
+- **2011-08-07**
+  - Dustin expresses missing Everett and requests Rebecca's address.
+- **2011-08-03**
+  - Poignant message from Dustin about missing his son and hoping for brighter days.
+- **2011-05-08**
+  - Dustin acknowledges past difficulties, expresses gratitude and hope for a better future.
+- **2011-05-07**
+  - Conversation about New World Order and conspiracies; Dustin shares philosophical perspective.
+- Jul 17, 2014: Rebecca Rodriguez asks to have E for his birthday celebration.
+- Jul 24, 2014: Dustin Smith forgets about family's party, asks about pickup time.
+- Jul 26, 2014: Rebecca inquires about E's well-being and location details.
+- Jul 27, 2014: Dustin provides travel updates, meeting arrangements.
+- Aug 1, 2014: Discussion on school supplies and financial support.
+- Aug 4, 2014: Dustin asks about soccer costs; Rebecca hesitates to burden others.
+- Aug 15, 2014: Dustin praises E, plans financial support for child.
+- Aug 20, 2014: Rebecca shares E's picture, discusses insurance for E.
+- Aug 22, 2014: Rebecca mentions filing for child support and setting schedules after a potential move.
+- **Aug 23, 2014**
+  - Feeling frustrated and angry towards boss, discussing job prospects with Rebecca.
+  - Planning financial contributions for Everett Smith.
+- **Aug 28, 2014**
+  - Continuing financial discussions and mentioning Everett Smith's glasses.
+- **Aug 29, 2014**
+  - Emphasizing the need for child support payments for the move.
+- **Sep 3, 2014**
+  - Humorous interaction about Everett Smith's reaction to warheads.
+- **Sep 17, 2014**
+  - Concerns about Everett Smith's behavior due to the move.
+- **Sep 25, 2014**
+  - Acknowledging extra payments for the move back home.
+- **Oct 4, 2014**
+  - Urgently calling for Dad's attention.
+This summary captures key financial and emotional discussions, interactions with Everett Smith, and the impending move back home, highlighting important dates and concerns.
+- **Oct 5, 2014:** Rebecca asks Dustin when he is coming back, plans for the next day are made.
+- **Oct 6, 2014:** Dustin inquires about Everett's well-being.
+- **Oct 7, 2014:** Pick-up arrangements for Everett are discussed.
+- **Oct 8, 2014:** A conversation about child support and financial concerns takes place.
+- **Oct 9, 2014:** Details about school-related matters for Everett are shared.
+- **Oct 10, 2014:** Clothing and school lunch preparation instructions for Everett are exchanged.
+- **Oct 12, 2014:** Plans for Everett's school preparation are discussed.
+- **Oct 14, 2014:** Further details about Everett's school uniform and lunch are provided.
+- **Oct 15, 2014:** Dustin offers to pay back money for Everett's clothing.
+- **Oct 16, 2014:** Arrangements for Everett's stay after school and instrument queries are made.
+- Oct 17, 2014:
+  - Dustin Smith offers to help with house stuff.
+  - Rebecca Rodriguez agrees to have Everett Smith stay with her.
+- Oct 22, 2014:
+  - Rebecca confirms plans for picking up Everett Smith from school.
+- Oct 25, 2014:
+  - Dustin updates on Everett feeling sick.
+  - Plans to pick up/drop off Everett discussed.
+- Nov 4, 2014:
+  - Last-minute coordination for Everett's school conference.
+- Nov 21, 2014:
+  - Thanksgiving plans discussed, switching arrangements between parents.
+- Dec 5, 2014:
+  - Dustin requests changes due to work schedule; visiting Christmas lights.
+- Dec 2, 2014:
+  - Plans for Everett's schedule and Christmas lights outing.
+- Dec 7, 2014: Dustin asks about dropping off Everett early in the morning.
+- Dec 10, 2014: Rebecca reminds Dustin about Everett's shower schedule and informs about Everett's wrestling.
+- Dec 13, 2014: Rebecca generously tells Dustin not to worry about child support for the month.
+- Dec 16, 2014: Everett receives a 4.0 award at school.
+- Dec 19, 2014: Everett's wrestling clothes are in his backpack for practice.
+- Dec 26, 2014: Rebecca offers Dustin to keep Everett overnight due to sickness.
+- Dec 30, 2014: Plans for picking up Everett and returning his backpack are discussed.
+- Jan 5, 2015: Scheduling pickup for Everett on Thursday.
+- Jan 8, 2015: Dustin to drop off Everett at a different location due to uncertain plans.
+- **Jan 9, 2015**:
+  - Rebecca mentioned Everett Smith hasn't eaten.
+- **Jan 15, 2015**:
+  - Rebecca inquired about wrestling pictures for Everett Smith and pickup times.
+- **Jan 16, 2015**:
+  - Discussion about wrestling timing, pickup, and Everett's decision to stop wrestling.
+- **Mar 16, 2015**:
+  - Rebecca requested Dustin to drop off Everett's belt before school.
+- **Mar 17, 2015**:
+  - Dustin forgot the belt, discussed switching weekends for Everett's care.
+- **Mar 22, 2015**:
+  - Rebecca mentioned needing to contact the consumer of Everett Smith's phone.
+- **01-05-2022**:
+  - **Dustin Smith** is unable to attend but wishes good luck to Everett in his match.
+  - **Rebecca Rodriguez** updates on Everett's performance, winning his first match and losing the next two without getting pinned.
+  - **Rebecca Rodriguez** shares a video with Dustin Smith.
+- **01-08-2022**:
+  - **Rebecca Rodriguez** informs Dustin Smith about Everett's upcoming match against a skilled opponent.
+  - **Rebecca Rodriguez** mentions Everett will wrestle again soon.
+  - **Dustin Smith** shares excitement as Everett wins his match.
+  - **Rebecca Rodriguez** notes that Everett won his match, expressing awe.

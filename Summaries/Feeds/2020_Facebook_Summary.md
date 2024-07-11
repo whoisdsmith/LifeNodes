@@ -1,0 +1,452 @@
+# 2020_Facebook_Summary
+
+- **2020-01-04T14:10:26**
+  - Individual expresses masculinity by drinking white Russian directly from container.
+- **2020-01-09T16:47:21**
+  - Emotionally struggles with life's challenges and mental health issues.
+- **2020-01-13T22:53:15**
+  - Celebrates sobriety after overcoming addiction and credits family for support.
+- **2020-01-18T22:32:39**
+  - Expresses relief and positivity after a relationship ends.
+- **2020-01-20T19:50:26**
+  - Shares concern for father's health after a stroke.
+- **2020-01-24T19:44:28**
+  - Mourns Kobe Bryant's death amidst societal issues.
+- **2020-02-04T17:46:49**
+  - Reflects on estranged relationship with biological father.
+- **2020-02-07T18:49:21**
+  - Celebrates finalization of divorce with negative sentiments towards ex-partner.
+- **2020-02-08T11:44:00**
+  - Condemns child abuse and expresses desire for justice.
+- **2020-08-08**:
+  - Expresses determination not to be swayed by others causing chaos.
+- **2020-08-09**:
+  - Returns to feeling positive after rough days, focusing on good vibes.
+- **2020-08-10**:
+  - Shares interest in gravitational waves and space-related content.
+- **2020-08-11**:
+  - Embraces a positive mindset, emphasizing personal growth and overcoming past pain.
+- **2020-08-13**:
+  - Reflects on personal growth, making mindful choices, and controlling emotions.
+- **2020-08-14**:
+  - Acknowledges past struggles and expresses gratitude for positive changes.
+- **2020-08-15**:
+  - Reflects on battling darkness with inner light and spreading positivity.
+- **2020-08-17**:
+  - Encourages finding peace, filtering negative thoughts, and prioritizing positivity.
+- **2020-08-17**:
+  - Encouraging message about courage during struggles.
+  - Advice on overcoming obstacles and finding happiness.
+- **2020-08-17**:
+  - Gratitude for supportive individuals during tough times.
+- **2020-08-17**:
+  - Acknowledgment of hardworking individuals and appreciation for women's beauty.
+- **2020-08-18**:
+  - Embracing honest communication for connection.
+- **2020-08-18**:
+  - Expressing determination despite life's challenges.
+- **2020-08-19**:
+  - Reflection on personal growth from past heartaches.
+- **2020-08-19**:
+  - Self-reflection on self-worth and importance of self-love.
+- **2020-08-19**:
+  - Humorous post about positivity and maintaining humor.
+- **2020-08-19**:
+  - Light-hearted comment on meditation and humor.
+- **2020-08-20**:
+  - Acknowledging past mistakes and commitment to self-improvement.
+- **2020-08-20**:
+  - Appreciation for kindness and humility in people.
+- **2020-08-20**:
+  - Transformation of losses into opportunities and growth.
+- **2020-08-21**:
+  - Embracing personal growth after 35 years.
+- **2020-08-23**:
+  - Excitement for upcoming events and positive outlook.
+- **2020-08-24**:
+  - Sharing music links and expressing interest in learning.
+- **2020-08-24**:
+  - Reflecting on personal development and self-awareness.
+- **2020-08-25**:
+  - Determination to achieve goals and celebrate success.
+- **2020-08-25**:
+  - Encouraging kindness and positivity in interactions.
+- **2020-08-26**:
+  - Motivation for a great day and promoting kindness in daily life.
+- **2020-08-27**:
+  - Reflective post on learning from past experiences.
+  - Encourages turning negative thoughts into positive action.
+- **2020-08-27**:
+  - Advocates for celebrating others' success and supporting peers.
+  - Emphasizes being a positive influence in others' lives.
+- **2020-08-27**:
+  - Acknowledges a challenging day but expresses gratitude for the struggle.
+- **2020-08-28**:
+  - Mentions "SDE Represent" without further context.
+- **2020-08-28**:
+  - Indicates a change in personal attitude and determination for self-improvement.
+- **2020-08-28**:
+  - Shares thoughts on freedom of speech and respectful communication.
+  - Advocates for open-mindedness and compassion in discussions.
+- **2020-08-28**:
+  - Expresses support for Kyle Rittenhouse and justifies actions against victims.
+- **2020-08-29**:
+  - Addresses the handling of arrests and the perception of victims in recent events.
+- **2020-08-29**:
+  - Comments on potential reactions to political outcomes.
+- **2020-08-29**:
+  - Advocates for positivity and avoiding negativity on social media.
+- **2020-08-29**:
+  - Highlights the need for respectful dialogue despite differing opinions.
+- **2020-08-29**:
+  - Shares a cryptic message targeted at specific recipients.
+- **2020-08-29**:
+  - Criticizes certain groups and their actions during protests.
+- **2020-08-29**:
+  - Mentions "Medic!" without context provided.
+- **2020-08-29**:
+  - Supports Kyle Rittenhouse's actions and deems him a hero.
+- **2020-08-29**:
+  - Comments on the changing times and attitudes towards law enforcement.
+- **2020-08-29**:
+  - Struggles with negative thoughts and demons, aiming to overcome them.
+- **2020-08-29**:
+  - Shifts focus to positive energy and spreading positivity.
+- **2020-08-30**:
+  - Shares a link to a YouTube video without description.
+- **2020-08-30**:
+  - Encourages a physical action, likely in response to the linked video.
+- **2020-08-30**:
+  - Expresses concerns about division in the country and advocates for peaceful resolution.
+- **2020-08-30**:
+  - Expresses concern about the current state of chaos in the country due to BLM and ANTIFA activities.
+  - Advocates for peace and positivity amid turbulent times.
+- **2020-08-31**:
+  - Reflects on the loss of innocence in childhood and the impact of real-life monsters.
+  - Questions the motivations behind destructive behaviors and emphasizes the importance of kindness.
+- **2020-09-01**:
+  - Highlights the need to focus on positive trends and be a better human.
+  - Mentions support for sports teams using their platform for meaningful causes.
+- **2020-09-02**:
+  - Shares personal growth milestones and the importance of cherishing family moments.
+  - Encourages self-improvement, perseverance, and forgiveness in personal growth.
+- **2020-09-03**:
+  - Acknowledges the challenges faced by single parents and offers support and appreciation for their efforts.
+- **2020-09-03**:
+  - Missing Swayze, a legend.
+  - Reflecting on life choices and treatment by others.
+  - Mention of wearing pink outfit and originality by MGK and Megan Fox.
+- **2020-09-04**:
+  - Empowering messages about choosing perspectives and protecting children.
+  - Finding hope in dark places and self-love.
+- **2020-09-05**:
+  - Addressing issues of missing children and unity against racism and politics.
+  - Encouraging kindness and self-love.
+- **2020-09-06**:
+  - Expressing self-reliance and humor.
+  - Preparing for a significant financial opportunity.
+- **2020-09-07**:
+  - Sharing links and holiday wishes.
+- **2020-09-08**:
+  - Advocating to end human trafficking.
+  - Expressing disappointment in missing school pics.
+- **2020-09-09**:
+  - Missing loved ones and motivation for a better life.
+- **2020-09-10**:
+  - Positive outlook and embracing new dreams.
+- **2020-09-11**:
+  - Light-hearted humor and creating art.
+- **2020-09-12**:
+  - Reflection on overcoming struggles and personal growth.
+- **2020-09-13**:
+  - Sharing a music video link.
+- **2020-09-14**:
+  - Emphasizing facts.
+- **2020-09-15**:
+  - Project scale description and mentioning "The Peda Files."
+- **2020-09-16**:
+  - Advocacy against pedophiles and sharing personal experiences.
+- **2020-09-17**:
+  - Supporting a football player and sharing moments of pride.
+- **2020-09-18**:
+  - Sharing location details and music links.
+  - Celebrating personal growth and success.
+- **September 19, 2020**
+  - Enjoying a Chocolate Cherry Stout at Maloney's Irish Pub-Sault Ste. Marie.
+  - Mixed emotions: Feeling happy for others but also expressing frustration.
+  - Sharing videos and challenging life experiences.
+- **September 20-24, 2020**
+  - Sharing news articles, views from home, and expressing love for family.
+  - Reflecting on personal growth, hard work, and determination.
+  - Encouraging positivity and self-improvement.
+  - Sharing music and humorous moments with roommates.
+- **September 25-30, 2020**
+  - Continuing to share motivational content and personal reflections.
+  - Connecting with friends, enjoying favorite places, and seeking specific services.
+  - Expressing gratitude and resilience despite challenges.
+  - Reflecting on past experiences and encouraging self-belief.
+- **2020-09-30**:
+  - Feeling bitter but found a way to stay winning.
+  - Enjoying time with Bobby Hurley.
+- **2020-10-01**:
+  - Reflecting on life changes and cutting out negative people.
+  - Moving back to Soo, seeking positivity.
+- **2020-10-02**:
+  - Focusing on personal growth and inspiring others.
+  - Enjoying time at Buffalo Wild Wings.
+  - Reflecting on laughter and positivity on social media.
+- **2020-10-03**:
+  - Embracing solitude and a positive mindset.
+- **2020-10-04**:
+  - Affirming positive life and enjoying a day out.
+- **2020-10-05**:
+  - Sharing music and enjoying a Long Island Iced Tea.
+  - Feeling the need for positive vibes.
+- **2020-10-06**:
+  - Ready to refocus and embrace a beautiful day.
+- **2020-10-07**:
+  - Sharing music and humorous content.
+- **2020-10-08**:
+  - Enjoying a perfect day and a surprise visit home.
+- **2020-10-09**:
+  - Sharing a moment with a loved one.
+- **2020-10-10**:
+  - Feeling successful and grateful for life.
+- **2020-10-11**:
+  - Staying at a hotel and enjoying the surroundings.
+- **2020-10-12**:
+  - Overcoming challenges and feeling uneasy in a place.
+  - Spreading positivity and self-worth.
+- **2020-10-13**:
+  - Sharing humor and spreading positivity despite challenges.
+- **2020-10-14**:
+  - Expressing gratitude for life and urging connection with loved ones.
+- **2020-10-15**:
+  - Enjoying the first snow of the season.
+- **2020-10-16**:
+  - Sharing music and humorous content.
+- **2 years ago tonight:** Reflecting on missing a car but not the life associated with it.
+- **2020-10-18:** Weather app interactions noted humorously; irony across the street from the hotel appreciated.
+- **2020-10-18:** Expressed strong agreement with a statement.
+- **2020-10-18:** Shared a YouTube link.
+- **2020-10-20:** Mentioned a long day in a hotel.
+- **2020-10-20:** Enjoyed a date night with Bobby Hurley.
+- **2020-10-23:** Attended a comedy night.
+- **2020-10-23:** Delighted by the sunshine.
+- **2020-10-24:** Shared a Tumblr link.
+- **2020-10-24:** Shared another YouTube link.
+- **2020-10-25:** Commented on not being allowed in public.
+- **2020-10-25:** Expressed excitement about the Lions.
+- **2020-10-25:** Referenced Pennywise.
+- **2020-10-25:** Shared a Google Photos link.
+- **2020-10-28:** Shared a YouTube link.
+- **2020-10-29:** Wished everyone a happy Friday.
+- **2020-10-30:** Shared a YouTube link.
+- **2020-10-30:** Shared another YouTube link.
+- **2020-10-31:** Shared a YouTube link.
+- **2020-10-31:** Declared being back on #truth.
+- **2020-11-01:** Shared a relatable sentiment.
+- **2020-11-01:** Expressed support for Trump in 2020.
+- **2020-11-03:** Affirmed love regardless of differing political views.
+- **2020-11-03:** Noted facing challenges but maintaining a positive outlook.
+- **2020-11-03:** Shared a controversial opinion.
+- **2020-11-04:** Had lunch with a favorite person.
+- **2020-11-06:** Summarized a night including Applebee's and a jam session.
+- **2020-11-07:** Questioned the relevance of Black Lives Matter.
+- **2020-11-07:** Shared thoughts about a potential civil war.
+- **2020-11-07:** Contemplated humanity and God's disappointment.
+- **2020-11-07:** Anticipated a great day.
+- **2020-11-08:** Felt positive about the day.
+- **2020-11-08:** Shared a Vimeo link.
+- **2020-11-08:** Asked a question about haters.
+- **2020-11-09:** Enjoyed fun in the sun.
+- **2020-11-09:** Expressed positivity and a smiling disposition.
+- **2020-11-09:** Wished Happy Veterans Day.
+- **2020-11-11:** Shared a YouTube link.
+- **2020-11-11:** Indifferent to potential future challenges.
+- **2020-11-15:** Expressed personal choice regarding vaccines.
+- **2020-11-15:** Reflected on finding what was sought after.
+- **2020-11-16:** Celebrated buying a first car at 35.
+- **2020-11-16:** Expressed gratitude for support during tough times.
+- **2020-11-18:** Shared a YouTube link.
+- **2020-11-19:** Left something for others to ponder.
+- **2020-11-20:** Shared a Vimeo link.
+- **2020-11-20:** Appreciated the sunrise.
+- **2020-11-20:** Shared a link related to CBS.
+- **2020-11-20:** Shared a video link.
+- **2020-11-20:** Shared another YouTube link.
+- **2020-11-20:** Shared a news link.
+- **2020-11-22:** Shared a YouTube link.
+- **2020-11-22:** Shared a photo related to SpaceX.
+- **2020-11-23:** Shared a photo of the moon with Jupiter.
+- **2020-11-23:** Reflected on past events.
+- **2020-11-25:** Found something legitimate.
+- **2020-11-25:** Picked someone up, humorously mentioned they are now driving back.
+- **2020-11-26:** Thankful for everything this year.
+- **2020-11-26:** Celebrated getting divorced.
+- **2020-11-26:** Nostalgic about a book.
+- **2020-11-28:** Enjoyed possum patties.
+- **2020-11-28:** Shared an Imgur link.
+- **2020-11-28:** Noted going up like a crescendo.
+- **2020-12-01:** Shared a YouTube link.
+- **2020-12-01:** Shared another YouTube link.
+- **2020-12-01:** Shared yet another YouTube link.
+- **2020-12-02:** Shared a YouTube link.
+- **2020-12-02:** Shared another YouTube link.
+- **2020-12-02:** Shared another YouTube link.
+- **2020-12-02:** Reflecting on personal growth and resilience.
+- **2020-12-03:** Had a good day with no depression or drama.
+- **2020-12-05:** Appreciated 2020 despite global sentiment.
+- **2020-12-05:** Expressed excitement about a show.
+- **2020-12-06:** Thankful for binge-watching and a nap.
+- **2020-12-08:** Tagged someone in a post.
+- **2020-12-08:** Traveling to Illinois for work.
+- **2020-12-08:** Shared a Reddit link.
+- **2020-12-08:** Mentioned making bunk beds for more space.
+- **2020-12-09:** Enjoyed a favorite part of the day.
+- **2020-12-10:** Shared a YouTube link.
+- **2020-12-10:** Updated profile pictures.
+- **2020-12-10:** Shared an IMDb video link.
+- **2020-12-11:** Living the best life.
+- **2020-12-13:** Shared a post about realness.
+- **2020-12-13:** Shared a post with the hashtag #truth.
+- **2020-12-14:** Shared a New York Times link.
+- **2020-12-15:** Shared a YouTube link.
+- **2020-12-16T07:40:32**
+  - Positive outlook on life, feeling that things are turning around favorably.
+- **2020-12-17T22:40:32**
+  - Shock and disbelief at SolarWinds system administrator password being "solarwinds123".
+- **2020-12-20T17:39:42**
+  - Expressing a life goal.
+- **2020-12-21T20:54:17**
+  - Aggressive post targeting Nancy Pelosi.
+- **2020-12-24T23:34:32**
+  - Wishing everyone a Merry Christmas.
+- **2020-12-31T04:49:50**
+  - Reflecting positively on achievements in 2020 despite challenges, advocating for a change in perspective.
+- 2020-02-09: A person expresses frustration and desire to escape a toxic situation.
+- 2020-02-09: Various posts with links and light-hearted comments.
+- 2020-02-09: Mention of a concept album about the dark side of human nature.
+- 2020-02-13: Posts about Valentine's Day and negative sentiments towards it.
+- 2020-02-14: Declaration of self-focus and positivity, rejecting negativity.
+- 2020-02-16: Mention of seeing loved ones.
+- 2020-02-19: Announcement of being two months drug-free and encouraging others.
+- 2020-02-26: Humorous posts about daily life and food.
+- 2020-03-09: Sharing of music videos.
+- 2020-03-19: A playful post mentioning individuals by name.
+- 20-03-19T16:10:21: Individual expresses gratitude and positivity on their birthday during challenging times.
+- 2020-03-22T09:17:57: Quote from Batman about heroism and villainy.
+- 2020-03-26T02:26:16: Mysterious post asking "Why so serious?"
+- 2020-03-26T10:07:09: Playful post saying "Nom nom nom."
+- 2020-03-30T05:23:48: Reference to having multiple problems humorously.
+- 2020-03-30T05:23:48: Reference to the song "Bonnie and Clyde."
+- 2020-04-03T01:54:05: Enjoying a campfire with a friend.
+- 2020-04-05T11:08:02: Finding positives in quarantine.
+- 2020-04-10T16:38:40: Sharing a humorous link.
+- 2020-04-18T18:30:20: Mentioning "Fireball."
+- 2020-04-21T00:19:06: Spending time with a friend named Everett Smith.
+- 2020-04-24T03:46:46: Wishing to live a life outside again.
+- 2020-04-27T02:04:59: Reflecting on changing perspectives and gratitude.
+- 2020-04-29T12:22:04: Sharing something heartfelt.
+- 2020-05-04T19:53:17: Celebrating a brother's birthday.
+- 2020-05-16T12:46:15: Linking financial stability to life improvement.
+- 2020-05-18T05:10:08: Expressing a desire for sunny weather.
+- **May 21, 2020**:
+  - Emotion: Amusement ("Lmao").
+- **May 22, 2020**:
+  - Emotion: Unclear, possibly humorous ("Im dead").
+  - Interaction: Reference to looking like Thor from Avengers Endgame.
+- **May 23, 2020**:
+  - Emotion: Assertive ("Fight me bitch").
+  - Interaction: Shared YouTube links.
+- **May 24, 2020**:
+  - Emotion: Contentment ("Life is good bruh").
+- **May 28, 2020**:
+  - Interaction: Witnessed a humorous event on the road.
+- **May 29, 2020**:
+  - Interaction: Reflective post on family and gratitude.
+- **May 30, 2020**:
+  - Interaction: Shared excitement about NASA and SpaceX launch.
+- **May 31, 2020**:
+  - Emotion: Acknowledging struggles and showing appreciation.
+- **June 2, 2020**:
+  - Emotion: Reflective ("2/3 of my heart right here").
+- **2020-06-03**: Shared a message about empathy and love towards others.
+- **2020-06-04**: Built a Hackintosh due to iPhone syncing issues.
+- **2020-06-10**: Expressing frustration with mask-wearing habits in cars.
+- **2020-06-10**: Mentioned watching "13 Reasons Why."
+- **2020-06-10**: Shared a message about overcoming depression.
+- **2020-06-11**: Tried to resolve UIA stop payment indicator issue.
+- **2020-06-20**: Questioned the non-essential status of Bath & Body Works.
+- **2020-06-22**: Bought a book humorously acknowledging personal flaws.
+- **2020-06-22**: Mentioned a person in a humorous context.
+- **2020-06-24**: Proudly talked about the positive qualities of their son.
+- **2020-06-24**:
+  - Best photo shoot.
+  - Floating through space.
+  - Eating hot wings.
+  - Looking for positives in life.
+  - Seeking validation on Facebook.
+  - Feeling good about oneself.
+- **2020-06-25**:
+  - Order for a new face mask.
+  - Feeling bored.
+- **2020-06-27**:
+  - Making family members facepalm.
+  - Enjoying a funny moment.
+- **2020-06-28**:
+  - Pre-pool party.
+  - Frustration over COVID-19.
+  - Acknowledging single parents and individuals prioritizing self-healing.
+- **2020-06-29**:
+  - Reflecting on personal growth and new music project.
+- **2020-06-30**:
+  - Recognizing toxic relationship patterns and traits.
+- **2020-07-01**:
+  - Sharing a news article.
+- **2020-07-02**:
+  - Reflecting on fate and sharing music covers.
+- **2020-07-03**:
+  - Expressing feelings and sharing music links.
+- **2020-07-04**:
+  - Empowering message.
+- **2020-07-04**: Bailey expresses excitement and a carefree attitude about a night out.
+- **2020-07-05**: Bailey shares various YouTube links and a reflective quote.
+- **2020-07-06**: Bailey talks about growing hair out and changing lifestyle.
+- **2020-07-07**: Bailey shares thoughts on peace, experiences a brownout, and posts humorously.
+- **2020-07-08**: Bailey mentions feeling off, shares relationship status, and posts more YouTube links.
+- **2020-07-09**: Bailey reflects on a tough day, expresses political views, and mentions missing someone.
+- **2020-07-10**: Bailey shares a humorous post and a political statement.
+- **2020-07-11**: Bailey mentions family time, cuddling, and reflects on the day.
+- **2020-07-12**: Bailey shares personal experiences, opinions, and humorous posts.
+- **2020-07-13**: Bailey addresses misinformation, family challenges, and a mix of opinions.
+- **2020-07-13**:
+  - Two girls try to stab each other with a dust mop; parent intervenes.
+  - Parent takes girls for a drive, dances with them, gets food, and returns home to a positive atmosphere.
+- **2020-07-14**:
+  - Posts various links and expresses frustration over spam notifications and child abduction.
+  - Shares personal achievements and emphasizes the importance of continuous improvement in parenting.
+- **2020-07-15**:
+  - Expresses strong opinions on dealing with rapists and molesters.
+- **2020-07-16**:
+  - Posts about depression and mentions the impact of recent events on personal perceptions.
+- **2020-07-17**:
+  - Comments humorously on wearing masks and expresses approval for a particular movement.
+- **2020-07-18**:
+  - Shares experiences of getting free food from Subway and posts various random content.
+- **2020-07-19**:
+  - Shares news articles and speeches while expressing emotions about not getting involved in feelings.
+- **2020-07-20**:
+  - Asks for movie recommendations, expresses dislike for a political figure, and shares nostalgic memories.
+- **2020-07-21**:
+  - Shares interests in skydiving and Marvel's The Punisher.
+- **2020-07-22**:
+  - Mentions a lunch outing and reflects on past relationships.
+- **2020-07-22**: Ignored red flags and internal trauma, took responsibility for own circumstances.
+- **2020-07-23**: Acknowledged the need for mental health support and self-improvement.
+- **2020-07-26**: Expressed interest in trolling on Twitter, emphasized peaceful protesting.
+- **2020-07-27**: Called for spreading love, avoiding hate, and posting positive content.
+- **2020-07-31**: Excited about new job opportunity at Sinclair Designs and Engineering.
+- **2020-08-03**: Discovered government UFO documents leaked by Tom DeLonge, expressed hero admiration.
+- **2020-08-06**: Created a character named ASTRONAUDIA to bring light to a dark world.
+- **2020-08-07**: Stood against negativity with "Not today, Satan" message.

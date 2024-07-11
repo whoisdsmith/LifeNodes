@@ -1,0 +1,375 @@
+# Dustin and Stevie Linnabarys Relationship
+
+---
+
+- Dustin inquires about picking up the girls from Heather; discussion about arrangements and contacting each other for emergencies.
+- Concerns about Tyler's behavior and being sick.
+- Sharing of digital camera pictures and archiving photos.
+- Emotional conversation about relationships and past events.
+- Apologies for actions and attempts at humor.
+- Discussion about family conflicts and potential job issues.
+- Reference to a possible influence in someone getting fired.
+- Expressions of missing each other and reflections on past dynamics.
+- Candid conversation about personal growth and understanding each other's perspectives.
+- Acknowledgment of emotional struggles and complexities in relationships.
+- Mention of past misunderstandings and attempts to communicate effectively.
+- Mutual understanding and reflections on personal growth and challenges.
+- Poetic exchange discussing understanding each other's struggles in deciphering life's challenges
+- Conversation reveals emotional struggles and fears of loneliness and homelessness
+- Discussion on past hurts and unresolved feelings in a complex relationship
+- Advice on healing before moving on and making positive changes
+- Humorous moments interspersed in the conversation
+- Concerns about work, communication challenges, and family dynamics discussed
+- Nostalgic reflections on past memories and attempts at humor to lighten the mood
+- Relationship dynamics and personal growth highlighted through dialogue and exchanges
+- A heated confrontation occurred where hurtful words were exchanged, triggering major PTSD.
+- Mention of potential job repercussions causing concern and speculation about a colleague being fired.
+- Emotional messages expressing longing, regret, and attempts to communicate.
+- Reference to past misunderstandings and efforts to understand each other.
+- Themes of self-reflection, emotional struggles, and trying to navigate difficult circumstances.
+- Expressions of care, desire to support, and frustration over recurring patterns in the relationship.
+- Confusion, anger, and struggles related to fear of loneliness and past trauma.
+- Discussion on the need for personal growth and breaking negative cycles.
+- Humorous moments amidst serious conversations.
+- The importance of healing before moving on and making positive changes.
+- Encouragement to develop a plan for personal growth and address underlying issues.
+- Emotional conversations and interactions between "You" and "Stevie Marie" about their relationship and children
+- "You" expressing regret and a desire to rebuild their life without each other
+- Communication about child care responsibilities and car seat arrangements
+- "Stevie Marie" mentioning plans to get her own car seats
+- Various timestamps and dates indicating significant events and conversations in the relationship
+- Conflict escalates between the two parties regarding custody arrangements and personal interactions.
+- Tension and anger are palpable throughout the conversation, with insults and threats exchanged.
+- Stevie Marie questions the other party's parenting decisions and reliability, leading to heated arguments.
+- The conversation includes discussions about child support, custody battles, and personal attacks.
+- Despite the contentious exchange, the conversation also touches on issues like illness and movie choices for the child.
+- The other party expresses a desire to improve themselves, highlighting their journey towards being drug-free and their commitment to bettering their life independently.
+- The exchange showcases a mix of emotional turmoil, resentment, and attempts at self-improvement amidst ongoing conflicts.
+- Parental communication involves conflict regarding children's exposure to fighting and drug use
+- Request for assistance in transportation for children to school and emotional expressions of missing and loving the children
+- Discussions about drug addiction recovery and resentment towards the ex-spouse
+- Negotiations and disagreements about custody arrangements, school decisions, and car seat responsibilities
+- Accusations, insults, and blame-shifting between parents, especially regarding a new partner's influence
+- Threats, ultimatums, and lack of cooperation leading to escalating tensions and legal warnings
+- Me expresses frustration and anger towards someone regarding car seats and custody arrangements.
+- Me faces a family emergency with their father's health, leading to stress and emotional strain.
+- Stevie Marie helps with childcare, but there are conflicts and miscommunications.
+- Me and Stevie Marie have heated exchanges regarding custody, divorce, and parenting decisions.
+- Financial details and divorce paperwork discussions between Me and Stevie Marie.
+- Me expresses concerns about the care facility for their father.
+- Me and Stevie Marie coordinate childcare arrangements, with occasional tensions and frustrations.
+- Intense communication between Me and Stevie Marie regarding shared responsibilities and custody of children
+- Negotiations on transportation arrangements, gas money, and drop-off times
+- Threats, accusations, and emotional outbursts leading to strained interactions
+- Legal threats, mentions of divorce proceedings and court involvement
+- Me expressing anger, frustration, and a desire for independence from Stevie
+- Me confronting Stevie about her relationship choices and loyalty to family members
+- Me asserting independence, seeking legal advice, and focusing on personal growth and achievements
+- Relationship developments between Me, Stevie, and other individuals
+- Me achieving personal milestones, including getting clean from meth and obtaining a driver's license
+- Changes in Stevie's relationships, including breakups and reconciliations
+- Stevie and Tyler got back together but broke up shortly after
+- Weather conditions fluctuated throughout the day
+- Emotional message expressing hurt and resentment towards Tyler
+- Communication through messages and screenshots
+- Conversations indicate a mix of affection and frustration between Stevie and the other party
+- Plans for a wedding and discussions about uninviting guests
+- Tension and miscommunication evident in the interactions
+- Conversation between two individuals, Stevie Marie Smith and an unknown person, regarding various topics and events
+- Tense moments and arguments about buying items, caring for a child, and phone usage
+- Reference to a tornado watch and personal activities
+- Stevie expressing frustration and making plans
+- Apologies for past behavior and communication issues
+- Mention of a shopping experience and household issues
+- Emotional discussions about a friend named Travis and writing him a letter
+- Plans for the future and sharing feelings of responsibility and love
+- Evaluation feedback received, improvements suggested: speed up productivity and attendance
+- $1 raise given
+- Conversation with Stevie Marie Smith regarding plans and frustrations
+- Excited about upcoming wedding
+- Discussion about purchasing a blue ring
+- Financial concerns and support for each other
+- Issues with Travis and rent
+- Plans to see Shaun and visit Verizon
+- Health concerns expressed by Stevie Marie Smith
+- Support and well wishes exchanged
+- PM conversation between Stevie Marie Smith and another person regarding a conversation with Trav
+- Stevie expresses frustration about being ignored while making dinner
+- Tension escalates as Stevie feels unappreciated and accuses the other person of not caring
+- Discussion about wedding plans and frustrations with each other's behavior
+- Issues about money and communication arise, leading to arguments
+- Doubts about the relationship and threats of canceling the wedding
+- Mixed emotions and conflicts continue as the wedding day approaches
+- Expressions of love amidst disagreements and misunderstandings
+- Stevie Marie Smith asks for water, expresses reluctance to get it, mentions taking Lydia
+- Stevie Marie Smith mentions food orders
+- Interaction about bathroom use leads to an argument about marriage and intimacy issues
+- Stevie Marie Smith accuses partner of not wanting to be married and lack of intimacy
+- Argument escalates to accusations and insults
+- Mention of medication and sleeping arrangements
+- Dispute about intimacy and self-pleasure
+- Stevie Marie Smith expresses frustration and unhappiness in marriage
+- Discussion about chores and plans for intimacy
+- Some vulgar and offensive language used throughout the conversation
+- Stevie Marie Smith interacts with someone through text messages
+- Emotional ups and downs observed in the conversation
+- Discussion about work, plans, and family
+- Tensions arise regarding bills and communication
+- Apologies and expressions of love shared
+- Concern for a sick child
+- Plans for a date night mentioned
+- Various activities and daily interactions documented
+- Stevie Marie Smith inquires about the recipient's availability and expresses interest in shopping.
+- They discuss plans to pick up someone named Everett and encounter a scheduling mix-up.
+- Concern for safety due to accidents is expressed, along with affectionate messages.
+- Conversations range from mundane activities to intimate moments and frustrations.
+- The couple discusses household responsibilities and family dynamics.
+- Playful banter and endearing exchanges continue throughout the conversations.
+- Plans for the day and changes in work schedules are mentioned.
+- There's a discussion about changing names on identification documents.
+- Arrangements for a visitor named Everett are mentioned, along with work schedule adjustments.
+- Stevie Marie expresses frustration at being blocked on Facebook and Dustin talking to someone else
+- Tensions rise as Stevie Marie questions Dustin's loyalty and mentions Becca, leading to arguments
+- Stevie Marie has a rough birthday and feels ignored by Dustin, leading to emotional outbursts
+- Issues with electronics cause further stress between the couple
+- Stevie Marie expresses doubts about their relationship and Dustin's commitment
+- Work and financial discussions indicate strain and uncertainty in their partnership
+- Stevie Marie expresses love but also hints at underlying concerns and insecurities in the relationship
+- Stevie Marie Smith expresses love and concern for the other person, offering rides and discussing their day.
+- They have a conversation about priorities and communication, with some emotional tension and apologies.
+- Stevie Marie Smith shares frustrations about family and financial issues, seeking support and understanding.
+- The exchange includes expressions of love, some humor, and discussions about daily activities and plans.
+- There are moments of frustration and annoyance, but overall, the interactions show care and affection between the individuals.
+- Stevie Marie Smith expresses being busy and mentions Mike Holbrook, commenting on his appearance.
+- Stevie Marie Smith discusses family resemblances and expresses love towards the recipient.
+- Concerns about feeling sick, potential withdrawal, and plans to leave at 2:30 p.m. are shared.
+- Tensions rise as Stevie Marie Smith expresses frustration about spending time together and household dynamics.
+- The conversation escalates with mentions of going out, disagreements, and restrictions on drinking at home.
+- The exchange ends with a request for pay stubs and a sarcastic comment about the day, leading to further discussions about sleep arrangements and past events.
+- Stevie Marie Smith expresses frustration over phone plan issues and feeling controlled by her partner.
+- Tensions escalate with accusations and emotional outbursts about trust and communication.
+- Financial concerns and arrangements for bills are discussed.
+- Stevie Marie Smith mentions struggles with depression and anxiety, expressing a breaking point in the relationship.
+- A mix of anger, financial stress, and emotional turmoil is evident throughout the interactions.
+- March 31, 2017:
+  - Stevie Marie Smith expresses feeling sick and frustrated.
+  - Interaction about grabbing Lydia's phone.
+- April 1, 2017:
+  - Morning greetings exchanged.
+  - Playful interaction about waking up Lydia.
+  - Affectionate messages exchanged.
+- April 2, 2017:
+  - Stevie Marie Smith expresses frustration and confusion about a situation involving Dustin.
+  - Apology and expression of missing the recipient in the evening.
+  - Tension and miscommunication arise, but they express love for each other.
+- April 3, 2017:
+  - Concern about falling asleep while driving.
+- April 4, 2017:
+  - Apologetic and self-deprecating messages from Stevie Marie Smith.
+  - Expressions of exhaustion and lack of sleep.
+  - Positive interaction about hair compliment.
+- Stevie expresses annoyance at the thought of men commenting on her posts.
+- Stevie mentions trying to nap before her partner gets home and expresses love.
+- Stevie reminds her partner to ensure their child showers and changes clothes.
+- Stevie questions if her partner is mad at her and feels neglected.
+- Stevie expresses frustration over her partner's choice to spend time with friends instead of her.
+- Stevie expresses feeling unappreciated and expresses a desire to move out.
+- Stevie discusses feeling unsupported and unloved, contemplating moving in with her mother.
+- Stevie shares work-related stress and feelings of being overwhelmed and unappreciated at home.
+- Stevie expresses frustration over her partner prioritizing family over her and feeling unvalued.
+- Stevie expresses a desire to be with her partner but struggles with the current situation.
+- Stevie expresses a lack of support and feeling isolated and distressed.
+- Stevie and her partner discuss relationship issues and express feelings of inadequacy and neglect.
+- Stevie expresses a desire to make her partner happy but feels unappreciated.
+- Stevie and her partner discuss communication issues and differing expectations in the relationship.
+- Conflict arises regarding spending time with family vs. partner
+- Argument over family dynamics and living arrangements
+- Tensions escalate with accusations and frustration
+- Work-related stress and insecurity discussed
+- Struggles with communication and emotional connection post-marriage
+- Desire for relief through substances
+- Misunderstandings and jealousy emerge
+- Communication breakdown leads to frustration and confusion
+- Stevie Marie Smith expresses love and frustration in conversations with +12698329748
+- Stevie Marie Smith apologizes and appreciates +12698329748, seeking understanding and love
+- Tensions rise as +12698329748 feels unappreciated and disconnected, leading to arguments and emotional outbursts
+- Confessions of deep love and struggles within the marriage are shared, highlighting the desire for understanding and appreciation
+- Both parties express love and commitment while acknowledging challenges and seeking to find common ground
+- Stevie expresses feeling unloved and unappreciated in a conversation filled with misunderstandings and emotional turmoil.
+- Both parties accuse each other of neglect and lack of care in the relationship.
+- Stevie expresses frustration over perceived lack of effort and understanding from the other person.
+- The conversation escalates with accusations and a sense of emotional exhaustion.
+- 20170409: Intense emotional interaction regarding chest pain and anxiety, concern for well-being.
+- 20170410: Conversations about daily activities, work schedules, and food preferences.
+- 20170410: Playful and intimate exchanges expressing love and desire for physical intimacy.
+- 20170410: Tension arises on spending habits, leading to arguments and stress related to finances.
+- 20170411: Continued arguments about money management, expressing stress and anxiety in communication.
+- Stevie Marie Smith discusses financial concerns and plans for saving gas
+- Stevie Marie expresses feelings of being sorry, stressed, and overwhelmed
+- Stevie Marie and her partner plan a date night to keep the relationship strong
+- Interaction about spending quality time together and making plans
+- Stevie Marie expresses frustration and disappointment for feeling ignored and not prioritized
+- Stevie Marie and her partner have a conflict regarding attention and communication
+- Stevie Marie feels upset and neglected, leading to an emotional outburst
+- Stevie Marie expresses hurt over feeling ignored and not considered important
+- Stevie Marie reflects on the lack of attention and emotional support
+- Stevie Marie expresses feelings of being unappreciated and unheard
+- Stevie Marie and her partner have a conflict over attention and priorities, leading to emotional distress and arguments
+- Stevie expresses frustration about perceived neglect and lack of understanding from the recipient
+- Stevie feels upset, unappreciated, and ignored, expressing thoughts of self-harm and worthlessness
+- Recipient seems detached, focused on socializing and drinking, causing emotional distress to Stevie
+- Stevie accuses the recipient of prioritizing drinking and social life over their relationship
+- Stevie questions the sincerity of the recipient's apologies and expresses feelings of being unimportant
+- Tensions escalate with accusations of neglect, lack of remorse, and emotional turmoil on both sides
+- Stevie expresses disappointment in the recipient's actions and decision to prioritize socializing over their relationship
+- Stevie Marie Smith expresses frustration and feeling ignored by her partner.
+- Stevie contemplates staying with her mother due to feeling unloved and neglected.
+- Communication issues lead to arguments and feelings of being unappreciated.
+- Stevie seeks attention and love from her partner but feels misunderstood.
+- Stevie decides to give space and stay with her mom temporarily.
+- Stevie expresses a desire to maintain their relationship despite challenges.
+- Stevie expresses frustration over lack of compromise and attention in the relationship
+- Discussion escalates to considering divorce and accusations of partying and ignoring each other
+- Stevie emphasizes feeling unappreciated and being tired of one-sided dynamics
+- The conversation becomes circular, with Stevie feeling unheard and unvalued
+- Stevie contemplates leaving but also expresses a desire to work on the relationship and not give up
+- Stevie Marie Smith expresses frustration and feeling ignored by the recipient
+- Stevie Marie Smith mentions feeling unwanted and unappreciated
+- Stevie Marie Smith expresses suicidal thoughts and feelings of worthlessness
+- Tension and miscommunication between Stevie Marie Smith and the recipient
+- Stevie Marie Smith expresses love and regret, indicating a desire for understanding and connection
+- Stevie Marie Smith hints at self-harm and expresses a wish for a better relationship or someone else to confide in
+- Stevie Marie Smith eventually expresses gratitude and love, but still feels unfulfilled and depressed.
+- Stevie Marie Smith expresses feelings of sadness and self-blame, apologizing for past behavior and expressing a desire to say goodbye.
+- There are mentions of wanting a hug for comfort and struggling with mental health issues.
+- Tensions arise regarding child custody arrangements between Stevie and Dustin Smith.
+- Dustin expresses frustration over Stevie not following through on commitments, leading to a heated exchange.
+- The messages include reflections on past relationships and emotional struggles.
+- Stevie and Dustin discuss custody arrangements and issues with pick-up times for their children, leading to escalating tensions and disagreements.
+- Stevie expresses frustration at Dustin's behavior, including accusations of drinking and irresponsibility.
+- Dustin mentions child support payments and his reluctance to continue helping Stevie.
+- The conversation becomes heated with accusations and ultimatums about parenting responsibilities.
+- Stevie tests positive for COVID-19, adding a new layer of concern to their interactions.
+- Additional messages show discussions about children's health, custody arrangements, and holiday plans.
+- Overall, the communication between Stevie and Dustin is characterized by conflict, miscommunication, and unresolved issues.
+
+- Stevie adds Dustin as a friend on Facebook, marking the beginning of their interactions.
+- They express bitterness and loneliness but find solace in each other's company.
+- Stevie reflects on wanting a family and feeling happy and appreciated in her current relationship.
+- The couple enjoys holidays, intimate moments, and mundane activities together.
+- They share playful and intimate moments, support each other, and work on projects together.
+- Stevie expresses love and appreciation for Dustin, highlighting their strong bond.
+- They anticipate parenthood and share ordinary yet meaningful moments in their daily lives.
+- Despite challenges and past struggles, they find happiness, love, and support in each other.
+- The entries showcase their evolving relationship, love, and commitment to each other.
+- Drumset used on Paramore's Riot album; all drum parts are owned by the author.
+- Excited to watch Clash of the Titans 3D with Stevie Marie Linnabary.
+- Date night at Applebee's and watching Wrath of the Titans 3D; disappointed with the sequel.
+- Enjoyed watching The Time Traveler's Wife more than Wrath of the Titans.
+- Encouraging quote about navigating through darkness with Stevie Marie Linnabary's agreement.
+- Concern for girlfriend's rough pregnancy but happy about upcoming ultrasound.
+- Humorous mention of "12 hr shits" (shifts) and sharing personal moments with Stevie Marie Linnabary.
+- Reflecting on personal growth and destiny; song dedicated to Stevie Marie Linnabary.
+- Apology for past reckless behavior.
+- Expressing love and dedication to Stevie Marie Linnabary through challenges and losses.
+- Emotional reflections on love and appreciation for Stevie Marie Linnabary.
+- Touching messages exchanged with Stevie Marie Linnabary about their relationship and future.
+- Looking forward to being Mr. and Mrs. Smith in the upcoming year.
+- A person expresses love and apologizes for hurtful words, emphasizing their commitment to their partner and family.
+- Stevie reflects on struggles in the relationship, expressing love and fear of losing the partner.
+- Various mundane activities and emotional ups and downs in daily life are shared, including frustrations, financial concerns, and moments of happiness.
+- Stevie and Dustin share gifts and gestures of love on special occasions like Father's Day.
+- Dustin expresses financial worries and emotional struggles, feeling stuck and lacking motivation for change in the relationship.
+- Tensions arise regarding past relationships and communication with friends, causing feelings of isolation and frustration.
+- Day started great with new paper 3D cutouts, but turned sour when Stevie brought up past issues
+- Feelings of worthlessness and frustration expressed
+- Various activities throughout days, including birthday party, gaming, and moving into a new house
+- Concerns about relationship dynamics with Stevie and desire for happiness
+- Personal reflections on memories and time travel
+- Updates on daily activities, family interactions, and work-related tasks
+- Emotional moments around baby Jensen's birthday and family time with Lydia
+- Relationship tensions and disagreements with Stevie over marriage plans
+- Mixed emotions, tiredness, and motivation struggles reflected in daily routines
+- Employee expresses frustration with boss Ricky Dicky's incompetence and lack of compassion
+- Weekend off provided some relief
+- Challenges with fussy baby Lydia and feelings of disappointment in personal productivity
+- Various activities with family and work-related tasks
+- Emotional struggles, including mood swings and self-doubt
+- Positive moments such as watching movies with family and feeling mentally better on some days
+- Conflict within the family, financial stress, and arguments with partner Stevie
+- Moments of bonding and love with family members, particularly with children Everett and Lydia
+- Work-related stress, health concerns for daughter Lydia, and personal struggles like anger issues
+- Father's Day celebration and reflection on family dynamics
+- Tragic mention of lost child Jensen and a disturbing incident involving anger towards Stevie
+- Stevie got irritated leading to a window shattering incident with intense anger and destructive tendencies.
+- A tornado warning caused chaos in the area.
+- Celebrated 953 days together with Stevie on social media.
+- Reflecting on lost self-identity and upcoming final season of "Sons of Anarchy."
+- Personal struggles, work shifts, family celebrations, and relationship challenges with Stevie.
+- Emotional turmoil, suicidal hints, and relationship rebuilding efforts.
+- Shared moments with children and family events like birthdays and holidays.
+- Physical health concerns and memory issues causing worry.
+- Social media updates, music interests, and humorous interactions with Stevie and Lydia.
+- Earthquake experience and light-hearted responses to natural events.
+- Dustin and Stevie experience a hectic moving day but efficiently handle packing and loading.
+- They joke about starting a moving company named "Fuck Moving."
+- Various location updates show their movements between home and mom's house.
+- An earthquake occurs, leading to humorous comments and discussions on technology.
+- Dustin injures his finger, requiring a hospital visit and surgery, but maintains humor.
+- Family moments, interactions, and activities are shared, including time spent at the ER and hospital.
+- The couple reminisces about past memories and shares affectionate messages.
+- Despite challenges, they express gratitude and love for each other and their family.
+- User expresses enjoyment and gratitude for having time to play a game.
+- User shares strong emotional reactions to music videos.
+- User tracks daily productivity, rest, mood, and coffee intake.
+- User expresses gratitude for family and highlights a health update.
+- User shares updates on health, activities, and purchases.
+- User shares sentiments and memories with Stevie Marie Linnabary, including a significant post about the loss of their son.
+- User moves into a new home with Stevie Marie Linnabary.
+- User expresses love and gratitude towards Stevie Marie Linnabary.
+- User reflects on past experiences and expresses gratitude for family.
+- User shares a morning gratitude journal entry.
+- Stevie Marie Linnabary expresses thankfulness towards user for support.
+- Dustin expresses mixed emotions, mentioning working from home happily with Stevie, having makeup sex, but also feeling like Stevie might leave due to his struggles with depression and addiction.
+- Dustin reflects on feeling numb and angry, contemplating his children and his life, expressing self-loathing and contemplating ending his life.
+- Stevie shares positive moments and anniversary celebrations with Dustin, showcasing love and appreciation.
+- The relationship between Dustin and Stevie deteriorates, leading to arguments and challenges, eventually resulting in separation.
+- Dustin acknowledges personal growth and positivity post-separation, expressing gratitude for support from friends and family.
+- Dustin reflects on the breakup and shares his side of the story, expressing bitterness and anxiety.
+- Dustin tries to rediscover his former self and emphasizes the importance of not changing oneself for others.
+- The user initially felt devastated but turned their heartbreak into humor to feel better.
+- There are references to a relationship affair and betrayal by the user's wife.
+- The user expresses a mix of emotions including anger, disappointment, and determination to move on.
+- They seek support and gratitude from friends for helping them through tough times.
+- There are mentions of weight loss, self-reflection, and a desire to improve oneself.
+- The user conveys a sense of empowerment and realization of self-worth.
+- They express frustration with past relationships and share insights on moving forward.
+- The user reflects on lost memories and the impact of past relationships on their life.
+- The user discusses co-parenting and acknowledges the importance of good parenting.
+- There are mentions of humor, music, and references to personal relationships.
+- The writer expresses anger and hurt over a lost relationship, mentioning betrayal, affairs, and financial issues.
+- They offer to help someone financially but also make derogatory comments about them.
+- The writer expresses satisfaction over someone else's potential betrayal and wishes harm upon them.
+- There are mentions of legal threats and disputes over rent and responsibilities.
+- The writer expresses a mix of resentment, anger, and a desire to move on from the past relationship.
+- Eventually, there is an apology and a resolution to be civil for the sake of the children. Plans for co-parenting are discussed.
+- The conversation shifts towards discussing child support, parenting schedules, and transportation.
+- The tone transitions to a more cooperative and future-focused approach, indicating a desire for a positive co-parenting relationship.
+- Communication about childcare arrangements, financial support, and work schedules discussed via text messages.
+- Tension over financial support and legal issues related to child custody.
+- Emotional exchange expressing hurt feelings, apologies, and reassurances.
+- Personal growth reflections and self-improvement advice shared.
+- Relationship struggles and breakup mentioned in a lengthy letter expressing hurt, betrayal, and moving on.
+- Strong emotions, accusations, and reflections on past relationship dynamics.
+- The writer expresses personal growth, finding happiness, and moving forward without bitterness.
+- Statements of hurt, anger, and predictions about the ex-partner's future relationships.
+- Resentment towards the ex-partner and a declaration of personal growth and moving on.
+- Decision to not get married again due to past experiences and broken promises.
+- Emotions of sadness, heartbreak, anger, denial, and feeling crushed are expressed.
+- Reflects on a failed marriage and the impact of negative decisions made.
+- Achievements include weight loss, sobriety, and self-improvement.
+- Regrets about trying to change oneself to please someone else.
+- Betrayal and emotional turmoil due to suspicions and accusations.
+- Memories of past moments with the ex-partner and longing for the good times.
+- The struggle of dealing with false beliefs and accusations from the ex-partner.
+- Mention of Father's Day and a desire to inspire others positively.

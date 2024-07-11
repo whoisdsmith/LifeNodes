@@ -1,0 +1,1630 @@
+# Messages With Stevie Linnabary2_summary
+
+- **January 29, 2021:**
+  - Stevie informs Dustin that Tyler is moving out.
+  - Discussion about custody arrangements and overnight stays for the children.
+  - Tension between Stevie and Dustin regarding their past relationship and current circumstances.
+- **January 30, 2021:**
+  - Dustin requests better communication for the girls' sake.
+  - Plans made for Dustin to watch the girls the next day.
+- **January 31, 2021:**
+  - Logistics of child handover and household chores discussed.
+- **February 2, 2021:**
+  - School photo codes shared for ordering.
+- **February 3, 2021:**
+  - Meeting arrangements and overnight stay discussed, but Dustin's prior commitments prevent an overnight visit.
+- Mon, 04-19-2021:
+  - Bary shows 20 pairs of shoes without revealing if he will buy them to avoid getting something she won't like.
+  - Stevie Linnabary jokes about being in the bathroom and mentions someone FaceTiming Tawnie.
+- Tue, 04-20-2021:
+  - Stevie enjoys shopping and expresses admiration for a movie and an image.
+- Wed, 04-21-2021:
+  - Discussion about dropping off and picking up kids at Tawnie's house.
+- Thu, 04-22-2021:
+  - Stevie seeks medical help for a UTI possibly affecting her kidneys.
+  - Stevie expresses nervousness about going to the doctor and discusses jewelry for Lydia's infected ear.
+  - Personal conversations about health concerns and potential music recording.
+Note: The conversations primarily revolve around personal interactions, health issues, child care arrangements, and casual exchanges between the individuals involved.
+- Stevie Linnabary bought something for Akiera and discussed potential issues if moving soon (Thu, 04-22-2021)
+- Conversation includes jokes about peeing, orange snow cones, and apple pie (Thu, 04-22-2021)
+- Discussion about Tyler causing trauma and plans to get rid of his belongings involving burning items and taking selfies (Thu, 04-22-2021)
+- Emphasis on not wanting Tyler back and seeking revenge for past actions (Thu, 04-22-2021)
+- Sharing of song links and appreciation for music (Fri, 04-23-2021)
+- Stevie Linnabary expresses admiration for a Spotify track and enjoys Dustin's singing on Smule on April 23, 2021.
+- Playful interactions between Dustin and Stevie occur, including sharing images and music mashups.
+- Dustin discusses experiencing the speed of a Tesla and compliments Stevie's artwork on April 23, 2021.
+- Emotional conversations between Dustin and Stevie reveal past relationship struggles and reflections on moving forward.
+- Stevie mentions seeing someone new and acknowledges past mistakes with Tyler and Ryan on April 23, 2021.
+- Dustin advises Stevie to cut ties with toxic individuals and shares his perspective on their shared experiences.
+- The conversation delves into deep emotions, guilt, depression, and the complexity of past decisions on April 23, 2021.
+- **Fri, 04-23-2021:**
+  - Stevie expresses deep emotions about Tyler leaving and her attachment to his kids.
+  - Dustin empathizes with Stevie's feelings about the situation.
+- **Sat, 04-24-2021:**
+  - Stevie plans to see Andy but faces challenges due to conflicting schedules and responsibilities.
+  - Dustin offers support but can't take care of the kids due to prior commitments.
+- **Sun, 04-25-2021:**
+  - Dustin engages in shared entertainment interests with Stevie.
+  - Stevie requests assistance with childcare due to a car issue and work commitments.
+- **Mon, 04-26-2021:**
+  - Stevie appreciates Dustin's help with childcare and anticipates car repair completion for logistics.
+  - Dustin expresses dissatisfaction with work but assists Stevie with transportation arrangements.
+- **Mon, 04-26-2021:**
+  - Stevie getting a ride to her car, mentions feeling awkward.
+  - Car issues with sludge in engine, needs oil change.
+  - Discussion on car stereo and Bluetooth.
+  - Dustin apologizes for cupcakes mix-up.
+- **Tue, 04-27-2021:**
+  - Late-night conversation about memories, struggles, and regrets.
+  - Dustin reflects on visiting cemetery, family, and moving forward.
+  - Concerns about Travis' well-being and discussions about relationships.
+  - Dustin shares personal growth journey and offers support to Stevie.
+  - Stevie expresses indifference to outside opinions and struggles with self-worth.
+  - Conversation on facing rock bottom and personal battles.
+  - Mutual understanding of individual struggles and acceptance of personal journeys.
+- **Tue, 04-27-2021:**
+  - Stevie expresses appreciation for support but is going through a tough time.
+  - Dustin and Stevie interact positively.
+- **Wed, 04-28-2021:**
+  - Dustin mentions work difficulties affecting schedule with the girls.
+  - Stevie arranges school pick-ups and discusses plans.
+- **Thu, 04-29-2021:**
+  - Stevie mentions concerns about Tyler visiting and her need for personal time.
+  - Dustin advises Stevie on relationships and happiness.
+  - Tension arises regarding childcare arrangements and past issues.
+  - Dustin and Stevie discuss co-parenting challenges and responsibilities.
+- **Thu, 04-29-2021:**
+  - Stevie expresses feeling bitchy and depressed while being alone in a big house.
+  - Mentions taking Lydia Smith to the doctor and concerns about Rayna Smith.
+- **Fri, 04-30-2021:**
+  - Stevie contemplates returning to work and seeks help finding a sitter.
+  - Discussion about temporary morning arrangements with Lydia's friend's mom.
+  - Lydia is diagnosed with a bladder infection.
+- **Sat, 05-01-2021:**
+  - Dustin confirms Lydia is feeling better after antibiotics.
+- **Sun, 05-02-2021:**
+  - Tension escalates between Stevie and Dustin regarding child support arrangements and scheduling conflicts.
+  - Dustin expresses frustration over rearranging his plans.
+  - Eventually, plans are made for Stevie to pick up the children after a heated exchange.
+- **Wed, 02-03-2021:**
+  - Stevie expresses concern about bites on the children.
+  - Discussion on the source of the bites and cleanliness at home.
+  - Stevie observes bug bites on Rayna and plans to monitor.
+- **Fri, 02-05-2021:**
+  - Stevie updates Dustin on Rayna's condition.
+  - Plans to meet up for child exchange.
+- **Mon, 02-08-2021:**
+  - Dustin explains financial difficulties due to funeral expenses.
+  - Informs about his father's passing.
+- **Wed, 02-10-2021:**
+  - Stevie offers to keep the children due to Dustin's situation.
+  - Plans for future visitation discussed.
+- **Fri, 02-12-2021:**
+  - Dustin apologizes for delayed responses due to funeral arrangements.
+- **Sun, 02-14-2021:**
+  - Plans for child exchange discussed, considering personal commitments.
+- **Wed, 02-17-2021:**
+  - Stevie questions child support payment and plans for a brief meetup.
+- **Fri, 02-19-2021:**
+  - Stevie requests time change for meetup due to financial concerns.
+- **Sun, 02-21-2021:**
+  - Discussion about child exchange for upcoming events.
+- **Wed, 02-24-2021:**
+  - Decision to reschedule child exchange based on convenience.
+- **Thu, 02-25-2021:**
+  - Planning meetup time for child exchange.
+- **Sat, 02-27-2021:**
+  - Uncertainty in child visitation due to ongoing events.
+  - Difficulty in confirming plans due to prior commitments.
+- **Sun, 02-28-2021:**
+  - Finalizing child exchange plans and meetup details.
+  - Arranging pickup and drop-off times.
+- Sun, 02-28-2021:
+  - Dustin offers to get McDonald's before meeting.
+  - Stevie agrees.
+- Wed, 03-03-2021:
+  - Dustin suggests meeting at 515.
+  - Stevie agrees but will be a few minutes late.
+  - Discussion about after-school care and job schedules.
+- Fri, 03-05-2021:
+  - Stevie asks about meeting at TA.
+- Sun, 03-07-2021:
+  - Confirmation on meeting time at TA.
+- Wed, 03-10-2021:
+  - Stevie requests Tawnie to pick up the girls from school due to car issues.
+- Fri, 03-12-2021:
+  - Stevie asks Dustin to take care of the girls due to personal commitments.
+- Mon, 03-15-2021:
+  - Stevie requests Tawnie to pick up the girls from school for her.
+- Tue, 03-16-2021:
+  - Plans to meet at TA, but girls behaved badly.
+- Fri, 03-19-2021:
+  - Discussion about ear piercing and meeting time.
+- Mon, 03-22-2021:
+  - Inquiry about spring photos.
+- Tue, 03-23-2021:
+  - Stevie requests Tawnie to help with picking up the girls due to a legal issue with her vehicle.
+- **March 24, 2021**
+  - Dustin Smith learns about his aunt Barb's stage 4 colon cancer prognosis.
+  - Dustin expresses concerns about the girls' well-being due to Tyler's behavior.
+- **March 31, 2021**
+  - Arrangements made for child drop-off.
+- **April 1, 2021**
+  - Discussion about child care arrangements during an interview.
+- **April 2, 2021**
+  - Plans for child pick-up at TA discussed.
+- **April 3-4, 2021**
+  - Easter plans and family interactions shared.
+- **April 4, 2021**
+  - Stevie requests children to stay overnight.
+- **Ongoing**
+  - Concerns expressed regarding Tyler's behavior and its impact on the girls.
+- Sun, 04-04-2021:
+  - Linnabary shares humorous incident about Camryn and Lydia Smith losing items on the bus.
+  - Dustin Smith discusses pickup time for the girls with Tawnie.
+  - Linnabary plans to stay at Cady's place.
+- Mon, 04-05-2021:
+  - Smith reminds Linnabary not to drink and drive.
+  - Linnabary apologizes for being late, deals with car issues and helps with life insurance paperwork.
+  - Smith suggests getting help for Linnabary's car issues and discusses family matters.
+- Tue, 04-06-2021:
+  - Emotional conversation between Smith and Linnabary about self-discovery and life challenges.
+  - Linnabary excitedly reveals early gift for Lydia Smith, an iPhone 8.
+  - Financial struggles discussed, plans made for car repair, and arrangements for child care.
+- Tue, 04-06-2021: Stevie inquires about swing set needs and shares a YouTube link.
+- Wed, 04-07-2021: Stevie learns of Covid exposure, worries about getting sick, and discusses child care arrangements.
+- Thu, 04-08-2021: Stevie faces challenges without a car, struggles with child care arrangements, and expresses concerns about future juggling work and responsibilities.
+- Thu, 04-08-2021: Dustin faces work issues and both discuss emergency situations and stressors regarding child care and personal responsibilities.
+- Thu, 04-08-2021:
+  - Dustin Smith informs Stevie Linnabary about a friend's situation with juggling responsibilities.
+  - Stevie Linnabary expresses anger towards someone who will "burn in hell."
+- Fri, 04-09-2021:
+  - Stevie offers to have the girls over for a playdate and a sleepover to give Tawnie a break.
+- Sat, 04-10-2021:
+  - Stevie asks for help with groceries due to a car issue.
+- Sun, 04-11-2021:
+  - Discussion about car troubles and potential solutions.
+- Mon, 04-12-2021:
+  - Emotionally charged conversation about past actions and regrets, including losing important digital memories.
+  - Plans for Covid testing and child arrangements due to school closures.
+- Mon, 04-12-2021:
+  - Stevie expresses concerns about work and transportation for kids' school.
+  - Discussions with Dustin about coordinating child care and potential job opportunities.
+  - Mention of missing out on job opportunity due to COVID concerns.
+  - Light-hearted COVID discussion.
+  - Stevie expresses frustration and hints at feeling depressed.
+  - Dustin offers assistance with transportation.
+  - Light-hearted banter and reminiscing.
+- Tue, 04-13-2021:
+  - Stevie requests Dustin to take care of the kids overnight, but Dustin has work commitments.
+  - Plans for child care arrangements and future pickups.
+  - Stevie expresses feeling overwhelmed and wanting to get out of the house.
+- Wed, 04-14-2021:
+  - Stevie inquires about child care arrangements.
+  - Dustin advises Stevie to communicate directly with Tawnie for better coordination.
+- Thu, 04-15-2021:
+  - Stevie and Dustin discuss weather conditions.
+  - Conversation about finding a specific photo of Lydia Smith.
+- **April 15, 2021:**
+  - Stevie and Dustin share a humorous conversation about memories and relationships.
+  - Stevie confirms dating a band guy named Andy Wischmeyer.
+  - They discuss past relationship hardships, personal growth, and moving on from negative experiences.
+  - Plans are made for Dustin to have the girls for Stevie during a concert on July 10th.
+  - Dustin expresses dislike towards Tyler and offers support to Stevie.
+- **April 16, 2021:**
+  - Dustin and Stevie coordinate meeting times for various activities.
+  - Dustin shows care and concern for Stevie's well-being and family.
+  - Plans are made for Dustin to meet Stevie and the girls for birthday celebrations.
+  - Light-hearted banter about COVID-19 and family interactions ensue.
+- **April 18, 2021:**
+  - Stevie appreciates Dustin and Tawnie for a successful birthday weekend for **Lydia Smith**.
+  - Plans are discussed for a future joint celebration involving pizza, cake, and outdoor activities.
+- **April 19, 2021:**
+  - Stevie shares excitement about **Lydia Smith** losing a tooth and gifts received.
+  - Dustin acknowledges the cute birthday shoes and humorously mentions interruptions by **Rayna Smith** during messaging.
+- **2017-02-25**:
+  - Stevie expresses love and emotions towards Dustin.
+  - Playful emoji interactions between Stevie and Dustin.
+  - Discussion about phone battery and keyboard settings.
+  - Plans to step outside and smoke.
+- **2017-02-26**:
+  - More emoji interactions.
+  - Mention of stomach issues and laxatives.
+  - Discussion about delayed phone delivery.
+  - Emoji exchanges and expressions of love.
+- **2017-02-27**:
+  - Shopping plans for items including condoms.
+  - Stevie expresses crankiness and irritability.
+  - Dustin asks about shoes and interactions continue.
+- **2017-02-28**:
+  - Tension arises about uninvited wedding guests.
+  - Misunderstandings and arguments about communication.
+  - Frustrations and accusations about ignoring each other.
+  - Discussion about buying items and potential storm warnings.
+- **2017-03-01**:
+  - Apologies and explanations for past behaviors.
+  - Updates on Travis and visiting arrangements.
+  - Shopping discussions and playful banter.
+  - Plans for bathing a child and upcoming events.
+- **2017-03-02**:
+  - Changes in plans due to picking up Travis's property.
+  - Expressions of frustration and sudden realization about work.
+- **2017-04-02**:
+  - Stevie Linnabary gets busy with lunch, describes the day as hectic.
+  - Travis rumored to be causing trouble involving Stevie's mom.
+  - Dustin Smith mentions dealing with a spider and waiting for a doctor's appointment.
+  - Light-hearted exchange between Dustin and Stevie.
+  - Emotional exchange reaffirming love between Dustin and Stevie.
+- **2017-04-03**:
+  - Dustin expresses frustration about lack of alone time with Stevie.
+- **2017-04-04**:
+  - Dustin apologizes, feeling unwell and negative.
+  - Stevie checks on Dustin's well-being.
+  - Compliment exchanged about Stevie's hair.
+- **2017-04-06**:
+  - Tension arises as Dustin feels neglected and unwanted during a party at Stevie's house.
+  - Dustin expresses feeling unappreciated, wishes for more quality time with Stevie.
+- **2017-04-07**:
+  - Dustin contemplates staying with his mom due to issues with Stevie's family.
+  - Discussions about relationship dynamics and potential separation.
+  - Dustin expresses feeling unappreciated and unwanted in the relationship.
+- **2017-04-07 01:23:39 AM** Dustin expresses remorse for causing issues and hopes for forgiveness.
+- **2017-04-07 07:46:54 AM** Dustin faces work problems and personal struggles, feeling like everything is falling apart.
+- **2017-04-07 07:52:41 AM** Dustin expresses feeling displaced at home and tensions with Ryan.
+- **2017-04-07 12:13:16 PM** Dustin confronts issues with Ryan staying over and feeling unappreciated.
+- **2017-04-07 12:16:38 PM** Dustin tries to express feelings but faces indifference and frustration.
+- **2017-04-07 12:23:17 PM** Tension rises as decisions are demanded.
+- **2017-04-07 12:27:01 PM** Dustin plans to leave temporarily due to ongoing issues.
+- **2017-04-07 03:39:03 PM** Dustin explains work troubles and feelings of rejection.
+- **2017-04-07 03:48:11 PM** Both express feeling disconnected since marriage, hoping for better understanding.
+- **2017-04-07**:
+  - Interaction about going out and needing a break from responsibilities.
+  - Concerns about feeling overwhelmed and needing something to ease emotions.
+  - Tension arises due to jealousy and insecurity, leading to misunderstandings.
+- **2017-04-08**:
+  - Apology and appreciation exchanged, expressing mutual support and love.
+  - Small conflicts and misunderstandings regarding rushing and stress.
+  - Acts of care shown through gestures like bringing coffee and charger.
+- **2017-04-09**:
+  - Emotionally charged messages expressing love, struggles, and desire for understanding.
+  - Frustration and feelings of being underappreciated surface, leading to arguments and emotional outbursts.
+  - Reaffirmation of love and importance of the relationship despite difficulties.
+- **2017-04-09**
+  - Emotional conversation between Stevie and Dustin Smith about struggles in their marriage.
+  - Stevie expresses feeling unappreciated and misunderstood.
+  - Dustin Smith shares his feelings of frustration and lack of attention in the relationship.
+  - Tensions rise with accusations and lack of communication.
+  - Dustin Smith feels neglected and questions the relationship's future.
+  - Stevie expresses frustration over being accused and not feeling valued.
+  - Misunderstandings and emotional outbursts lead to a heated exchange.
+  - Dustin Smith tries to convey his desire for love and understanding, seeking resolution.
+  - Both parties express fatigue from continuous arguments and seek to address underlying issues.
+  - Dustin Smith emphasizes the need for open communication and resolving conflicts to move forward positively.
+- **2017-04-09**
+  - Individual expresses intense chest pain and anxiety.
+  - Dustin Smith shows concern and offers to take the individual to the ER.
+  - Individual attributes chest pain to dehydration.
+- **2017-04-10**
+  - Dustin Smith expresses love and concern.
+  - Discussion about work shifts and plans for the day.
+  - Dustin Smith expresses desire for intimacy, leading to a misunderstanding.
+  - Tension arises over spending habits, causing stress and anxiety.
+- **2017-04-11**
+  - Exchange of morning greetings and expressions of love.
+  - Dustin Smith appreciates the individual's efforts and expresses love.
+  - Argument about spending habits escalates due to stress and anxiety.
+  - Plans for a date night to rekindle the relationship.
+- **2017-04-12**
+  - Morning well-wishes and minor exchange about change.
+  - Affectionate farewells and expressions of love.
+- **2017-04-12**:
+  - Dustin expresses missing Carrie and feeling tired and irritated, seeking her attention.
+  - Misunderstandings arise about spending time together, leading to frustration and arguments.
+  - Dustin feels ignored and hurt, expressing his emotional distress and feeling unappreciated.
+- **2017-04-13**:
+  - Emotional turmoil continues with Dustin feeling neglected, unimportant, and struggling with feelings of being ignored.
+  - Carrie apologizes but finds it hard to communicate effectively with Dustin due to his anger and avoidance.
+  - Dustin expresses feelings of being unloved and unappreciated, leading to conflicts and misunderstandings.
+  - Medication issues and emotional stress contribute to the strained communication and relationship dynamics.
+- **2017-04-13 09:05:42 AM**: Dustin expresses feeling upset and ignored by Stevie.
+- **2017-04-13 09:08:14 AM**: Dustin decides to stop talking to himself and expresses disappointment in Stevie's priorities.
+- **2017-04-13 10:08:13 AM**: Stevie apologizes for their behavior due to alcohol and emotional issues.
+- **2017-04-13 10:40:56 AM**: Stevie acknowledges Dustin's support and care.
+- **2017-04-13 10:45:42 AM**: Dustin questions Stevie's sincerity and expresses hurt feelings.
+- **2017-04-13 11:02:38 AM**: Dustin criticizes Stevie's drinking habits and considers leaving.
+- **2017-04-13 11:30:26 AM**: Dustin decides to stop fighting and asks for positive communication.
+- **2017-04-13 11:53:37 AM**: Dustin expresses frustration at feeling unappreciated and unheard by Stevie.
+- **2017-04-13 12:01:30 PM**: Dustin expresses the need for love and attention from Stevie to avoid feeling ignored.
+- **2017-04-13 12:03:32 PM**: Dustin defends his care for Stevie and questions Stevie's accusation of not caring.
+- **2017-04-13 12:09:08 PM**: Dustin gives Stevie an ultimatum regarding their relationship dynamics.
+- **2017-04-13**:
+  - Stevie expresses frustration about feeling neglected and not wanting to be controlled.
+  - Dustin acknowledges the situation and mentions needing space.
+  - Dustin expresses disappointment and leaves to stay with his mom.
+  - Stevie declines driving to see Dustin in Tekonsha.
+  - Dustin offers for Stevie and the kids to visit him.
+  - Tension escalates as Stevie talks about divorce, Dustin expresses feeling unloved, and they discuss their issues.
+  - Dustin requests honesty regarding talking to other people.
+  - Stevie threatens to end things, citing marriage commitment.
+  - The conversation becomes heated with accusations and misunderstandings.
+  - Dustin feels ignored and expresses his frustrations about the situation.
+- **2017-04-13:**
+  - A conversation indicating frustration and misunderstanding between two individuals.
+  - Dustin expresses feeling unappreciated and unloved, leading to thoughts of leaving or self-harm.
+  - Tension escalates with miscommunication and emotional distress.
+  - Dustin expresses a desire to end the relationship or life, highlighting deep emotional turmoil.
+  - The conversation shifts between feelings of love, hurt, and a sense of rejection.
+- 2017-04-13: Dustin expresses feelings of worthlessness, regret, and desire for understanding.
+- 2017-04-13: Dustin acknowledges his faults and expresses love, gratitude, and a sense of finality.
+- 2017-04-13: There is a conversation about a hug before potential self-harm, highlighting emotional distress and a plea for connection.
+- 2017-04-13: Dustin expresses a mix of love, longing, and resignation in his final interactions.
+- 2017-04-13: The exchange ends with a mix of conflict, regret, and emotional conflict.
+- **2017-03-02**:
+  - Concern about forgotten tasks.
+  - Discussion about a missing paycheck for Travis.
+  - Conversation about fixing a leak in the basement.
+  - Humorous interactions between Dustin and Stevie about messages and painting.
+- **2017-03-03**:
+  - Emotional conversation about a friend named Travis.
+  - Plans to show an app, writing a letter to Travis, and reflections on responsibility.
+  - Excitement about a job evaluation and raise.
+- **2017-03-04**:
+  - Arrangements to leave a message for Travis in jail.
+  - Playful exchanges and expressions of love between Dustin and Stevie.
+  - Delayed plans to go out and frustrations about waiting.
+- **2017-03-04**
+  - **11:03:41 PM:** Dustin informs Stevie he's on his way.
+  - **11:07:24 PM:** Dustin arrives and parks in the back.
+- **2017-03-05**
+  - **01:41:52 PM:** Stevie expresses frustration about Dustin's past relationship.
+  - **01:42:44 PM:** Stevie mentions marrying someone else; Dustin reacts negatively.
+- **2017-03-06**
+  - **08:07:32 AM:** Dustin greets Stevie.
+  - **08:35:45 AM:** Stevie asks about a blue ring.
+  - **10:17:06 AM:** Stevie finds something looks dumb due to financial issues.
+  - **06:51:37 PM:** Stevie feels ignored while making dinner; argument ensues.
+- **2017-03-07**
+  - **08:45:58 AM:** Stevie mentions getting busy cleaning.
+  - **12:41:43 PM:** Dustin feels unwell and might reschedule plans.
+- **2017-03-08**
+  - **08:22:25 AM:** Stevie asks for an extension cord for the car.
+  - **04:38:30 PM:** Stevie notes Travis always calling at inconvenient times.
+- **2017-03-09**
+  - **11:37:34 AM:** Stevie questions missing money; argument over finances.
+  - **01:53:14 PM:** Stevie asks for forgiveness after an argument.
+  - **08:19:06 PM:** Stevie expresses dissatisfaction and threatens to cancel the wedding.
+  - **09:35:28 PM:** Stevie considers canceling due to feeling ignored by Dustin.
+- **2017-03-09**:
+  - Linnabary expresses not wanting to marry someone who can't make time for her.
+- **2017-03-10**:
+  - Dustin Smith is called a jerk by Linnabary.
+  - Excitement about the upcoming marriage is shared between Stevie Linnabary and Dustin Smith.
+- **2017-03-12**:
+  - Affectionate messages between Dustin Smith and Stevie Linnabary.
+  - A playful conversation about getting water for Raynay and food.
+- **2017-03-13**:
+  - Arguments and accusations escalate between the couple, leading to frustration and tension.
+  - Mention of inappropriate behavior and lack of intimacy in the relationship.
+  - Dustin Smith expresses dissatisfaction with the marriage.
+  - Linnabary threatens to sleep alone and implies marital regret.
+  - Conversation about household chores and plans for the day.
+- **2017-03-14**:
+  - Communication shifts to more casual topics like watching TV and work-related decisions.
+  - Moments of affection and missing each other are interspersed with occasional rude remarks.
+  - Exchange of photos and videos, indicating attempts to reconnect despite underlying issues in the relationship.
+- **2017-03-14**:
+  - Dustin finds someone cute.
+  - Stevie dances with her mom and then confronts Dustin about text messages and account changes.
+  - Dustin and Stevie argue about responses and account issues.
+  - Stevie apologizes for her behavior and mentions Camryn wanting to change last names.
+  - Plans for dinner are discussed, and Dustin refuses to go out.
+- **2017-03-15**:
+  - Stevie mentions a nursing form and expresses disappointment about the early days of marriage.
+  - Plans to see Travis are made, and concerns about his well-being are shared.
+  - Dustin checks on Travis and Stevie's well-being.
+- **2017-03-16**:
+  - Stevie's child is diagnosed with croup.
+  - Dustin shows concern and admiration for Stevie's phone camera.
+- **2017-03-17**:
+  - Stevie expresses love and concerns for Dustin's safety while driving.
+  - Playful banter about dyeing hair and social media interactions.
+- **2017-03-18**:
+  - Affectionate exchanges between Dustin and Stevie, with a mention of their child being awake.
+(Note: The conversations mainly revolve around personal interactions, arguments, health concerns, and expressions of love and affection between the individuals involved.)
+- **March 18, 2017**:
+  - Stevie Linnabary and Dustin Smith exchange playful and intimate messages.
+  - They discuss family dynamics, responsibilities, and intimate desires.
+- **March 19, 2017**:
+  - Stevie expresses love, while Dustin mentions wanting to chill with the family.
+- **March 20, 2017**:
+  - Tensions rise as a conversation about Rebecca Rodriguez leads to arguments.
+  - Dustin expresses frustration, and Stevie feels ignored and upset.
+  - A discussion about responsibilities and relationships ensues, leading to emotional exchanges.
+- **March 21, 2017**:
+  - Stevie seeks help with an iPhone issue, and Dustin provides technical advice.
+  - Their interactions show a mix of support, concern, and frustration.
+- **2017-03-21**:
+  - Dustin Smith jailbroke a device due to a non-functional power button.
+  - Stevie Linnabary expresses impatience for Dustin to return home.
+- **2017-03-22**:
+  - Stevie worries about a missing charger, discusses a job offer with Dustin.
+  - Dustin calculates hourly wage, reassures Stevie about working.
+- **2017-03-23**:
+  - Stevie is stressed over family financial issues.
+  - Dustin and Stevie have a minor disagreement about communication priorities.
+- **2017-03-24**:
+  - Apologies exchanged between Dustin and Stevie.
+  - Stevie seeks reassurance about their relationship.
+- **2017-03-25**:
+  - Stevie supports Dustin during a frustrating moment.
+  - Plans to purchase items before work.
+- **2017-03-25**:
+  - Dustin expresses appreciation for lube.
+  - Light-hearted interaction about ice cream.
+  - Dustin wants to hear Stevie's voice.
+- **2017-03-26**:
+  - Discussion about a possible family connection.
+  - Some banter about looks and family traits.
+- **2017-03-27**:
+  - Concern about health issues.
+- **2017-03-28**:
+  - Tension and mention of divorce.
+- **2017-03-29**:
+  - Affectionate messages exchanged.
+- **2017-03-30**:
+  - Disagreement over socializing and responsibilities.
+  - Frustration regarding personal time and household dynamics.
+  - Discussion about bills and plans for the future.
+- **March 30, 2017**
+  - Dustin expresses frustration over phone plan payment and having data/WiFi turned off.
+  - Tensions rise between Dustin and Stevie, with accusations, feelings of being controlled, and references to leaving.
+  - Stevie expresses feeling irritated and overwhelmed, leading to a heated argument about staying mad and controlling behavior.
+  - Dustin expresses exhaustion from work and financial concerns.
+  - The argument escalates with feelings of being misunderstood and unappreciated, leading to emotional outbursts.
+- **March 31, 2017**
+  - Financial discussions and budgeting stress emerge, requiring cooperation for bill payments.
+  - Lighter moments with shared music and sick feelings are briefly interspersed.
+- **April 1, 2017**
+  - Morning interactions show light-hearted banter and family dynamics.
+  - Stevie expresses anger and accuses Dustin of inappropriate behavior, leading to conflict.
+- **April 2, 2017**
+  - Continued tension and lack of resolution in discussions between Dustin and Stevie.
+  - Mention of outside party's involvement and potential conflict arising.
+This summary highlights the emotional turmoil, financial strain, communication challenges, and intermittent moments of light-heartedness in the interactions between Dustin and Stevie during the specified dates.
+- **2017-05-07:**
+  - Stevie Linnabary inquires about getting the girls, leading to a heated exchange with Dustin Smith.
+  - Tensions rise as Dustin accuses Stevie of selfishness and Stevie questions Dustin's priorities.
+  - Dustin threatens Stevie and makes derogatory remarks, escalating the conflict.
+  - Dustin later apologizes, expressing a desire to move past the negativity for the sake of their children.
+  - Both parties attempt to reconcile and focus on co-parenting positively.
+- **2017-05-08:**
+  - Dustin shifts to a more civil tone, discussing potential living arrangements and vehicle logistics.
+  - Dustin expresses willingness to cooperate and support Stevie in shared responsibilities.
+  - Dustin tries to maintain a friendly attitude, showing a desire for amicable interactions moving forward.
+- **2017-05-08:**
+  - Dustin Smith proposes a civil approach to divorce, offering to share costs and avoid court.
+  - Stevie Linnabary expresses concern about potential custody arrangements and filing for divorce.
+  - Discussion about daycare arrangements for the children ensues.
+  - Financial matters related to divorce are discussed, including payment and legal assistance by Roger Caswell.
+- **2017-05-09:**
+  - Stevie Linnabary asks Dustin Smith to take care of one child due to moving, which he declines.
+  - Dustin expresses gratitude and reminisces about their past, emphasizing his care for their children.
+  - Tensions arise over communication and care of their children.
+- **2017-05-10:**
+  - Dustin Smith reflects on their changed relationship and expresses desires for friendship.
+  - Practical matters like child custody and personal belongings are discussed.
+  - Emotional strain is evident as Dustin expresses frustration and Stevie requests the return of a game.
+  - Dustin shows disinterest in Stevie's rental house location.
+- **May 10, 2017:**
+  - Stevie asks Dustin to return the LG phone to trade in to reduce her bill.
+  - Dustin wants to keep the phone, leading to tension.
+  - Dustin accuses Stevie of calling CPS on him, causing significant distress and anger.
+  - Dustin expresses frustration and emotional pain, feeling betrayed and threatened by Stevie.
+  - Stevie denies calling CPS, but Dustin's trust is shattered.
+- **May 11, 2017:**
+  - CPS visits due to Lydia going outside, leading to further conflict between Dustin and Stevie.
+  - Dustin doubts Stevie's ability to care for their children and expresses intense disappointment and anger.
+  - Dustin threatens Stevie, warning her to handle the situation and implying potential consequences.
+  - Dustin expresses a mix of anger, disappointment, threats, and emotional turmoil towards Stevie.
+  - Dustin considers taking full custody and involving lawyers, showing escalating conflict and legal action.
+- **2017-05-11**:
+  - Dustin expresses disbelief and disappointment in Stevie's behavior, calling her a cheater and a hypocrite.
+  - He mentions Child Protective Services (CPS) involvement and challenges Stevie to share her side of the story.
+  - Dustin conveys his feelings of betrayal and disappointment in Stevie's actions, especially regarding their children.
+- **2017-05-12**:
+  - Dustin criticizes Stevie for living a lie and not taking responsibility for her actions.
+  - He expresses his lack of trust in Stevie and emphasizes the importance of seeking help for her behavior.
+  - Dustin asserts his determination to protect his children, threatens legal action, and indicates concerns about Stevie's new partner.
+  - A conversation ensues about child custody arrangements, with Dustin showing reluctance and distrust towards Stevie.
+  - The interaction escalates with exchanges of accusations and insults, leading to a contentious discussion about child custody and personal choices.
+  - Dustin asserts his intention to take custody of the children and implies a confrontational approach towards Stevie if needed.
+- **2017-05-12 14:56:47**: Dustin Smith mentions getting the girls.
+- **2017-05-12 14:57:15**: Stevie Linnabary warns Dustin about cops in the area and advises caution.
+- **2017-05-12 14:58:58**: Dustin accuses Stevie of making up lies to keep the kids from him.
+- **2017-05-12 15:01:45**: Stevie asserts she's keeping the kids unless Dustin agrees to her terms.
+- **2017-05-12 15:15:36**: Dustin informs Stevie about his restricted license for kid-related activities.
+- **2017-05-12 15:24:51**: Stevie asks for confirmation on getting the kids back on Mother's Day.
+- **2017-05-12 16:07:39**: Dustin accuses Stevie of neglecting their daughters and criticizes her actions.
+- **2017-05-12 16:17:19**: Stevie explains her actions, mentions the kids wanting to see their dad.
+- **2017-05-12 16:34:27**: Dustin expresses doubt in Stevie's words and encourages her to change for the better.
+- **2017-05-12 16:59:44**: Dustin urges Stevie to improve for the sake of their daughters and criticizes her priorities.
+- **2017-05-12:**
+  - Argument about past events and parenting responsibilities.
+- **2017-05-12:**
+  - Dustin expresses mixed feelings, mentions moving on and co-parenting for the children's sake.
+- **2017-05-13:**
+  - Dustin requests a better ending to their chapter together for closure.
+  - He asks about taking the playground.
+  - Dustin expresses frustration when communication seems unclear about seeing the girls.
+- **2017-05-14:**
+  - Dustin gets confrontational, mentions getting his belongings and removing his name from the lease.
+  - He taunts about Tyler cheating with his ex, causing emotional distress.
+- **2017-08-31**:
+  - Dustin Smith secures a pac and lists items to buy.
+- **2017-09-01**:
+  - Stevie Linnabary expresses love.
+  - Dustin Smith mentions work issues and family.
+  - Stevie and Dustin discuss making music and plans for the weekend.
+- **2017-09-02**:
+  - Emotional conversation between Dustin and Stevie regarding past conflicts and relationship issues.
+- **2017-09-02**:
+  - Emotions run high with accusations and conflicts between Dustin Smith and Stevie Linnabary regarding past events and honesty.
+  - Dustin expresses feelings of being unloved and unappreciated while Stevie defends her actions and expresses a desire to move forward.
+- **2017-09-03**:
+  - Dustin expresses his disappointment, feeling unappreciated and disrespected, leading to a decision to end the relationship.
+  - Stevie questions the status of their relationship and seeks clarification from Dustin.
+- **2017-09-04**:
+  - Both individuals engage in a conversation discussing trust issues and past mistakes, with Stevie apologizing for not being fully honest about a situation involving Taryn.
+  - Dustin emphasizes the importance of honesty and trust, leading to plans for a face-to-face conversation to resolve their conflicts.
+- **Throughout**:
+  - Tensions arise regarding honesty and trust, with both parties expressing their emotional turmoil and desires for the relationship.
+- **2017-09-04**
+  - Dustin feels upset about past mistakes being thrown back at him.
+  - Stevie expresses concerns about Dustin's change in behavior and emotions.
+  - Dustin seeks honesty about Stevie's interactions with other women while he was away.
+  - Stevie clarifies her commitment to Dustin and deletes individuals from Facebook.
+  - Tensions arise over past interactions and honesty issues.
+- **2017-09-05**
+  - Both express feelings of missing each other.
+  - Plans for the day include dealing with personal matters.
+  - Dustin and Stevie share emotional moments about their relationship.
+  - Dustin expresses emotional vulnerability and seeks communication.
+  - Stevie apologizes and expresses love but requests no communication with other guys.
+- **2017-09-05**:
+  - Stevie felt ignored as Dustin left without talking much.
+  - Dustin mentioned Cory being troublesome.
+  - Dustin faced challenges with his son's school and felt overwhelmed.
+  - Stevie complimented Dustin, who expressed feeling sick later in the day.
+- **2017-09-06**:
+  - Stevie and Dustin discussed daily routines and family activities.
+  - Stevie expressed sadness and sought reassurance from Dustin.
+  - Dustin mentioned feeling lost and struggling financially.
+  - Stevie expressed concerns about their relationship and sought clarity.
+  - Tensions rose as Stevie felt ignored and uncertain about their status.
+  - Stevie contemplated going to a bar due to emotional distress.
+- **2017-09-06**:
+  - Stevie expresses feeling used and sets a deadline for Dustin to decide on their relationship.
+  - Dustin decides to stay somewhere else temporarily.
+  - Tension escalates with Stevie feeling neglected and Dustin expressing frustration.
+- **2017-09-07**:
+  - Stevie feels hurt and ignored, wishes for clarity in their relationship.
+  - Communication breakdown leads to escalating arguments and accusations.
+  - Dustin indicates a lack of care for the situation, causing further distress to Stevie.
+- **September 7, 2017**:
+  - Stevie expresses frustration, feeling unloved, and wanting a divorce but not getting a clear response from Dustin.
+  - Dustin appears indifferent and avoids direct communication about their relationship.
+  - The conversation escalates with accusations, emotional outbursts, and threats of self-harm from Dustin.
+  - Stevie confronts Dustin's behavior and decides to cut off communication, expressing feeling used and betrayed.
+  - Dustin expresses suicidal thoughts and indicates distress, leading to concern for his well-being.
+- **2017-09-07:**
+  - Stevie expresses frustration and hurt over Dustin's actions, emphasizing her desire to help him but feeling rejected.
+  - Dustin acknowledges his mistakes and expresses a willingness to take responsibility.
+  - Stevie confronts Dustin about his affair and the impact on her life, firmly stating she is done with the relationship.
+  - Tensions escalate as Stevie asserts her boundaries, emphasizing her loss and anger towards Dustin.
+  - The conversation ends with Dustin agreeing to get a new phone and Stevie cutting off emotional ties with him.
+- **2017-09-04:**
+  - Light-hearted messages exchanged with casual topics like work and music between the individuals involved.
+- **2017-09-01:**
+  - A heated exchange occurs regarding schooling arrangements for Cam, with accusations and blame shifting between the parties involved.
+  - Stevie emphasizes the urgency of enrolling Cam in school and pushes for a resolution, placing responsibility on the other party.
+- 2017-09-01: Tensions rise regarding school arrangements for a child between the parties involved. Plans and transportation issues are discussed.
+- 2017-09-03: Shopping for school supplies and clothing for the child causes stress and a sense of urgency.
+- 2017-09-03: Frustration over responsibilities and lack of cooperation in parenting duties escalates.
+- 2017-09-04: Preparations for the child's schooling continue, including discussions about suspensions and transportation.
+- 2017-09-05: Communication difficulties persist, leading to feelings of exhaustion and frustration, with concerns about parenting responsibilities and arrangements being raised.
+- **2017-09-01:**
+  - Stevie Smith had client transportation lasting longer than scheduled appointment at MJ.
+  - Stevie Smith started work at DV-H due to overlapping appointments.
+  - Stevie Smith confirmed clock out at RL at 10:56am.
+  - Stevie Smith had a heart monitor due to tachycardia related to pregnancy.
+- **2017-09-02:**
+  - Inquiry about a building for rent in Marshall.
+- **2017-09-03:**
+  - Stevie Smith inquired about a 2-bedroom apartment, but it may not work due to noise concerns.
+  - A house was offered, but the price was out of their range.
+- **2017-09-04:**
+  - Communication about work schedules and catching up.
+  - Mention of a storm causing inconvenience.
+  - Conversation about movie plans and babysitting arrangements.
+  - Brandi checking in on Stevie's weekend and health.
+- **2017-09-05:**
+  - Emotional conversations regarding parenting responsibilities and frustrations.
+  - Plans for childcare and movie night.
+  - Addressing communication issues and concerns about fairness.
+- **2017-09-06:**
+  - Coordination for childcare and work schedules.
+  - Lack of communication from someone named Cady.
+  - Expressing feelings of being overwhelmed and unappreciated.
+- **2020-05-15:**
+  - Dustin Smith reaching out, expressing confusion about how things work.
+  - Stevie Linnabary expressing the need for alone time for mental health.
+  - Dustin apologizing for feeling uncomfortable and thanking Stevie for support.
+- **2020-05-16:**
+  - Dustin asking for help watching kids to mow lawn, showing concern for Stevie's stress.
+  - Dustin informing Stevie about talking to someone new, emphasizing moving on for both.
+- **2020-05-17:**
+  - Dustin seeking honesty about Stevie's interactions, aiming for mature communication.
+  - Tension rises as Dustin feels ignored and later expresses frustration over perceived lies.
+  - The conversation ends with Dustin deciding to maintain civility but not pursue friendship due to perceived dishonesty.
+- **June 3, 2020:**
+  - Dustin and Stevie engage in banter and playful insults.
+  - Dustin invites himself over after a casual conversation about plans.
+- **June 4, 2020:**
+  - Dustin expresses emotional vulnerability about past experiences and ongoing struggles.
+  - Stevie checks on Dustin's well-being.
+- **June 7, 2020:**
+  - Dustin inquires about Stevie's unemployment and family, plans to spend time with the girls.
+- **June 8, 2020:**
+  - Financial concerns are discussed; Stevie offers assistance.
+  - Plans for the day are coordinated.
+- **June 9, 2020:**
+  - Technical issues with unemployment are shared, and Stevie offers empathy and support.
+  - Friendly interactions about shared interests like headphones, Netflix, and future plans.
+- **June 9, 2020**:
+  - Dustin expresses feeling bitchy due to a personal issue.
+  - Conversation includes sharing images and casual banter.
+  - Dustin requests money for cigarettes, showing concern and support for Stevie.
+  - Emotional exchange about personal growth and struggles, watching a show.
+- **June 10, 2020**:
+  - Planning to meet due to potential tornado risk, running errands together.
+  - Stevie requests items and money, Dustin agrees to help.
+- **June 11, 2020**:
+  - Funny exchange via link sharing and concern for Stevie's stomach ache.
+  - Casual conversation about kids, unemployment issues, and requests for Red Bull.
+- **June 12, 2020**:
+  - Exchange of images and mentions of UIA issues.
+Overall, the interactions involve personal support, casual banter, planning activities, and expressing care and concern for each other's well-being and needs.
+- **June 12, 2020**:
+  - Stevie jokingly threatens to pierce Dustin's nose.
+  - Dustin expresses fear and fluctuating moods.
+- **June 13, 2020**:
+  - Plans are made to meet up.
+  - Power outage and preparations for the day are discussed.
+- **June 14, 2020**:
+  - Dustin is asked to stay with the group.
+- **June 15, 2020**:
+  - Frustrations about unemployment payments are shared.
+  - Support and discussions about financial difficulties occur.
+  - Dustin expresses anger and desire to give up on unemployment.
+  - Stevie offers support and assistance.
+- **June 16, 2020**:
+  - Child support affecting payments is speculated.
+  - Plans for handling financial difficulties are discussed.
+  - Stevie offers financial help and support to Dustin.
+- **June 16, 2020**:
+  - Stevie offers financial help to Dustin, who declines and shares exhaustion.
+  - Dustin and Stevie exchange links to music videos they enjoy.
+  - Dustin discusses TV show preferences and plans for a gift for Rayna Smith's birthday.
+  - Discussion on a book purchase and potential hangout.
+- **June 17, 2020**:
+  - Stevie and Dustin discuss child support funds and potential family vacation plans.
+  - Shopping suggestions for Rayna's birthday and plans for her party.
+  - Dustin requests a haircut from Stevie.
+  - Dustin asks for financial help for a casino visit, promising repayment.
+- **June 18, 2020**:
+  - Dustin shares personal reflections on his past struggles with addiction and relationships after quitting stimulants.
+  - Dustin expresses uncertainty and confusion in rebuilding his life post-addiction.
+  - Stevie promises to read Dustin's message later.
+  - Stevie checks on Dustin's well-being.
+- **2020-06-18**:
+  - Dustin expresses concerns about feeling tired and missing the effects of drugs.
+  - Stevie jokes about Dustin being old and tired, while also sharing about a mental breakdown from smoking weed.
+  - Discussion about food cravings and mall dining options.
+- **2020-06-19**:
+  - Dustin offers to watch kids while Stevie shops for gifts.
+  - They discuss Taco Bell orders and plans for the day, with Dustin mentioning a potential date.
+- **2020-06-20**:
+  - Dustin offers support to Stevie who seems upset and overwhelmed.
+  - Dustin agrees to come over with a joint to help Stevie cope.
+- **2020-06-21**:
+  - Dustin expresses confusion and discomfort about recent interactions, leading to some tension and uncertainty in their communication.
+  - Dustin shares feelings of regret and uncertainty about the state of their relationship.
+Overall, the conversation involves emotional support, some humor, discussions about food cravings, potential date plans, and underlying tension and confusion in their relationship dynamics.
+- **June 21, 2020:**
+  - Dustin expresses frustration and emotional turmoil, feeling betrayed and hurt by Stevie's actions involving Tyler.
+  - Dustin expresses his disappointment and announces the end of their friendship due to Stevie's actions.
+  - Dustin's emotional turmoil escalates, leading to intense anger and threats towards Stevie and Tyler.
+- **June 22, 2020:**
+  - Dustin's anger and frustration intensify, leading to violent and threatening language towards Tyler.
+  - Dustin expresses a deep sense of betrayal and hurt, feeling used and disrespected by Stevie's actions.
+- **June 28, 2020:**
+  - Stevie reaches out for childcare help but faces a tense exchange with Dustin regarding arrangements.
+  - Dustin agrees to take care of the girls but maintains a cold and distant attitude.
+- **June 30, 2020:**
+  - Communication breakdown between Stevie and Dustin leads to a heated exchange regarding childcare responsibilities.
+  - Dustin's responses become terse and uncooperative, leading to further conflict.
+- **July 7, 2020:**
+  - Stevie and Dustin discuss childcare arrangements and financial support, with Dustin seeking clarification and agreement on child support during his custody weeks.
+  - Dustin communicates potential phone issues and advises Stevie on alternative contact methods.
+- **July 4, 2020:**
+  - Dustin sends a brief message wishing Stevie and the girls a happy 4th of July.
+- **2020-07-07**:
+  - Power outage discussion between Dustin Smith and Stevie Linnabary.
+  - Agreement to shift schedule from Friday to Friday for that week.
+- **2020-07-08**:
+  - Discussion about schooling plans for the kids.
+  - Tensions rise with misunderstandings and accusations.
+- **2020-07-10**:
+  - Child support payment discussion, leading to misunderstandings and financial disagreements.
+- **2020-07-17**:
+  - Conflict escalates over childcare safety concerns and financial matters.
+- **2020-07-24**:
+  - Request for picking up the girls and financial exchange.
+- **2020-07-31**:
+  - Dustin informs Stevie about new job schedule and child care arrangements.
+(Note: The interactions are filled with emotional outbursts, misunderstandings, and financial disagreements, leading to strained co-parenting dynamics.)
+- **2020-07-31:**
+  - Stevie expresses concern about back-and-forth arrangements.
+  - Discussion about work and daycare affecting custody decisions.
+  - Dustin shows effort to be more involved but faces resistance.
+- **2020-08-06:**
+  - Stevie inquires about custody for the upcoming week.
+  - Dustin mentions not having a sitter, leading to uncertainties.
+- **2020-08-07:**
+  - Dustin requests a favor with picking up the girls and getting McDonald's.
+  - Miscommunication leads to frustration and a heated exchange.
+- **2020-08-08:**
+  - Intense arguments continue, with threats and accusations exchanged.
+  - Tensions rise over custody arrangements and parental responsibilities.
+- **Overall:**
+  - Emotional turmoil, conflicts, and challenges in co-parenting dynamics.
+  - Lack of trust, misunderstandings, and unresolved issues impact interactions.
+  - Struggles with communication, commitments, and balancing parental duties.
+- **2020-08-08**:
+  - Stevie expresses frustration with Dustin's behavior, emphasizing the need for him to mature and be a responsible father.
+  - Dustin responds defensively, mentioning past knowledge about Stevie and expressing anger.
+  - Stevie highlights Dustin's responsibilities as a father and the importance of him avoiding jail time to see his kids.
+- **2020-08-13**:
+  - Stevie and Dustin discuss child visitation arrangements, with Dustin agreeing to pick up and drop off the children.
+  - Dustin expresses his commitment to maintaining a civil relationship for the sake of the children, despite past conflicts.
+  - Stevie addresses school arrangements for the children and emphasizes the need for better communication and less drama.
+  - Dustin acknowledges the need for improved communication, mentions staying out of personal conflicts, and commits to focusing on positive aspects of his life.
+This summary captures the emotional exchanges, attempts at co-parenting, and the emphasis on prioritizing the well-being of the children despite underlying tensions and past conflicts.
+- **May 17, 2020:**
+  - Dustin expresses reluctance to be friendly with Stevie due to past issues involving Rebecca Rodriguez.
+  - Stevie criticizes Dustin for his behavior towards her and others.
+  - Dustin shows indifference towards Stevie's opinions and actions.
+- **May 18, 2020:**
+  - A dispute arises over a child support card, leading to accusations and threats.
+  - Stevie accuses Dustin of neglecting his daughters and prioritizing his son.
+  - Dustin denies accusations and calls Stevie names.
+- **May 19, 2020:**
+  - Dustin requests to be left alone, highlighting stress and family involvement.
+  - Stevie argues about financial support for daughters and insults Dustin.
+- **May 20, 2020:**
+  - Dustin plans to spend time with his daughters, addresses past issues, and requests items for them.
+  - Stevie agrees to arrangements for the children but expresses concerns about Dustin's behavior and priorities.
+- The exchanges are filled with tension, accusations, insults, and threats between Dustin and Stevie, mainly revolving around financial support, parenting, and personal conflicts.
+- **2020-05-20:**
+  - Tension and misunderstandings arise between Dustin and Stevie, with accusations of past mistreatment and lack of remorse.
+  - Dustin expresses efforts to be helpful and cooperative regarding child support and visitation.
+  - Stevie questions Dustin's behavior post-relationship and requests a schedule for their children.
+- **2020-05-21:**
+  - Stevie seeks Dustin's input on purchasing bike training wheels for their children.
+  - They discuss bike options for the kids and coordinate the purchase of the training wheels.
+- **2020-05-22:**
+  - Stevie discovers Dustin's interest in dating her cousin, leading to a humorous yet tense exchange.
+  - Stevie expresses shock and disbelief at Dustin's dating choice, causing tension between them.
+  - Dustin asserts his right to privacy in his dating life, while Stevie finds humor in the situation.
+  - The conversation escalates as Stevie insists on involvement in Dustin's personal life, leading to a disagreement.
+- **May 22, 2020:**
+  - Stevie discovers Dustin's relationship with her cousin, expressing shock and disgust.
+  - Stevie confronts Dustin about the implications of their relationship on their children.
+  - Stevie accuses Dustin of making poor life choices and disrespecting their family bond.
+  - Stevie warns Dustin of the potential negative impact on their kids due to the new relationship.
+  - Emotions of anger, betrayal, and disappointment are evident in Stevie's messages.
+  - Dustin reacts dismissively and unapologetically, indicating his disregard for Stevie's concerns.
+- **May 26, 2020:**
+  - Stevie and Dustin discuss logistics regarding their children's visitation.
+  - Dustin offers to take the kids, showing a willingness to cooperate despite past conflicts.
+  - Technical issues with music recording software are briefly discussed.
+  - Stevie asserts control by deciding not to introduce Dustin to others until she is introduced.
+  - Stevie and Dustin argue about Dustin's relationship with Stevie's cousin, with Stevie threatening to ruin the relationship and reputation.
+  - Dustin defends his actions, highlighting differences between their situations and asserting his independence.
+  - Emotions of frustration, control, and defiance are apparent in the conversation.
+- **May 26, 2020**:
+  - Stevie expresses disapproval of Dustin dating someone due to family issues.
+  - Dustin dismisses family opinions, leading to a heated exchange about relationships.
+  - Stevie accuses Dustin of not caring about their children's relationships with family.
+  - Dustin and Stevie argue about past relationships and personal flaws.
+  - The conversation escalates to accusations, insults, and threats of exposing each other.
+  - Dustin emphasizes discussing only matters related to their children.
+  - Stevie plans to bring the children soon, ending the conversation.
+- **2020-05-26**:
+  - Dustin expresses the desire for a fresh start and clean slate for Stevie with someone new, leading to a confrontation about moving forward.
+  - Stevie reacts strongly, feeling betrayed and angry as Dustin starts dating her cousin, Kirsten.
+  - Stevie criticizes Dustin's choice, accusing him of causing drama and disrespecting her and her children.
+  - The conversation escalates with Stevie expressing frustration and Dustin defending his actions and relationship with Kirsten.
+- **2020-05-27**:
+  - The discussion continues with Dustin defending his relationship with Kirsten and criticizing Stevie's treatment of her.
+  - Stevie reflects on the past, feeling hurt by Dustin's actions and expressing resentment towards him.
+  - A conversation about Lydia's teeth arises, with Stevie mentioning potential cosmetic fixes and concerns during the quarantine.
+- **2020-05-28**:
+  - Stevie requests Dustin to watch the girls while she goes shopping for Kennady's birthday, offering to pay him.
+  - Dustin agrees and helps fix something for Stevie, mentioning a misunderstanding with Richard about his actions.
+  - Stevie acknowledges the fix and asks Dustin to confirm with Richard to clear any confusion.
+- **May 28, 2020:**
+  - Dustin advises Stevie on adjusting microphone input for vocals.
+  - Stevie plans to go to Walmart and discusses picking up a kayak later.
+  - Dustin faces issues with unemployment and shares concerns with Stevie.
+- **May 29, 2020:**
+  - Stevie asks Dustin about uploading documents for unemployment.
+  - Dustin expresses frustration with the process and shares concerns about its impact.
+- **May 30, 2020:**
+  - Dustin mentions girls talking about Eli and Aiden, leading to a brief disagreement with Stevie.
+  - They discuss family matters and coordinating the girls' schedule.
+- **May 31, 2020:**
+  - Stevie reacts negatively to Dustin removing strangers from YouTube music videos.
+  - Dustin explains his reasons for removing his name and face from the videos.
+  - They have a conversation about sharing music content and settle on leaving certain videos up.
+  - Dustin sends images related to the music content.
+- **May 31, 2020**:
+  - Dustin Smith provides unemployment information.
+  - Plans to drop off the girls early afternoon.
+- **June 1, 2020**:
+  - Brett and Jeremy's mom commits suicide.
+  - Stevie Linnabary expresses shock and sympathy.
+  - Dustin reaches out to Brett to offer condolences.
+  - Discussion on unemployment status.
+- **June 2, 2020**:
+  - Richard goes to the ER for surgery.
+  - Emotional discussion about recent tragic events and family support.
+  - Frustration over delayed unemployment forms.
+  - Stevie receives a medical bill in Dustin's name.
+  - Plans to support Brett and drop off the kids.
+- **2020-06-02**:
+  - Stevie offers to buy things for Smith.
+  - Smith mentions needing Redbull, hot dogs, buns, and melatonin for the kids.
+  - Conversation about snacks and respect ensues.
+- **2020-06-03**:
+  - Stevie asks Smith to take care of the kids longer due to an issue with Richard.
+  - Discussion on faxing forms and sending documents for a procedure.
+  - Frustration over technical issues and financial situations.
+  - Sharing Spotify music links and bantering about music.
+- Emotions: Frustration, cooperation, humor.
+- Interactions: Offers of help, planning logistics, sharing music recommendations.
+- Important notes: Food items needed, document faxing, financial concerns, Spotify music sharing.
+- May 16, 2019
+  - Dustin expresses concern and offers help to Stevie, who seems unwell and stressed.
+  - Stevie mentions feeling sick and unable to move due to vomiting.
+  - Emotional exchanges occur between Dustin and Stevie regarding support and responsibility.
+- May 15, 2019
+  - Dustin and Stevie discuss childcare arrangements and express gratitude for each other's efforts.
+  - Plans for the future, job applications, and parenting challenges are mentioned.
+  - Affectionate and supportive messages are shared between Dustin and Stevie.
+- May 15, 2019:
+  - Stevie expresses exhaustion and frustration with snapping at the kids due to tiredness.
+  - Conversation between Stevie and Dustin about spending quality time with Lydia and handling the kids.
+  - Discussion about potential music-making plans and challenges with kids being at Cady's.
+  - Dustin suggests ways to relax and put kids to bed early.
+  - Stevie mentions struggling to sing due to a sore throat.
+  - Dustin shares music and light-hearted moments to alleviate stress.
+  - Technical difficulties with cloud storage and plans to sell a guitar for financial reasons.
+  - Loving and supportive exchanges between Stevie and Dustin.
+- May 14, 2019:
+  - Financial concerns, job prospects, and support for each other's efforts.
+  - Dustin's willingness to help with bills and future job plans.
+  - Conversation about tight finances and the promise of a better situation soon.
+- **May 14, 2019**
+  - Dustin Smith buys walkie talkies and arranges to drop off Rayna Smith before going to McDonald's.
+  - Stevie Marie Smith expresses concern about paying Dustin's phone bill to maintain contact.
+  - Discussion about childcare arrangements and job hunting plans.
+- **May 13, 2019**
+  - Tensions between Dustin and Stevie over lack of communication and responsibilities.
+  - Dustin feels unappreciated and misunderstood, expressing frustration.
+  - Issues arise involving Richard and Clark, causing stress and emotional turmoil.
+  - Dustin reassures Stevie of his commitment and future plans to ease her burdens.
+- May 13, 2019:
+  - Dustin expresses pride and support for Stevie's music efforts.
+  - Stevie shares her dissatisfaction with her vocals and desire to improve.
+  - Dustin reassures Stevie about her talent and encourages her to be happy with her work.
+  - Dustin faces challenges with printing resumes and expresses frustration.
+  - Dustin admires Stevie's progress and expresses a desire for her success.
+- May 12, 2019:
+  - Friendly and affectionate exchanges between Dustin and Stevie.
+  - Dustin prepares music for Stevie to listen to.
+  - Discussion about personal feelings and past experiences.
+  - Mention of court and financial stress.
+  - Dustin expresses pride in Stevie's growth and confidence.
+  - Communication about possible misunderstandings and the importance of honesty and communication in their relationship.
+- May 12, 2019, 10:43 PM: Stevie expresses missing the fun times.
+- May 12, 2019, 10:27 PM: Dustin emphasizes seeing Stevie as a best friend, not just a wife.
+- May 12, 2019, 10:13 PM: Dustin apologizes for not being more supportive and acknowledges Stevie's positive changes.
+- May 12, 2019, 10:18 AM: Dustin expresses frustration and accuses Stevie of causing emotional distress.
+- May 12, 2019, 9:47 AM: Stevie conveys exhaustion and depression, highlighting a disconnect in their relationship.
+- May 12, 2019, 8:28 AM: Dustin feels hurt and ignored by Stevie, expressing emotional vulnerability.
+- May 12, 2019, 6:42 AM: Stevie mentions phone issues and expresses gratitude for being unblocked.
+- **Apr 05, 2024:**
+  - Dustin reflects on past mistakes, regrets hurting others, seeks self-improvement, and aims to avoid causing further harm.
+  - Stevie questions an unsent message from Dustin, prompting a brief exchange.
+- **Apr 02, 2024:**
+  - Stevie discusses concerns about her son's education and frustrations with the school system.
+- **Apr 01, 2024:**
+  - Stevie shares her daughters' academic achievements with Dustin.
+- **Mar 16, 2024:**
+  - Stevie expresses tiredness and difficulty communicating, while Dustin discusses attending an appointment and a potential allergy issue.
+- **Mar 25, 2024:**
+  - Stevie and Dustin exchange messages with love and positive reactions.
+- **Mar 20, 2024:**
+  - Stevie wishes Dustin a happy birthday.
+- **Mar 22, 2024:**
+  - Dustin asks Stevie to spend time with the girls, showing a collaborative parenting effort.
+- **Mar 31, 2024:**
+  - Various casual interactions between Stevie and Dustin.
+- **Mar 28, 2024:**
+  - Stevie reacts positively to Dustin's message.
+- **Mar 05-16, 2024:**
+  - Music and video sharing between Stevie and Dustin, reflecting shared interests and connections.
+- Mar 16, 2024: Stevie expresses concern about her daughter's allergies possibly being related to their new dog, seeks support for upcoming appointment.
+- Mar 16, 2024: Light-hearted exchanges between Stevie and Dustin about family, parenting, food, and personal struggles.
+- Mar 16, 2024: Stevie discusses her emotional challenges, feeling isolated, and the impact on her children.
+- Mar 16, 2024: Dustin shares regrets about his past actions and parenting.
+- Mar 16, 2024: Stevie expresses struggles with family dynamics, feeling overwhelmed, and seeking emotional support.
+- Mar 16, 2024: Dustin and Stevie touch on topics like self-worth, regrets, and coping mechanisms.
+- Mar 16, 2024: Stevie reflects on her life experiences, parenting, and emotional struggles.
+- Mar 16, 2024: Dustin provides updates on family activities and music interests.
+- Mar 16, 2024: Stevie expresses a mix of humor, frustration, and self-deprecation in discussing her life circumstances.
+- Mar 13, 2024: Dustin checks in on Stevie's well-being.
+- Mar 13, 2024:
+  - Dustin Smith expresses uncertainty about a decision regarding Stevie junior.
+  - Dustin Smith shares his frustration with someone's behavior and mentions past interactions.
+- Mar 10, 2024:
+  - Stevie Marie Linnabary discusses feeling upset about a postpartum mother and family issues.
+  - Dustin Smith and Stevie Marie discuss various songs, movies, and shows, sharing reactions and recommendations.
+  - The conversation includes references to artists like Shia LaBeouf, Taylor Swift, Jessie Murph, and discussions about music and personal struggles.
+  - Dustin Smith and Stevie Marie talk about watching movies and shows together, showing a close friendship.
+- Mar 10, 2024:
+  - Stevie Marie expresses feeling overwhelmed, unappreciated, and isolated, seeking understanding and connection.
+  - Dustin Smith mentions being in a state of intoxication.
+- Mar 05, 2024:
+  - Stevie Marie mentions getting a Sony a7ii camera.
+- Jan 24, 2024:
+  - Stevie Marie talks about someone named Rayna.
+- Jan 11, 2024:
+  - Stevie Marie seeks to rehome a hamster due to potential reactions.
+- Aug 01, 2023:
+  - Stevie Marie questions her significance compared to the vast universe.
+- Jun 29, 2023:
+  - Stevie Marie mentions being on her way somewhere.
+- Mar 04, 2023:
+  - Stevie Marie reacts positively to a message.
+- Mar 01, 2023:
+  - Dustin Smith laughs while interacting with Stevie Marie.
+- Jan 27, 2023:
+  - Stevie Marie jokingly mentions a reading at her school.
+- Jan 13, 2023:
+  - Stevie Marie plans to leave Bellevue for a short period.
+- Jun 19, 2022:
+  - Dustin Smith mentions a location shift.
+- Jun 13, 2022:
+  - Stevie Marie discusses various topics, including weather and social interactions.
+- Feb 09, 2022:
+  - Stevie Marie shares multiple video clips.
+- Feb 08, 2022: Lydia excelled in performance, while Rayna had limited visibility and sang only one song in a concert.
+- Feb 06, 2022: Stevie made a 2-minute call.
+- Feb 04, 2022: Soccer game canceled, plans to bring girls for a visit.
+- Feb 01, 2022: Emotional exchange about time, memories, and loss between Stevie and Dustin.
+- Jan 28, 2022: Everyone in quarantine due to COVID.
+- Jan 27, 2022: Concerns about higher COVID risk for transplant recipients.
+- Jan 26, 2022: Discussion on toxic family dynamics and personal struggles.
+- Jan 26, 2022: Stevie Marie discusses stress relief after leaving the pool team.
+- Jan 26, 2022: Conversation about Ryan's behavior and involvement in a fight.
+- Jan 26, 2022: Stevie shares health concerns, takes a COVID test, and mentions feeling sick.
+- Jan 26, 2022: Discussion about COVID cases among kids and adults.
+- Jan 26, 2022: Dustin and Stevie banter about various topics, including past relationships.
+- Jan 25, 2022: Excitement about upcoming events and practices.
+- Jan 24, 2022: Stevie shares details about kids' activities and practices.
+- Jan 22, 2022: Missed call notification from Stevie.
+- **Jan 21, 2022:**
+  - Stevie called Dustin but he missed the call.
+  - Dustin asked Stevie for admin access to Lydia's messenger account.
+- **Jan 20, 2022:**
+  - Dustin expressed frustration over COVID.
+  - Stevie mentioned car trouble due to COVID exposure.
+- **Jan 19, 2022:**
+  - Stevie updated Dustin on the girls' health.
+- **Jan 12, 2022:**
+  - Stevie called Dustin, but he missed the call.
+- **Jan 05, 2022:**
+  - Dustin and Stevie discussed picking up the girls.
+- **Jun 23, 2021:**
+  - Dustin shared a heartfelt message with Stevie.
+- **Sep 26, 2020:**
+  - Dustin and Stevie had a brief exchange about messaging issues.
+- Sep 26, 2020: Stevie Marie expresses the need to take a break and mentions feeling unwell, deciding not to use a particular account.
+- Sep 26, 2020: Dustin Smith offers understanding but expresses confusion about the situation and suggests unblocking on another account.
+- Sep 26, 2020: Stevie Marie explains the need to talk to someone calmly and why she stood up for her feelings.
+- Sep 26, 2020: Dustin Smith expresses pride in their conversations and shares concerns about feeling cut off when Stevie Marie interacts with someone else.
+- Sep 26, 2020: Dustin Smith discusses his feelings of loneliness and worthlessness after previous interactions with Stevie Marie.
+- Sep 26, 2020: Dustin Smith emphasizes the importance of protecting his mental health and explains his decision to block Stevie Marie temporarily.
+- Sep 26, 2020: Stevie Marie expresses understanding of the situation and acknowledges dealing with personal issues.
+- Sep 26, 2020: Dustin Smith highlights the need for change and personal responsibility in their interactions.
+- Sep 26, 2020: Stevie Marie apologizes for the impact of her actions on Dustin Smith.
+- Sep 26, 2020: Dustin Smith mentions feeling homesick and tired, but still offers support while setting boundaries.
+- Sep 26, 2020: Dustin Smith emphasizes his effort to control his reactions and emotions, expressing a desire to avoid negativity.
+- Sep 26, 2020: Stevie Marie discusses dealing with personal matters while trying to address a living situation.
+- Sep 26, 2020: Dustin Smith sets clear boundaries regarding communication and involvement based on the situation with Stevie Marie's partner.
+- Sep 26, 2020: Dustin Smith expresses willingness to help Stevie Marie once she decides to make a change in her situation.
+- Sep 26, 2020 2:08:04pm: Stevie Marie reaches out, questioning why she was blocked, mentioning personal struggles.
+- Sep 26, 2020 2:23:24pm: Author expresses growth, refrains from engaging in negative interactions, encourages others to make their choices, and not involve her in their issues.
+- **2011-12-08**
+  - Stevie shares a song link with Dustin, expressing her love for the song and suggesting he listens to the lyrics.
+- **2011-12-05**
+  - Dustin sends a message with a kiss emoticon to Stevie.
+  - Stevie responds with a simple emoticon.
+- **2011-11-30**
+  - Stevie sends playful emojis, including a heart and a wink.
+  - Dustin responds with a suggestive and humorous message.
+  - Stevie expresses affection and sends more emojis.
+  - Dustin playfully wishes Stevie was with him.
+- **2011-11-29**
+  - Dustin sends a series of single letters and a heart emoji.
+  - Stevie reciprocates the heart emoji.
+- **2011-11-28**
+  - Compliments are exchanged between Stevie and Dustin.
+- **2011-11-23**
+  - Stevie asks about Dustin's location humorously.
+  - Dustin expresses admiration for Stevie.
+- **2011-11-22**
+  - Light-hearted banter, affectionate exchanges, and planning for Christmas gifts between Stevie and Dustin.
+- **2011-11-20**
+  - Stevie and Dustin share affectionate messages and discuss music preferences.
+- **2011-11-20**
+  - Stevie Marie Ferman expresses happiness and love for a video.
+  - Dustin Smith and Stevie discuss living arrangements and work proximity.
+  - Sweet and affectionate exchanges between Stevie and Dustin.
+  - Stevie eagerly anticipates making their relationship public.
+- **2011-10-27**
+  - Stevie and Dustin catch up after a long time, discussing work and life situations.
+  - Friendly and casual conversations between Stevie and Dustin.
+  - Mention of Marshall town and college life by Stevie.
+- **2011-10-26T19:45:00**
+  - Dustin Smith expressed eagerness to be added by saying, "`r u ever going to add me poop head?`"
+- **2011-09-28T16:24:00**
+  - Dustin Smith used a playful emoticon, "`:P`."
+- **2011-05-06T15:27:00**
+  - Dustin Smith checked in with a friendly, "`Hey how ya been?`"
+- **2011-02-12T20:46:00**
+  - Dustin Smith asked, "`Can't be friends?`"
+- **2011-02-12T20:45:00**
+  - Dustin Smith inquired, "`Can't add me?`"
+- **2009-12-18T21:45:00**
+  - Dustin Smith reached out affectionately, "`How have u been pretty lady?`"
+- **2009-12-18T21:38:00**
+  - Responding to someone's apology, a person expressed sympathy with, "`oh =[ im sorry bud..`"
+- **2009-12-18T21:36:00**
+  - Dustin Smith shared a somber feeling, "`Becuz nothing makes me happy n e more`"
+- **2009-11-01T19:44:00**
+  - Dustin Smith offered support and a listening ear, "`Hey cheer up kiddo if ya need to talk u can text or call 269-832-4016 hope things get better`"
+- **2020-05-15**:
+  - Dustin Smith struggles with communication, expressing discomfort and desire for personal space.
+  - Stevie Linnabary agrees to watch the girls, seeks time alone for mental health.
+  - Dustin appreciates Stevie's help and support, acknowledges the need for space.
+- **2020-05-16**:
+  - Dustin cancels plans for Stevie to watch the girls, expresses relief.
+  - Dustin informs Stevie about talking to someone new, emphasizes moving on.
+- **2020-05-17**:
+  - Dustin confronts Stevie about potential interactions with Tyler or someone new.
+  - Misunderstandings and tensions rise, leading to Dustin expressing disappointment and seeking distance.
+  - Dustin decides to end the friendship due to perceived lack of honesty and trust.
+- **2020-06-03:**
+  - Dustin expresses concern about hanging out with "TY TY" and encourages Stevie to focus on better relationships like with Aaron.
+  - Stevie mentions phone died due to drinking, clarifies not being with "TY TY."
+- **2020-06-04:**
+  - Dustin checks on Stevie's well-being after hearing sirens and both express mutual concern for each other.
+  - Dustin shares about attending a funeral, indicating a difficult emotional time.
+- **2020-06-07:**
+  - Dustin inquires about Stevie's unemployment status and the well-being of her girls.
+  - Plans are made for Dustin to spend time with Stevie's girls, both express missing each other.
+  - Light-hearted interactions about internet, social media, and shared videos occur.
+- **2020-06-08:**
+  - Stevie offers Dustin to stay with the girls while she's away, and they discuss arrangements.
+  - Conversations include financial struggles, unemployment issues, and sharing resources like Netflix login.
+- **2020-06-09:**
+  - Discussion on financial support, headphones purchase, and frustrations over delayed unemployment payments.
+  - Light-hearted exchanges and sharing of personal moments, like drinking in the car and casual requests for money.
+- **2020-06-09:**
+  - Positive encouragement received from Dustin Smith.
+  - Supportive messages exchanged about avoiding destructive behaviors.
+  - Emotional conversation about the impact of a show and reflecting on past relationships.
+  - Support offered during a difficult moment regarding a friend's passing.
+- **2020-06-10:**
+  - Plans made to meet due to potential bad weather conditions.
+  - Discussion about getting supplies, including a flashlight, batteries, and drinks.
+- **2020-06-11:**
+  - Conversation about weather conditions turning bad.
+- **2020-06-12:**
+  - Playful discussion about nose piercing and sharing funny content.
+- **2020-06-13:**
+  - Coordination for meeting up and details about power outage.
+- **2020-06-14:**
+  - Plans for another meet-up and casual conversation.
+- **2020-06-15:**
+  - Frustration expressed over unemployment payment processing.
+  - Last-minute coordination for meeting up.
+- **2020-06-15**:
+  - Stevie Linnabary wonders if she needs to leave.
+  - Dustin Smith expresses anger over not receiving money from UIA.
+  - Dustin expresses frustration with UIA processing delays.
+  - Stevie encourages Dustin not to give up on resolving the payment issue.
+  - Dustin contemplates giving up on UIA and finding a job due to payment delays.
+- **2020-06-16**:
+  - Dustin shares financial concerns and lack of dollar amount information for his delayed payment.
+  - Stevie offers financial help and suggests contacting MI Works for assistance.
+  - Dustin declines immediate financial help and expresses exhaustion.
+  - Dustin and Stevie share music videos link and discuss gift ideas for Rayna's birthday.
+  - Dustin shares a book link and conversation about ordering it.
+- **2020-06-17**:
+  - Dustin suggests Stevie keep the money meant for the girls.
+  - Stevie offers to return the money but feels conflicted when receiving child support.
+- **2020-06-17**
+  - Dustin plans to save money for emergencies and mentions a potential vacation to LEGO land with kids.
+  - Discussion about buying a hoverboard for Rayna's birthday party.
+  - Dustin asks Stevie to cut his hair.
+  - Shopping list exchange between Dustin and Stevie.
+  - Dustin asks Stevie for financial help to go to the casino.
+- **2020-06-18**
+  - Dustin reflects on his past struggles with addiction and the impact on his family.
+  - Discussion about recovery and the challenges of rebuilding his life.
+  - Dustin expresses uncertainty about finding joy and purpose post-addiction.
+  - Light-hearted conversation about food cravings and mall visits.
+  - Stevie shares personal struggles and potential misunderstandings with Aaron.
+- **June 18, 2020**:
+  - Dustin Smith mentions falling asleep and plans to see Stevie Linnabary around noon the next day.
+- **June 19, 2020**:
+  - Conversations about errands, watching kids, and going to stores occur between Dustin and Stevie.
+  - Dustin shares a Spotify track with Stevie.
+  - Talk about plans and a date with another person.
+- **June 20, 2020**:
+  - Dustin offers support to Stevie and suggests getting an AC unit.
+  - Stevie expresses feeling overwhelmed and annoyed.
+  - Dustin offers to come over and smoke a joint with Stevie.
+- **June 21, 2020**:
+  - Tension arises between Dustin and Stevie regarding past events and potential involvement with someone else.
+  - Arguments escalate, leading to Dustin expressing hurt and frustration.
+  - Dustin decides to distance himself and expresses disappointment in the situation.
+  - Strong emotional reactions and accusations occur, leading to Dustin indicating a break in their friendship.
+  - Dustin expresses feeling betrayed and vows not to get involved further.
+- **June 22, 2020**:
+  - Dustin expresses intense anger and threats towards someone, filled with hate and violent intentions.
+- **June 28, 2020**:
+  - Stevie and Dustin coordinate plans for taking care of the children, with Stevie asking Dustin to keep the girls till she's done.
+- **June 30, 2020**:
+  - Stevie asks Dustin to take the girls earlier, leading to a tense exchange about communication and blocking.
+- **July 4, 2020**:
+  - Dustin wishes a happy 4th of July and sends his love to the girls.
+- **July 8, 2020**:
+  - Miscommunication arises between Stevie and Dustin regarding child visitation arrangements, causing frustration.
+- **July 10, 2020**:
+  - Stevie and Dustin discuss child support and custody arrangements, with Stevie hesitant to provide funds until she is sure Dustin will fulfill his obligations.
+- 2020-07-17:
+  - Dustin Smith is unable to keep the girls due to prior commitments despite Cady not receiving her COVID results.
+  - Stevie Linnabary expresses frustration at Dustin's priorities, leading to a heated exchange.
+- 2020-07-24:
+  - Dustin Smith agrees to pick up the girls but requests money, citing financial strain due to fixing a septic issue.
+- 2020-07-31:
+  - Dustin Smith secures a new job with travel requirements and proposes a child care arrangement.
+  - Stevie Linnabary raises concerns about consistency and potential daycare needs.
+- 2020-08-07:
+  - Tensions rise as Dustin asks Stevie to drop off the girls due to work issues and transportation logistics.
+  - Miscommunication and conflict escalate, leading to accusations and disagreements over childcare responsibilities.
+- 2020-08-08:
+  - Dustin questions Stevie's behavior, leading to further discord in their communication.
+- **August 8, 2020**:
+  - Stevie Linnabary expresses frustration as plans were disrupted, leading to emotional outbursts from Dustin Smith.
+  - Dustin Smith displays anger and threats, indicating a strained and contentious interaction.
+  - Tension escalates with mentions of jail, emotional distress, and confrontational language.
+  - Discussion about child custody arrangements and refusal to cooperate civilly.
+  - Dustin Smith threatens violence, leading to a volatile exchange.
+- **August 9, 2020**:
+  - Dustin Smith expresses a deep sense of betrayal and sets a tone of irreversible damage in their relationship.
+- **August 13, 2020**:
+  - Stevie Linnabary and Dustin Smith attempt to address custody arrangements and communication for the well-being of the children.
+  - Dustin Smith expresses a commitment to maintaining a civil relationship for the sake of the children.
+  - Plans for child pick-up and drop-off are discussed, emphasizing the importance of positive co-parenting.
+  - Both parties express a desire to minimize drama and prioritize the children's happiness.
+  - Plans for the children's school arrangements are mentioned as a point of future coordination.
+- **August 13, 2020**
+  - Dustin Smith plans to grab car seats from his mom's work.
+  - Stevie expresses frustration with Dustin for getting involved in personal matters with Tyler.
+  - Dustin insists he has stayed out of things for over a month to focus on positive aspects of his life.
+  - Stevie confronts Dustin about provoking fights and highlights the impact on their children's well-being.
+  - Dustin explains his perspective on a recent situation involving the children and expresses his concerns.
+  - Dustin arrives at the location.
+  - Stevie clarifies her reasons for not bringing the children and stresses the need for cooperation and civility for the children's sake.
+- **May 17, 2020:**
+  - Stevie expresses lack of respect for Dustin due to past issues.
+  - Dustin defends someone who wronged Stevie, leading to hostile exchange.
+- **May 18, 2020:**
+  - Stevie accuses Dustin of stealing money, threatens police involvement.
+  - Dustin denies theft, argument escalates with insults and threats.
+- **May 19, 2020:**
+  - Continued accusations, disagreements over child support and parenting.
+  - Mention of illness in children and financial support disparity.
+- **May 20, 2020:**
+  - Dustin buys bikes for daughters, plans to have them visit.
+  - Dustin seeks resolution and expresses desire for a fresh start.
+  - Stevie and Dustin coordinate children's visitation with some tension.
+  - Dustin insists on helping but prioritizes personal plans.
+- **2020-05-20**:
+  - Stevie expresses frustration with Dustin for not acknowledging past mistreatment.
+  - Dustin defends himself, emphasizing his current efforts to be nice and helpful.
+  - Stevie questions Dustin's lack of remorse for his past behavior.
+  - Discussion about child visitation schedule ensues.
+- **2020-05-21**:
+  - Dustin and Stevie discuss purchasing bicycle training wheels for the kids.
+  - Dustin agrees to order the training wheels.
+  - Stevie mentions shopping online for the bikes.
+- **2020-05-22**:
+  - Stevie discovers Dustin is interested in dating her cousin, causing shock and amusement.
+  - Stevie expresses disbelief and humor at the situation.
+  - Dustin asserts his right to privacy in his dating life.
+  - Stevie continues to find the situation amusing and expresses concerns about Dustin dating her family member.
+- 2020-05-22: Stevie expresses shock and anger at Dustin's actions, mentioning the impact on their kids and family relationships.
+- 2020-05-22: Stevie confronts Dustin about his relationship choices and criticizes his behavior and decisions.
+- 2020-05-22: Dustin responds dismissively, causing Stevie to express further frustration and disgust.
+- 2020-05-26: Dustin initiates contact, leading to a discussion about parenting responsibilities and upcoming plans for the children.
+- 2020-05-26: Stevie and Dustin discuss technical issues and make arrangements for the children's visitation.
+- 2020-05-26: Stevie sets conditions regarding meeting Dustin's new partner, highlighting her concerns and intentions to intervene.
+- 2020-05-26: A tense conversation ensues regarding Dustin's new relationship and Stevie's threats to ruin it, leading to escalating tension and disagreement.
+- **May 26, 2020**:
+  - Stevie warns Dustin about the consequences of dating someone.
+  - Dustin asserts his indifference towards Stevie's opinions and their past, vowing not to let her affect his life.
+  - Stevie expresses intentions to make someone feel worthless and cautions against messing with her family.
+  - Dustin distances himself from helping Stevie and emphasizes his focus on the girls.
+  - Stevie brings up family connections and expresses dislike towards Dustin dating her cousin.
+  - A heated exchange ensues with accusations and insults exchanged between Stevie and Dustin.
+  - Dustin attempts to end the conversation, emphasizing his lack of concern for Stevie's opinions and past actions.
+  - Stevie criticizes Dustin's behavior, calling him fake and toxic, leading to further arguments.
+  - Dustin tries to steer the conversation towards co-parenting and the girls, but Stevie continues to engage in confrontational dialogue.
+  - Dustin eventually tries to reassure Stevie about moving forward and clarifies his intentions.
+- **May 26, 2020**:
+  - Dustin Smith expresses a desire for a drama-free environment and acknowledges his mistakes.
+  - Stevie Linnabary confronts Dustin about dating her cousin, expressing anger and disappointment.
+  - Stevie implies drug use by Dustin and criticizes his relationship choices.
+- **May 27, 2020**:
+  - Dustin expresses frustration at not being understood and defends his new relationship with Kirsten.
+  - Stevie continues to express resentment towards Dustin and criticizes their past relationship.
+- **May 28, 2020**:
+  - Stevie requests Dustin to babysit the girls for her daughter's birthday, offering payment.
+  - Dustin helps Stevie with technical issues and provides feedback on vocal recordings.
+  - Dustin and Stevie coordinate plans, showing a level of cooperation despite underlying tensions.
+- **May 28, 2020**:
+  - Stevie plans to pick up a kayak at noon from Dunham's.
+  - Dustin faces issues with unemployment, causing frustration and uncertainty.
+- **May 29, 2020**:
+  - Dustin asks Stevie for help with uploading documents for unemployment benefits.
+- **May 30, 2020**:
+  - Tension arises between Dustin and Stevie regarding personal matters.
+  - Plans are made for child arrangements.
+- **May 31, 2020**:
+  - Dustin decides to remove certain content from YouTube, leading to a disagreement with Stevie.
+- **June 1, 2020**:
+  - Tragic news of a mutual acquaintance's mother's suicide is shared, evoking shock and sympathy.
+- **June 1, 2020**:
+  - **Stevie Linnabary** submitted unemployment but hasn't received a response.
+  - Light-hearted banter between **Dustin Smith** and Stevie about mistaken identity.
+  - Discussion about giving kids melatonin to help them sleep.
+  - Conversation about a musician named Jonny Craig.
+- **June 2, 2020**:
+  - Concern about a friend going to the ER for surgery.
+  - Emotional support and empathy regarding a friend's loss.
+  - Frustration about delays in receiving unemployment forms.
+  - Exchange about sending necessary documents for unemployment benefits.
+  - Surprise medical bill received and discussed.
+  - Plans for childcare arrangements and grocery needs.
+  - Humorous exchange about respect and grocery items needed.
+  - Coordination of snacks, drinks, and melatonin for the kids.
+- **2020-06-02**:
+  - Stevie Linnabary discusses melatonin with Dustin Smith.
+  - Stevie expresses concern for Richard's well-being.
+  - A plan is made regarding the care of the girls and personal matters.
+- **2020-06-03**:
+  - Stevie asks Dustin to watch the girls due to other commitments.
+  - Technical difficulties and frustrations arise with online processes.
+  - Music recommendations are shared between Stevie and Dustin.
+  - Logistics and humorous exchanges about daily tasks occur.
+  - Dustin forgets to return the melatonin to Stevie.
+- **June 25, 2016**:
+  - Dustin's phone malfunctioned, leading to a clean restart with iOS 9.3.
+  - Stevie arranged lunch plans with Cady and discussed financial support for Travis to call.
+  - Stevie mentioned using Jpay instead of regular phone calls in the future for Travis.
+  - Dustin requested McDonald's breakfast, and Stevie sorted out food arrangements.
+  - Excitement about a chair delivery from FedEx.
+- **June 26, 2016**:
+  - Stevie shared updates on her pregnancy, including efforts to reposition the baby.
+  - Mention of birthday gift plans for Everett Smith.
+  - Dustin expressed concern about eating while Stevie was in labor.
+  - Progress in the labor process, with Stevie feeling contractions.
+- **June 27, 2016**:
+  - The couple discussed a potential fraudulent charge on Stevie's account while she was in the hospital.
+  - Plans to cancel the card and monitor account transactions.
+  - Stevie mentioned transferring her money into Dustin's account for security.
+  - Expressions of love and appreciation between the couple during this intense time.
+  - Updates on financial account balances and gas refueling.
+- **2016-07-13**:
+  - Stevie Linnabary expresses frustration with handling kids and a tense exchange with Dustin Smith ensues.
+  - Stevie Linnabary is overwhelmed by child behavior and relationship issues with Dustin Smith.
+  - Dustin Smith displays indifference and frustration towards the situation.
+- **2016-07-14**:
+  - Stevie Linnabary and Dustin Smith discuss daily activities and mundane tasks.
+  - Dustin Smith expresses regret for his behavior the previous night and tries to make amends.
+  - Stevie Linnabary addresses parenting concerns and communication issues with Dustin Smith.
+- **2016-07-15**:
+  - Stevie Linnabary and Dustin Smith discuss their son Everett Smith's upcoming physical examination and parenting challenges.
+  - Dustin Smith expresses regret for not spending enough time with his son and feeling disconnected.
+  - Stevie Linnabary reassures Dustin Smith and discusses the impact of their circumstances on their children.
+  - Dustin Smith mentions seeking medical help for fatigue and struggles with energy levels.
+- **2016-07-15**:
+  - **Dustin** expresses worry about relying on pills to function.
+  - **Stevie** empathizes with Dustin's stress regarding medication reliance.
+  - Light-hearted banter about work and a chair matching the couch.
+  - Stevie expresses frustration with family, clutter, and feeling overwhelmed.
+  - Dustin reassures Stevie and offers help.
+  - Discussion about dinner plans and grocery shopping.
+- **2016-07-16**:
+  - Playful conversation about handling poop and facial rash.
+  - Shopping plans, food preferences, and budget concerns are discussed.
+- **2016-07-17**:
+  - Stevie expresses financial distress and uncertainty about making it through the week.
+  - Discussion on tight finances, expenses, and the stress of struggling financially.
+  - Stevie contemplates the need to go back to work or find alternative solutions.
+- **2016-07-17**:
+  - Dustin expresses feeling burnt out and tired, lacking motivation.
+  - Stevie offers support and suggests napping.
+  - Stevie mentions Rebecca picking up Everett for shopping.
+- **2016-07-18**:
+  - Discussion about a storm and feeling evil with a $6.66 total at McDonald's.
+  - Dustin shares concerns about a doctor's appointment and medication issues.
+  - Stevie expresses anxiety after hearing about a child's cancer diagnosis.
+- **2016-07-19**:
+  - Conversations about babysitting and tiredness.
+  - Light-hearted talks about TV shows and characters.
+- **2016-07-20**:
+  - Stevie wishes Dustin a good day.
+- **2016-07-20**:
+  - Stevie Linnabary expresses feeling depressed due to lack of time with partner.
+  - Dustin Smith acknowledges work stress affecting home life.
+  - Discussion about medication causing anger.
+  - Stevie suggests a break for Dustin.
+  - Light-hearted conversation about children's activities.
+- **2016-07-21**:
+  - Stevie feels overwhelmed with childcare responsibilities and expresses frustration.
+  - Tension arises between Stevie and Dustin regarding household duties.
+  - Dustin offers to help but an argument ensues.
+  - Stevie lists tasks completed and asserts her contributions to the household.
+  - Misunderstanding leads to escalated argument.
+- **2016-07-21**
+  - Stevie expresses frustration about not getting help with childcare and feeling overwhelmed.
+  - Dustin defends himself, citing work and lack of sleep as challenges.
+  - Stevie mentions sleep deprivation and lack of relaxation, highlighting her struggles.
+  - Tensions rise as both express feelings of underappreciation and imbalance in responsibilities.
+- **2016-07-22**
+  - Lighter conversations about a surprise kitten visit and daily activities.
+  - Some banter and brief exchange about daily routines and errands.
+  - Disagreement arises over parenting styles and disciplining children, leading to a heated argument.
+  - Stevie expresses frustration over perceived favoritism towards Dustin's son and unequal treatment of their children.
+  - Dustin and Stevie clash over enforcing rules and responsibilities with their respective children.
+  - The conversation escalates into accusations of unfair treatment, lack of discipline, and differing parenting approaches.
+- **2016-07-22 13:17:24**: Stevie expresses frustration about parenting advice given to Cam.
+- **2016-07-22 13:17:35**: Stevie decides not to deal with the situation anymore.
+- **2016-07-22 13:17:51**: Stevie asserts that her child doesn't have to follow rules if the other child doesn't.
+- **2016-07-22 13:18:33**: Stevie expresses anger and frustration towards Dustin regarding parenting and discipline.
+- **2016-07-22 13:21:02**: Stevie criticizes Dustin for not enforcing rules with his child.
+- **2016-07-22 13:22:39**: Stevie emphasizes the lack of discipline in Dustin's parenting.
+- **2016-07-22 13:25:30**: Stevie challenges Dustin about prioritizing his children.
+- **2016-07-22 13:30:37**: Dustin questions Stevie's authority and knowledge.
+- **2016-07-22 13:51:02**: Stevie expresses frustration about Dustin's priorities.
+- **2016-07-22 13:55:59**: Argument escalates over parenting responsibilities and priorities.
+- **2016-07-22 14:15:00**: Dustin suggests Stevie takes a break from parenting if needed.
+- **2016-07-22 14:19:25**: Stevie emphasizes the importance of discipline and consequences for children.
+- **2016-07-22 14:20:20**: Stevie explains the rule about drinks staying in the kitchen to avoid spills.
+- **2016-07-22**:
+  - Stevie Linnabary expresses frustration as someone only half-cleaned a mess and had to mop up.
+  - Tensions rise with mention of a child's behavior and lack of discipline.
+  - Apology from Stevie Linnabary about feeling unheard and insignificant.
+  - Food preferences discussed for Lydia Smith and plans for dinner.
+- **2016-07-23**:
+  - Stevie Linnabary offers to buy drinks and suggests deep-fried foods.
+  - Dustin Smith requests Mountain Dew and discusses food options.
+  - Dustin Smith experiences severe diarrhea, causing distress.
+  - Stevie Linnabary suggests alternatives due to items being sold out.
+- **2016-06-27**:
+  - Dustin thanks Stevie for being a great wife and mom.
+  - Discussion about food choices with humor and consideration for Stevie's stomach.
+- **2016-06-28**:
+  - Light-hearted banter about their daughter and morning routine.
+- **2016-06-29**:
+  - Stevie shares about their daughter's progress and interactions.
+  - Plans for the day and discussions about sleep schedules.
+- **2016-06-30**:
+  - Dustin and Stevie express fatigue and love for each other.
+  - Small incidents like password changes discussed.
+  - Arrangements for lunch and observations about their daughters.
+  - Positive interactions and finding good deals like a toddler mattress.
+- **June 30, 2016**:
+  - Stevie offers ice cream to Dustin.
+  - Dustin mentions "butter feenderz."
+  - Stevie hints at a playful gesture later in the day.
+- **July 1, 2016**:
+  - Affectionate exchanges of "Love you" and "Good morning."
+  - Dustin receives a surprise baby gift at work.
+  - Plans for a family outing are discussed.
+  - Stevie expresses anxiety and seeks support.
+- **July 2, 2016**:
+  - Stevie expresses emotional distress and feeling overwhelmed.
+  - Dustin offers support and reassurance.
+  - Minor issues with children are mentioned.
+  - Plans for dinner and watching a movie are discussed.
+- **July 4, 2016**:
+  - Stevie jokes about dying.
+  - Photo sharing and checking on status updates mentioned.
+- **2016-07-04**:
+  - Stevie and Dustin express desires for sexual intimacy.
+- **2016-07-05**:
+  - Stevie and Dustin discuss starting garbage services and switching electric billing.
+  - Stevie expresses anxiety over managing bills and interactions with ex-partner Cory regarding child support.
+  - The couple organizes waste management services, discusses TV and gaming setup for children, and plans for future expenses.
+  - Stevie expresses frustration over financial concerns and seeks Dustin's help.
+  - The couple navigates parenting challenges and plans for family entertainment setups.
+  - Dustin supports Stevie emotionally and handles household discussions.
+- **2016-07-05**:
+  - Stevie Linnabary expresses frustration.
+  - Dustin Smith finds the situation weird.
+- **2016-07-06**:
+  - Stevie sees someone resembling Andy.
+  - Conversation about helping Dustin feel better.
+  - Dustin expresses desire to leave work.
+  - Stevie offers support and humor.
+  - Stevie shares a concerning incident with Lydia holding Rayna.
+  - Discussion about work stress and conflicts with coworkers.
+  - Planning for household chores and meals.
+  - Dustin appreciates Stevie and expresses love.
+  - Stevie mentions a new food item and electric bill concerns.
+  - Affectionate exchanges and expressions of love.
+- **2016-07-07**:
+  - Stevie mistakenly sent an emoji.
+  - Stevie confirmed plans related to router and modem setup.
+  - Stevie discussed household tasks and indicated leaving soon.
+  - Stevie inquired about the gas being switched.
+  - Dustin confirmed arrangements and tasks completion.
+  - Stevie expressed annoyance over kids' behavior and Xbox issues.
+  - Dustin mentioned getting help for moving.
+  - Stevie had concerns about Xbox issues affecting the black screen.
+  - Dustin expressed stress over work.
+- **2016-07-08**:
+  - Stevie shared concerns about police purging and lack of sleep.
+  - Stevie described a bad dream and health concerns of child.
+  - Stevie discussed possible credit card compromise.
+  - Stevie vented about kids' behavior and grounding them from Xbox.
+  - Dustin expressed work stress and aggravation with a colleague.
+- **2016-07-09**:
+  - Stevie shared credit score improvement and card location.
+  - Dustin mentioned a better day at work and colleague's support.
+  - Plans for moving discussed – considering using a trailer or a U-Haul.
+- **2016-07-09**:
+  - Stevie and Dustin discuss renting a vehicle, managing finances, and preparing for a move.
+  - Stevie expresses frustration over the situation and stress about packing and moving.
+  - Dustin offers to help and compliments Stevie on her efforts.
+- **2016-07-10**:
+  - Stevie mentions moving tasks, concerns about finances, and family dynamics.
+  - Dustin and Stevie exchange messages about responsibilities, purchases, and family matters.
+  - Stevie expresses frustration over kids' demands and financial stress.
+- **2016-07-11**:
+  - Stevie discusses using Dustin's card for expenses and applying for a student loan to help with finances.
+  - Dustin reassures Stevie and expresses love and support.
+  - Stevie plans to use the loan for a vehicle for Dustin if approved, showing care and concern for their financial situation and future.
+- **2016-07-11**
+  - Lydia imitates a phone call, bringing laughter.
+  - Positive interactions about family and dinner.
+  - Plans for kids' activities discussed.
+- **2016-07-12**
+  - Concern and anger about shootings in Jackson.
+  - Personal and intimate conversation about relationship and intimacy.
+  - Frustration over financial charges and communication breakdown.
+  - Tension arises regarding household responsibilities and lack of quality time together.
+  - Misunderstandings lead to arguments about support and communication.
+- **2016-07-13:**
+  - **08:07:10:** Stevie Linnabary is waiting to hear back.
+  - **09:02:52:** Dustin Smith expresses feeling stressed out.
+  - **09:03:09:** Stevie Linnabary reaches out to inquire about Dustin's stress and offers support.
+  - **09:06:43:** Dustin Smith discusses work-related issues and progress with parts.
+  - **09:07:55:** Discussion about work conflict and dissatisfaction with a colleague named Chris.
+  - **09:24:23:** Dustin advises Stevie not to stress herself.
+  - **11:01:14:** Compliment exchange about hair.
+  - **13:30:35:** Dustin mentions the kids are sleeping.
+  - **17:06:35:** Tension arises between Stevie and Dustin regarding parenting issues and financial matters.
+  - **17:49:17:** Verbal conflict escalates, leading to discussions of potentially ending the relationship.
+- **2017-02-25:**
+  - Dustin initiated conversation with a flirty tone towards Stevie.
+  - Stevie expressed love towards Dustin.
+  - Light-hearted banter about Taco Bell and phone preferences.
+  - Dustin offered to get Stevie food and talked about buying a phone holder.
+  - Stevie mentioned going to Walmart together.
+  - Stevie listened to a song Dustin tagged her in.
+  - Flirtatious interaction where Dustin called Stevie sexy.
+  - Stevie mentioned being tired and ready for bed after a long day.
+- **2017-02-26:**
+  - Stevie seemed overwhelmed and expressed frustration.
+  - Dustin tried to comfort Stevie and suggested taking a destress bath.
+  - Affectionate exchange where Stevie appreciated Dustin and called him the best husband.
+  - Humorous conversation where Dustin joked about being with someone else.
+  - Mention of taking care of their daughter Lydia.
+- **2017-02-27:**
+  - Discussion about Travis's situation and arraignment.
+  - Light-hearted conversation involving anticipation for news and phone issues.
+  - Dustin expressed nervousness about Travis and inquired about others being there.
+  - Humorous exchange between Dustin and himself when Stevie was unavailable.
+- **2017-03-07:**
+  - Tense conversation about intimacy and exhaustion, leading to frustration.
+  - Argument regarding sexual dynamics and mutual blame.
+  - Tension escalates with Dustin trying to provoke a reaction from Stevie.
+  - Disagreement ends the day on a negative note.
+- **2017-03-08:**
+  - Stevie greeted Dustin in the morning and inquired about work.
+  - Mention of sending something to be printed via email.
+- **2017-03-08**:
+  - Lydia pulls Stevie close to watch YouTube, showing a tender moment.
+  - Stevie adds money to her phone to talk to Travis.
+  - Discussion about watching Kennady and wifi issues.
+- **2017-03-10**:
+  - No notable events.
+- **2017-03-13**:
+  - Stevie initiates contact with a simple "Hey."
+- **2017-03-17**:
+  - Dustin shares music excitement with Stevie.
+  - Expressions of love exchanged between Dustin and Stevie.
+- **2017-03-23**:
+  - Tension rises between Dustin and Stevie regarding marital issues.
+  - Dustin expresses frustration and suggests sleeping in the van.
+  - Emotional exchange escalates with mentions of self-harm and relationship challenges.
+  - Stevie expresses feelings of hurt and frustration in the relationship.
+  - Dustin expresses feeling unappreciated and misunderstood, contemplating drastic actions.
+  - Stevie and Dustin argue about responsibilities and emotional support.
+  - The conversation ends with a sense of resignation and emotional distress from both parties.
+- **2017-03-23**:
+  - Dustin expresses feeling not good enough and mentions marrying the wrong person.
+  - Stevie says goodbye and indicates feeling blamed.
+  - Dustin mentions having a freezing cold van to sleep in and feeling unloved.
+  - Stevie expresses frustration about crying, family issues, and Dustin's actions.
+  - Dustin asks for a divorce, leading to Stevie's agreement.
+  - Tensions rise as they discuss personal changes and relationship dynamics.
+  - Dustin suggests selling his phone and spending more time with Stevie and the kids.
+  - Stevie expresses feeling pressured to change and decides to stop asking Dustin to change.
+  - The conversation ends with Dustin feeling miserable and Stevie stating what she believes isn't good enough.
+- **2017-03-23**:
+  - Dustin expresses self-acceptance and desire for love.
+  - Stevie responds indifferently and abruptly ends the conversation.
+- **2017-03-24**:
+  - Dustin is late but takes it lightly.
+  - Stevie feels like it's the longest day of her life.
+- **2017-03-29**:
+  - Dustin tries to communicate with Stevie, who seems preoccupied.
+  - Stevie mentions talking to someone named Travis.
+- **2017-04-29**:
+  - Dustin sends two messages but receives no response.
+- **2017-05-02**:
+  - Dustin attempts to discuss the children with Stevie.
+  - Stevie blocks Dustin's number due to feeling bothered by irrelevant messages.
+  - Dustin mentions weekend plans and inability to take the children.
+  - Tension arises with Dustin hinting at an affair and Stevie asserting boundaries.

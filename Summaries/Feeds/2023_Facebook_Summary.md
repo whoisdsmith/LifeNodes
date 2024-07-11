@@ -1,0 +1,59 @@
+# 2023_Facebook_Summary
+
+- **2023-01-05T00:17:34**
+  - Heath Ledger as Eddie Brock/Venom in every Universe except this one.
+- **2023-01-06T15:27:41**
+  - A message about Hell being what you make it, with repetitive text.
+- **2023-01-06T17:39:20**
+  - Heath Ledger as Venom mentioned repeatedly.
+- **2023-01-06T17:46:05**
+  - Continued mention of Heath Ledger as Venom.
+- **2023-01-06T17:49:11**
+  - Heath Ledger as Venom repeatedly mentioned.
+- **2023-01-06T17:53:43:**
+  - Heath Ledger as Venom mentioned multiple times.
+- **2023-01-06T17:54:57:**
+  - An introspective post about personal perceptions.
+- **2023-01-06T21:16:12:**
+  - Mention of "DEAD BUNDY" multiple times.
+- **2023-01-12T06:57:27:**
+  - Mixed feelings about Scott Pilgrim and Michael Cera.
+- **2023-01-12T23:11:40:**
+  - Humorous satisfaction with microwaving an empty Doritos bag.
+- **2023-01-14T00:01:24:**
+  - Game event announcement at Leslie Middle School.
+- **2023-01-21T19:24:57:**
+  - Mention of someone named Rayna's behavior.
+- **2023-01-23T04:59:11:**
+  - Comment about Unreal Engine 5 and Keanu Reeves.
+- **2023-02-02T10:13:15:**
+  - Thought-provoking post about AI and stock investment.
+- **2023-02-18T15:41:46:**
+  - Experimenting with hairstyles, mentioning Lydia.
+- **2023-02-23T07:50:46 and 2023-02-23T19:15:33:**
+  - Mention of "Project Deja."
+- **2023-02-25T03:49:25:**
+  - Artwork generation based on song lyrics for Michael Taylor Mains.
+- **2023-02-26T06:23:41:**
+  - Artwork generation related to a war theme.
+- **2023-03-02T07:11:43:**
+  - Reference to a "Deja Normal Version/Project Deja Version" with additional vocals.
+- **2023-03-11T15:15:40:**
+  - Use of #reels and mention of best friends.
+- **2023-03-11**
+  - Bought concert ticket with skip the line pass, walked past long line, felt great as an adult.
+  - Felt uncomfortable being squished among strangers, which led to farting a lot.
+- **2023-03-14**
+  - Enjoyed using Spotify's new AI DJ, praising Spotify as the best music app.
+- **2023-03-18**
+  - Reflecting on turning 38, reminiscing about childhood memories with dad and technology differences.
+- **2023-03-19**
+  - Daughter misunderstanding time to visit grandma, humorous interaction.
+- **2023-03-20**
+  - Discovered sharing birthday with Chester Bennington, celebrated by creating a video of different generations of self.
+- **2023-03-21**
+  - Excited about upcoming technology release and discussing the impact of ChatGPT.
+- **2023-03-23**
+  - Shared music videos and song links.
+- **Ongoing**
+  - Various updates and links to music content.

@@ -1,0 +1,44 @@
+# Amber Cunningham_summary
+
+- **2011-11-05T21:42:00**: Dustin asks Amber what she is doing.
+- **2011-10-29T10:38:00**: Amber questions Dustin about going to bed.
+- **2011-10-26T21:45:00**: Amber reassures Dustin that everything is okay.
+- **2011-10-26T21:43:00**: Amber expresses understanding.
+- **2011-10-26T21:39:00**: Dustin jokes about being dirty.
+- **2011-10-26T21:33:00**: Dustin humorously anticipates a romantic date.
+- **2011-10-26T21:31:00**: Amber suggests a movie date.
+- **2011-10-26T21:08:00**: Dustin hints at wanting a movie date.
+- **2011-10-26T21:07:00**: Amber playfully responds to a cuddle buddy situation.
+- **2011-10-26T21:03:00**: Amber expresses concern about the potential development of feelings.
+- **2011-10-26T20:54:00**: Dustin compliments Amber's beauty.
+- **2011-10-10T23:44:00**: Playful exchange between Dustin and Amber about fantasies.
+- **2011-09-28T21:30:00**: Dustin and Amber banter about being happy.
+- **2011-09-20T23:10:00**: Dustin and Amber have a conversation about relationships and peace.
+- **2011-09-20T21:22:00**: Dustin and Amber discuss work schedules.
+- **2011-09-18**
+  - Dustin plans to chill with Ron and Kimmie.
+- **2011-09-16**
+  - Dustin jokingly asks for a picture of Amber in a sexy dress.
+- **2011-09-15**
+  - Conversation about sushi and plans to hang out.
+  - Dustin asks about Amber's relationship status.
+  - Amber mentions running into friends at the mall.
+- **2011-09-05**
+  - Discussion about life regrets and relationship struggles.
+  - Amber expresses feeling unappreciated.
+- **2011-09-02**
+  - Amber talks about being accused of keeping someone on the "backburner."
+- **2011-08-22**
+  - Dustin jokes about making Amber feel important.
+- **2011-08-22**
+  - Amber finds Dustin's comment funny.
+- **2011-08-22**
+  - Dustin expressing struggles with relationships and sobriety.
+  - Amber supporting Dustin and mentioning issues in her own relationship.
+  - Discussion on getting laid, sobriety, and self-identity.
+  - Emotional challenges, including sleep and eating difficulties.
+- **2011-08-21**
+  - Amber checking in on Dustin's well-being.
+  - Dustin expressing love and support for Amber.
+- **2010-12-19**
+  - Dustin inviting someone to hang out.

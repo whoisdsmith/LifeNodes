@@ -1,0 +1,41 @@
+# 2015 FB Posts
+
+---
+
+- 2015 starts with various Facebook posts about music, personal thoughts, and interactions with Everett Smith and Stevie Linnabary.
+- Emotional turmoil in relationships, especially with Stevie, leading to discussions about goals, depression, and a decision to stop taking Adderall.
+- Struggles with work schedules, self-perception, and turning 30 in March.
+- Acknowledgment of personal problems and seeking help for recovery.
+- Family activities like Easter dinner and celebrating a child's birthday.
+- Reflections on life choices, motivations, and memories.
+- Moments of humor and frustration shared on social media.
+- Grappling with personal identity, parenting, and seeking motivation and willpower.
+- Interactions with friends and family, expressing love and respect for single fathers.
+- Candid and humorous posts about daily life experiences.
+- Moving preparations: Downsizing possessions for relocation
+- Dealing with a spider infestation in the house
+- Reflecting on moving experiences and challenges
+- Building Legos with children and exhaustion
+- Birthday celebrations for Everett Smith
+- Finger injury and amputation
+- Emotional reflections on parenting and personal struggles
+- Humorous incidents involving finger injury
+- Apology and reflection on personal challenges and future plans
+- **2015-10-01**: Doc confirms good healing, eager to return to work
+- **2015-10-24**: Frustration over bad credit, daughter's amusing behavior
+- **2015-11-02**: Daughter's name inspiration, emotional reflection on relationship
+- **2015-11-07**: Anniversary celebration with heartfelt message
+- **2015-11-16**: Reflecting on relationship milestones and personal growth
+- **2015-11-17**: Dealing with a persistent headache and reaching out to loved ones
+- **2015-11-29**: Casual family time, movie watching, and traveling
+- **2015-12-08**: Excitement over receiving an Apple Watch as a gift
+- **2015-12-10**: Frustration over workman's comp denial
+- **2015-12-19**: Struggle with car repair and feeling mentally drained
+- **2015-12-21**: Revelation about being a slow learner and personal growth
+- **2015-12-22**: Playful interactions and Bieber Fever confession
+- Tyler Carter covers Adele's "Hello"
+- Stevie Marie Linnabary comments on a movie
+- Stevie Marie Linnabary expresses confusion about a trip to Mississippi
+- Plans for a suite with Stevie Linnabary
+- Mention of potential streaking in a hotel
+- Walking and transportation statistics provided

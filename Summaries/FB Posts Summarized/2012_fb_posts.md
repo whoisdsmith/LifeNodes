@@ -1,0 +1,172 @@
+# 2012 RB Posts
+
+---
+
+- Engaged on January 1st, 2012, expressing happiness and busyness.
+- Watched the movie "2012" and made humorous posts.
+- Relationship dynamics with girlfriend and parents, expressing love and apologies.
+- Emotional post about missing son and mom.
+- Unfiltered and diverse thoughts on life, relationships, and daily activities.
+- Engagement announcement on Valentine's Day, followed by excitement about starting a family.
+- Mixed emotions, including happiness, humor, love, and frustration, evident in various posts.
+- Couple picks out baby names with excitement
+- Reflection on second chance with partner and upcoming new baby
+- Playful banter about giving up religion for Lent
+- Discussion about friends from youth
+- Expressing love and gratitude towards partner
+- Playful and humorous updates about daily life and relationships
+- Thoughts on societal issues like oil industry and alternatives
+- Enjoying time with partner and appreciating their support
+- Anticipation for upcoming events like welcoming a new baby
+- Humorous and light-hearted moments shared with partner and friends
+- Challenges and frustrations in daily life and work
+- Reflections on aging and life milestones
+- Moments of love, support, and fun shared with partner and friends
+- March 18: Immersed in Underoath music, praising vocalist Spencer.
+- March 19: Excited about beer birthday gift, reflecting on personal growth.
+- March 20: Celebrating successful birthday, sobriety milestone, and family support.
+- March 21: Feeling hot, irritated, and stressed.
+- March 25: Mentioning movie collection and playful banter about Angry Birds.
+- March 25: Sharing an uncomfortable encounter at a bar.
+- March 27: Dealing with car issues and frustration with societal topics.
+- March 28: Expressing dislike for early mornings and high gas prices.
+- March 29: Reflecting on love and making the most of opportunities.
+- March 30: Enjoying a rainy day with a loved one, focusing on positivity.
+- March 31: Anticipating an ultrasound and enjoying time with partner.
+- April 1: Date night disappointment with movie sequels.
+- April 5: Commentary on long hours and hormonal feelings.
+- April 7: Excited about a TV series and humorous bathroom situation.
+- April 12: Reflecting on personal struggles and control over inner demons.
+- April 15: Appreciating staying in bed and valuing what one has.
+- April 16: Humorous work shift comment and playful interaction with partner.
+- April 17: Positive outlook despite long work hours and admiration for partner's shoes.
+- Dinner with emotions and interactions shared.
+- A mix of positive and negative emotions expressed throughout the content.
+- Relationship dynamics and support highlighted.
+- Learning experiences and personal accomplishments mentioned.
+- Excitement about upcoming events and plans.
+- Family moments and interactions with loved ones emphasized.
+- Stevie Marie Linnabary expresses affection and playful interactions throughout the posts
+- Excitement for summer and spending time with the son is evident
+- Road trip to pick up the son, filled with music, fun moments, and stops at various places
+- Family bonding activities such as yard work and enjoying time together
+- Playful and humorous exchanges with Everett Smith
+- Expressions of love and appreciation towards the girlfriend, Stevie Linnabary
+- Memorable moments around fires, s'mores, and family gatherings
+- Humorous and light-hearted comments interspersed with personal reflections and family dynamics
+- Pregnancy announcement: "My pregnant lover :)"
+- Gender reveal: "WE'RE HAVING A BOY!!"
+- Emotional family moments and interactions indicated through mentions of loved ones
+- Excitement and anticipation for the baby's arrival
+- Relationship reflections and expressions of love and gratitude towards partner
+- Personal updates, activities, and humorous anecdotes shared
+- Transition from social media use to valuing personal connections
+- Son's milestones: first day of 2nd grade and premature excitement for arrival
+- Birthday celebrations for Stevie Linnabary
+- Family bonding activities: golf outing, watching movies
+- Reflection on personal growth and appreciation for partner's kindness and selflessness
+- 2012-08-28: Frustration over living paycheck to paycheck, regretting ignoring mother's advice
+- 2012-08-29: Inclusion in a group activity, contemplating decisions about others
+- 2012-08-30: Reflecting on personal growth and adaptation to change
+- 2012-08-31: Early morning intimacy, teamwork shown with a humorous incident
+- 2012-09-01: Cheering for sports teams
+- 2012-09-02: Excitement over a new house, gratitude for a random act of kindness
+- 2012-09-04: Concern about baby's decreased movement, heartbreak over loss of baby Jensen
+- 2012-09-06: Tragic explanation of baby Jensen's passing, emotional support from loved ones
+- 2012-09-09: Difficulty sleeping, humorous realization about jeans size
+- 2012-09-10: Coping with grief, finding strength in loved ones and memories
+- 2012-09-13: Mixed emotions expressed humorously, using emotions positively
+- 2012-09-15: Nostalgia and humor in text exchanges with partner
+- 2012-09-17: Encounter with red ants during tire change, appreciating partner's gesture
+- 2012-09-18: Expressing love and belief in a departed loved one
+- 2012-09-20: Feeling followed by sorrow, possibly symbolized by rain
+- Frustration with the electric company disrupts plans to stay at a new place for the weekend.
+- Seeking help for moving, bidding farewell to stadium seating.
+- Mention of the old haunted vibe of the 122-year-old house.
+- Expressing fear of a nauseous situation and setting up a humorous precaution in the bathroom.
+- Creative idea to repurpose disassembled stadium seating wood for a drum riser.
+- Request for information on used tires.
+- Touching message appreciating a hardworking woman.
+- Anger towards flies, inability to sleep due to no hot water.
+- Joyful anticipation of staying in the new house.
+- Heartfelt visit to the cemetery to remember a lost son.
+- Expressing frustration with flies and lack of sleep.
+- Shock and disappointment over a character's death in a show.
+- Concern for father's health issues and expressing love.
+- Emotional turmoil and feeling overwhelmed.
+- Unfortunate termination from work due to miscommunication and personal hardships.
+- Relief and gratitude for father's recovery.
+- Musical aspirations and room setup excitement.
+- Relationship appreciation and humor.
+- Lighthearted comments and frustrations about daily life.
+- Announcement of job termination and humorous reaction.
+- Humorous and self-deprecating remarks about personal experiences.
+- Mixed emotions and reflections on life.
+- Household frustrations with furniture and appliances.
+- Anxious and excited reactions to a film.
+- **October 10, 2012:**
+  - Witnessed a tragic incident where a person tried to outrun a train on a bike.
+  - Expresses gratitude for a loving relationship.
+
+- **October 11, 2012:**
+  - Phone (iPhone 4) stopped working after 25 months; excitement for a new iPhone 4S.
+  - Working diligently on a studio project.
+
+- **October 13, 2012:**
+  - Reflects on overcoming personal struggles and finding love.
+  - Expresses frustration about early mornings.
+
+- **October 15, 2012:**
+  - Remembers a lost child on Pregnancy and Infant Loss Remembrance Day.
+
+- **October 16, 2012:**
+  - Excitement about babies having their own room after four years.
+  - Enjoying "The Walking Dead" with a loved one.
+
+- **October 19, 2012:**
+  - Celebrating an anniversary with thoughtful gifts.
+  - Complains about traffic on 94 E.
+
+- **October 22, 2012:**
+  - Expresses discomfort and laziness regarding a physical issue.
+  - Randomly comments about a smelly finger.
+
+- **November 5, 2012:**
+  - Reference to "V for Vendetta" on November 5th.
+  - Relief after refilling Ambient prescription for better sleep.
+
+- **November 8, 2012:**
+  - Supportive messages for a child undergoing heart surgery.
+  - Shows creativity in building cost-effective music equipment.
+
+- **November 9, 2012:**
+  - Appreciates the beauty of a partner.
+  - Collaborative cooking efforts and enjoyment.
+  - Excitement for a longer episode of "Sons of Anarchy."
+
+- **November 10, 2012:**
+  - Unpleasant experience with spoiled milk.
+  - Humorous mention of bathroom activities.
+
+- **November 11, 2012:**
+  - Revisits drumming after a hiatus.
+  - Shares a musical moment with a partner.
+
+- **November 12, 2012:**
+  - Encourages kindness and recycling practices.
+  - Expresses discomfort and anticipation of a rough night.
+- Waking up at odd hours and watching TV shows like Sons of Anarchy
+- Playing guitar, writing songs, and proposing on anniversaries
+- Starting production on a vocal booth and working on music projects
+- Battling sickness and health issues
+- Expressing gratitude for loved ones and significant events
+- Family moments, including picking up a child and spending holidays together
+- Reflections on personal growth, relationships, and aspirations
+- Sharing music-related updates and experiences
+- Various emotions ranging from excitement to frustration and love
+
+- 2012-12-29:
+  - Expresses love and anticipation for cuddling with a woman.
+  - Expresses frustration towards son's interest in Minecraft.
+- 2012-12-30:
+  - Indicates the start of a "war time" event.

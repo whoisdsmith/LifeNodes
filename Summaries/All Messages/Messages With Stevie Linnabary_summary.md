@@ -1,0 +1,2636 @@
+# Messages With Stevie Linnabary_summary
+
+- **2020-09-29**:
+  - Stevie expresses difficulty in moving on from a past relationship and sets boundaries regarding relationship expectations.
+  - Emotional tension arises with discussions about past moments and relationship dynamics.
+  - Plans for work and personal responsibilities are shared, emphasizing a busy schedule.
+  - Misunderstandings and frustrations surface, leading to a strained conversation.
+  - Concerns about childcare and job security are highlighted, causing stress and desperation.
+  - Communication struggles persist, with attempts to seek help but encountering obstacles.
+  - The conversation ends with unresolved issues and emotional fatigue on both sides.
+- **2020-10-03** Stevie Linnabary messages about Rebecca McAllister and assumptions about the recipient's type.
+- **2020-10-03** Recipient asserts their confidence in their feelings, leading to a discussion about past relationship dynamics and misunderstandings.
+- **2020-10-03** Emotional revelations about unrealistic expectations of love, past behaviors, and communication challenges.
+- **2020-10-03** Acknowledgment of past trauma and difficulties in the relationship, with reflections on personal growth and understanding of each other's perspectives.
+- **2020-10-03**
+  - Stevie Linnabary expresses appreciation for the recipient's hard work and worthiness.
+  - Recipient acknowledges and appreciates the sentiment.
+  - Conversation includes reflections on past actions, regrets, and self-acceptance.
+- **2020-10-04**
+  - Stevie Linnabary inquires about the recipient's plans for the day.
+  - Recipient shares a change in schedule, mentioning a day off and Christmas plans.
+  - Discussion about feeling tired and potential illness concerns.
+  - Plans to pay off debts and buy a house are mentioned.
+  - Concerns are expressed about a troubled individual named Ryan.
+  - Recipient reminisces about past memories and regrets.
+  - Interaction around a troubled individual named Everett Smith and his actions.
+  - Recipient expresses excitement about receiving a picture of Rayna Smith.
+  - Conversation shifts to distractions and busy schedules.
+  - Concern and suggestions regarding Everett Smith's behavior are discussed.
+  - Plans are considered to potentially help Everett Smith engage positively.
+- **Note:** The conversations involve emotional support, reminiscing about the past, plans for the future, and concern for troubled individuals.
+- On October 4, 2020, a conversation took place between the user and Stevie Linnabary regarding concerns about the user's son and his behavior.
+- Stevie expresses feeling responsible for the situation and shares struggles with the son's behavior, causing stress and worry.
+- The user and Stevie discuss the son's problematic actions, leading to other parents getting involved.
+- There's a mention of the son's mother restricting contact and communication.
+- Both parties reflect on personal challenges, emotional struggles, and past behaviors, aiming for positive changes and better communication.
+- They discuss the importance of honesty, self-improvement, and mutual support.
+- The user shares a song lyric that resonates with both, emphasizing perseverance during tough times.
+- Plans for personal growth, independence, and stability are discussed, focusing on individual progress.
+- The conversation touches on trust, transparency, and the impact of past experiences on communication dynamics.
+- The user reassures Stevie about intentions and commitment to honesty despite potential misunderstandings.
+- **October 4, 2020:**
+  - Positive and supportive interaction between individuals, focusing on personal growth and self-improvement.
+  - Acknowledgment of past mistakes and apologies for negative impact on the other person.
+  - Discussion about toxic traits, unhealthy behaviors, and the desire to change for the better.
+  - Expressions of understanding, support, and encouragement for each other's well-being and happiness.
+- **October 5, 2020:**
+  - Sudden shift in conversation due to a family emergency - Stevie's mom's involvement in a car accident.
+  - Concern expressed for Stevie's mom's well-being and the circumstances surrounding the accident.
+  - Supportive communication during a stressful time, despite the abrupt change in tone.
+- 2020-10-05: Stevie Linnabary expresses feeling unwell with a fever and cough, reluctance to get tested, and work-related stress.
+- 2020-10-05: Communication about inner company politics causing uncertainty and frustration for the sender.
+- 2020-10-05: Concerns about financial struggles, potential job loss, and overwhelming emotions.
+- 2020-10-05: Stevie mentions family health issues, financial strain, and feeling overwhelmed.
+- 2020-10-05: Mutual support offered regarding financial assistance and emotional reassurance.
+- 2020-10-05: Plans to discuss options with Kyle and financial support offered to Stevie.
+- 2020-10-05: Both parties express dissatisfaction with the day and share struggles and support each other emotionally.
+- **2020-10-05**
+  - Stevie Linnabary expresses pride and gratitude.
+- **2020-10-06**
+  - Concern about potential regression but supportive of progress.
+  - Discussion about staying focused and communication.
+  - Conversation about health issues.
+  - Encouragement and support for personal growth and betterment.
+  - Exchange about watching children.
+  - Plans for financial support and child care arrangements.
+  - Gratitude and acknowledgment of efforts.
+  - Consideration for child care logistics and quality time with kids.
+  - Offer to support financially and with child care.
+  - Discussion about potential job opportunities and support for each other's well-being.
+- 2020-10-06: Stevie expresses needing a day off, wanting to sleep, reset, and run errands without kids.
+- 2020-10-06: Concerns about Tyler's influence and impact on emotions are shared, emphasizing the desire to stay away from him for personal well-being.
+- 2020-10-06: Stevie reflects on personal growth and breaking free from toxic relationships, aiming to be the best version of themselves for their kids and loved ones.
+- 2020-10-06: Supportive interaction about self-discovery and healing, with a metaphorical conversation about personal growth being compared to a painting evolving over time.
+- 2020-10-06: Positive affirmations, encouragement, and acknowledgment of progress amidst struggles are exchanged.
+- **10/06/2020**:
+  - Stevie Linnabary mentions a painting and the concept of humanity.
+  - Light-hearted conversation about skinny jeans and clothing choices.
+  - Discussion about knowing what you want in a relationship.
+- **10/07/2020**:
+  - Plans to potentially return home and spending time with the kids.
+  - Conversations about personal space and interactions with others.
+  - Humorous exchange about a disruptive individual.
+  - Supportive messages and expressions of pride.
+  - Reflections on personal growth and plans for the future.
+  - Interactions about daily activities and music.
+  - Exchange about spending time together and songwriting.
+  - Apologies for being busy and distracted.
+- **2020-10-07**:
+  - Stevie expresses feeling sorry and misunderstood in the conversation.
+  - Assurances given that no offense was taken despite misunderstandings.
+  - Music-related discussions and attempts to share songs for confidence-building.
+  - Plans to surprise family members at an event are shared.
+- **2020-10-08**:
+  - Financial concerns and child support issues are addressed.
+  - Last-minute change of plans allows for a visit to an important event.
+  - Coordination for childcare and transportation arrangements discussed.
+  - Assistance offered by Stevie for transportation arrangements.
+  - Emotions of excitement and happiness expressed for the upcoming surprise visit.
+- **2020-10-08** Stevie expresses wanting to see the individual and mentions it's been a long time.
+- **2020-10-08** Both parties apologize for miscommunications and rush in planning.
+- **2020-10-08** Plans to pick up individual and attend the game are discussed.
+- **2020-10-08** Stevie offers to help with arrangements for the individual's children and suggests a bonfire gathering.
+- **2020-10-08** Various light-hearted interactions occur, including sharing music and planning for a surprise.
+- **2020-10-08** Due to a car issue, plans change, and arrangements for staying the night are made.
+- **2020-10-08** Stevie expresses happiness for the surprise visit and suggests capturing the moment on video.
+- **2020-09-29:**
+  - Stevie expresses being at their breaking point and tired of discussing their issues.
+  - Stevie mentions their work schedule (Sat and Sun 6a-2p) and leaving by 5:30.
+  - Discussion about childcare arrangements for the weekend ensues, causing frustration.
+  - Stevie opens up about personal struggles, feeling guilt and seeking a way back to those they pushed away.
+  - Emotional exchange regarding support, guilt, and personal challenges occurs.
+  - Plans for childcare are finalized with Stevie expressing loneliness and uncertainty.
+  - Communication issues arise with technical difficulties and misunderstandings.
+  - Request to not be contacted while drinking due to negative interactions.
+  - Tensions rise as the evening progresses, leading to a decision to block communication.
+- **2020-10-08:**
+  - **Interactions and Emotions:**
+    - **Stevie Linnabary** expresses concern for not causing issues and praises the recipient's progress.
+    - Recipient reassures Stevie Linnabary about attachment concerns.
+    - Light-hearted conversation with emojis.
+    - Financial discussions and assistance offered.
+    - Stevie Linnabary plans to buy a duplex in Albion for investment and family reasons.
+    - Stevie Linnabary seeks financial help and expresses the desire to move from current living situation.
+    - The recipient offers financial assistance without ties to their name.
+    - Stevie Linnabary discusses plans for leaving the current house and financial concerns.
+    - Plans to involve Camryn in meeting **Everett Smith** are mentioned.
+    - Recipient feels uncomfortable and leaves abruptly due to feeling out of place with Stevie Linnabary talking to someone else.
+    - Misunderstandings and discomfort arise between the recipient and Stevie Linnabary.
+    - Recipient decides to leave and expresses discomfort, causing tension in the interaction.
+- **Important Notes:**
+  - Financial assistance is offered for buying a duplex in Albion.
+  - Stevie Linnabary seeks to stay close to family members.
+  - Miscommunication and discomfort lead to tension in the interaction.
+- 2020-10-08: A series of messages expressing feelings of discomfort, abandonment, and frustration towards Stevie. Dustin feels ignored and uncared for, walking 6 miles in the cold, feeling unappreciated and hurt.
+- 2020-10-08: Dustin expresses his disappointment and anger towards Stevie, feeling used and unappreciated in their interactions. He ultimately decides to block Stevie on Facebook, ending their friendship.
+- 2020-10-08: Dustin reflects on the situation, acknowledging he won't go out of his way to help Stevie anymore. He emphasizes feeling neglected and mistreated by Stevie.
+- 2020-10-09: Stevie responds, defending his actions and expressing frustration towards Dustin's reaction, highlighting the impact on the children.
+- 2020-10-09: Stevie expresses disappointment and disagreement with Dustin's perspective on their interaction, emphasizing the importance of the children's feelings and the situation's impact on them.
+- **2020-10-09**:
+  - Stevie Linnabary expresses frustration at being interrupted while helping Rayna and being accused of being on the phone.
+  - Emotions escalate as Stevie feels unappreciated for helping with the kids and getting negative reactions.
+  - Stevie expresses a desire to handle responsibilities without needing assistance.
+  - Tensions rise as accusations and hurtful remarks are exchanged, affecting the children.
+  - Plans to see the children are disrupted, leading to arguments about priorities and past behaviors.
+  - Both parties exchange heated comments about each other's character and parenting choices.
+  - Communication becomes strained, with one party refusing further engagement.
+  - Past grievances and relationship issues are brought up, leading to further conflict.
+  - Plans for child pickup are discussed, but underlying animosity remains unresolved.
+- **2020-10-09**:
+  - Person expresses discomfort and feelings of being treated poorly in a conversation.
+  - Mention of past negative experiences and tensions with the other party.
+  - Discussion about boundaries and misunderstandings in communication.
+  - Emotions of frustration, anger, and confusion are evident in the conversation.
+  - Reference to needing space and independence in interactions.
+  - Mention of potential misunderstandings due to past trauma.
+  - Tensions rise with accusations and defenses being exchanged.
+  - Remarks about wanting to maintain distance and avoid certain interactions.
+  - Discussion about emotional well-being and self-control.
+  - Assertion of individual autonomy and the need for personal growth.
+  - Emphasis on the need for better communication and setting boundaries.
+  - Exchange of harsh words and accusations regarding emotional manipulation.
+  - Mention of family responsibilities and implications of emotional outbursts on children.
+- **2020-10-09**:
+  - Stevie expresses self-assurance in her actions and decisions, emphasizing her happiness and parenting choices.
+  - Tension rises as the conversation shifts to co-parenting responsibilities and time spent with the kids.
+  - Both parties exchange heated remarks about parenting and past behavior, questioning each other's parenting abilities.
+  - Stevie offers to help with groceries and the kids, emphasizing it's for the children's benefit, not personal gain.
+  - Challenges arise about logistics involving car seats and transportation for the children.
+- **2020-10-09**:
+  - Stevie suggests giving a ride but faces resistance due to car seat issues.
+  - Tensions rise as conversations turn emotional and accusatory.
+  - Stevie emphasizes her focus on her kids and her own choices.
+  - Both parties express frustration and past grievances.
+  - The dialogue escalates with personal attacks and defensiveness.
+  - Stevie defends her decisions and asserts her independence.
+  - The interaction ends with both parties asserting their control over their lives and choices.
+- **Date: 2020-10-09**
+- Stevie expresses feelings of frustration and resentment towards Rebecca Rodriguez and her own life struggles.
+- Tension escalates as accusations and insults are exchanged, with Stevie comparing the other person to a Democrat.
+- Stevie emphasizes the importance of appreciating what one has while they have it.
+- The conversation includes discussions about past mistakes, personal growth, and differing viewpoints on positivity.
+- Stevie expresses a desire to help despite disagreements and past conflicts.
+- The conversation ends with Stevie reflecting on personal values and perceptions.
+- **2020-10-09:**
+  - Stevie expresses feeling that positivity doesn't work the way implied.
+  - Conversation escalates into accusations of interference in relationships.
+  - Stevie mentions struggles with personal growth and decision-making.
+  - Emotional outbursts and confrontations about past interactions with Tyler.
+  - Discussion on the importance of self-love and happiness for personal growth.
+  - Mutual realization of the need for self-improvement and taking responsibility.
+- **2020-10-09**: Emotions running high in conversation between the user and Stevie Linnabary:
+  - User expresses anger and frustration, wishing for Stevie to leave them alone forever.
+  - Stevie accuses the user of blaming others for their choices and questions their parenting.
+  - User asserts that Stevie is toxic and expresses hatred towards them.
+- **2020-10-09**: User confronts Stevie about their negative impact and expresses dislike for Stevie's influence.
+- **2020-10-09**: User sends a message intending to help and apologizes for inconveniences.
+- **2020-10-09**: User and Stevie have a conversation about financial support and co-parenting.
+- **2020-10-09**: Attempts at reconciliation and concern for Stevie's well-being are shown in messages from the user.
+- **2020-10-09**: Stevie expresses boredom and reluctance to socialize with others.
+- **2020-10-09**: Tensions escalate as both parties discuss past relationships and parenting dynamics.
+- **2020-10-09**: User tries to encourage Stevie to socialize and step out of their comfort zone.
+- **2020-09-09**: Stevie expresses dissatisfaction with the user's treatment compared to past relationships.
+- **2020-09-09**: User shows concern for Stevie's feelings and well-being, attempting to mend their relationship.
+- **2020-10-09:** Stevie expresses frustration and feelings of betrayal, mentioning past issues with Rebecca Rodriguez.
+- **2020-10-09:** Tensions rise as Stevie feels mistreated and demands not to lie to their kids about family relationships.
+- **2020-10-09:** Stevie accuses the other person of favoring Rebecca Rodriguez and expresses anger towards the situation.
+- **2020-10-09:** The conversation escalates with Stevie feeling disrespected and hurt, leading to blocking and harsh exchanges.
+- **2020-10-09:** Stevie emphasizes being the children's mother and demands respect, leading to a heated exchange and emotional outbursts.
+- **2020-10-09:** The conversation ends with hurtful remarks and a clear breakdown in communication.
+- **2020-09-29**:
+  - Emotional exchange involving feelings of anger, frustration, and hurt between the user and Stevie Linnabary.
+  - User expresses a desire to cut off communication except for child support-related matters.
+  - User fluctuates between wanting to block Stevie and feeling upset about the situation.
+  - User acknowledges responsibility for their reactions and expresses a desire for positive reflection within the relationship.
+- **2020-10-09**
+  - Stevie Linnabary expresses anger and frustration, asking to be left alone.
+  - Emotions escalate with Stevie feeling disrespected and upset about child care.
+  - Tensions rise as Stevie expresses a loss of respect and blocks communication.
+  - Both parties apologize, acknowledging their struggles and efforts.
+  - Stevie discusses personal challenges, PTSD, and the desire for understanding.
+  - Despite frustrations, they express caring sentiments and a desire for peace.
+  - Stevie reflects on the impact of the situation on their mental health.
+  - Conversation shifts to supporting friends and self-improvement efforts.
+  - Emotional complexities and the struggle for mutual understanding are highlighted.
+  - Uncertainty about the future and the need for clear communication are evident.
+  - The dialogue ends with mutual understanding and acknowledgment of personal growth efforts.
+- **2020-10-09:**
+  - Stevie expresses frustration over a challenging day and desires a positive ending.
+  - Stevie feels ignored and misunderstood due to a lengthy coworker call.
+  - Reflects on personal struggles and desires a fulfilling life.
+  - Acknowledges a unique connection with the recipient.
+  - Expresses pride in Lydia Smith's behavior.
+- **2020-10-10:**
+  - Stevie and recipient share music links.
+  - Discloses signing up for Senegence for fun.
+  - Discusses parenting goals and concerns about children's future.
+  - Conversations about possible romantic interactions and friendship boundaries.
+  - Plans for family activities and expresses feelings about being apart.
+  - Stevie shows interest in a meeting with Kyle, the owner of Sinclair.
+  - Humorous exchange about using a screwdriver to change a plate.
+  - Acknowledges making a decision to embrace a particular lifestyle choice.
+- **2020-10-10 12:20:58**: Stevie discusses financial struggles of someone, including car expenses, child support, and loans, expressing relief not to have that life.
+- **2020-10-10 12:23:09**: Humorous exchange about paying bills for the person in financial trouble in the future.
+- **2020-10-10 13:19:47**: Apology for spreading misinformation about relationships, acknowledging the hurt caused.
+- **2020-10-10 13:22:27**: Conversations about music preferences and sharing songs.
+- **2020-10-10 13:23:25**: Shared a link to a funny video.
+- **2020-10-10 13:24:41**: Mention of every "garbage can has its lid" in a light-hearted manner.
+- **2020-10-10 17:24:02**: A friendly reminder to drive safely due to potential deer on the road.
+- **2020-10-10 18:45:57**: Encouragement to get out of a negative headspace and an invitation to chill by the fire for a positive change.
+- **2020-10-10 18:56:14**: Stevie enjoys reflecting alone by the fire, showing a relaxing time.
+- **2020-10-10:**
+  - Stevie expresses a desire for human connection and intimacy but acknowledges being in a difficult mental state.
+  - Plans to hang out and emphasizes not wanting to push for a relationship.
+  - Playfully discusses drinks and plans to meet up.
+- **2020-10-11:**
+  - Expresses gratitude for a great time together and acknowledges seeing positive changes.
+  - Plans to watch a show together, shares music, and shows appreciation for each other's talents.
+  - Stevie mentions feeling overwhelmed and heads to smoke, shower, and run errands.
+  - Music and creative exchanges continue between the two.
+- **2020-10-11**:
+  - Stevie expresses love for a movie multiple times.
+  - Plans to share music files via Dropbox due to file size limitations.
+  - Collaborative music ideas discussed, focusing on creating a unique sound.
+  - Arrival at a hotel and humorous observations about the location.
+  - Financial concerns and offers of help regarding car repairs.
+  - Playful conversations about future dreams and scenarios, including buying houses.
+  - Concerns and decisions about car repairs, highlighting the importance of the radiator issue.
+  - Supportive interactions regarding emotional issues and planning for the future.
+- 2020-10-11 17:47:42: Stevie mentions an expensive fix, expressing concern about it being a safety issue.
+- 2020-10-11 18:01:58: Stevie reassures not to worry about them, indicates not wanting to stress.
+- 2020-10-11 18:04:21: Conversation on not stressing, mutual support expressed.
+- 2020-10-11 18:14:08: Mention of watching a movie, light-hearted exchange about the setting.
+- 2020-10-11 18:34:01: Stevie talks about dealing with ex, expressing anxiety and need for phone plan change.
+- 2020-10-11 18:41:31: Desire to cut ties with ex, considering changing phone number.
+- 2020-10-11 18:56:58: Discussion on transferring phone plan to Stevie, mentions owing Verizon $1600.
+- 2020-10-11 19:00:13: Stevie emphasizes not being with someone for a phone, willing to deal with any consequences.
+- **2020-10-11:**
+  - Stevie expresses not stressing over a previous issue anymore.
+  - Casual conversation about activities and weather.
+  - Supportive exchange regarding decision-making and personal growth.
+  - Affirmation of self-worth and importance of personal decisions.
+  - Expressions of appreciation and mutual support.
+  - Plans to stay focused and face challenges.
+  - Reference to future aspirations and commitment to each other.
+  - Stevie showing understanding and support.
+  - Goodnight wishes exchanged.
+- **2020-10-12:**
+  - Morning greetings and plans to tackle the day.
+  - Concerns about COVID exposure and testing.
+  - Plans for weekend visits and work-related frustrations.
+  - Supportive communication during a stressful situation.
+  - Worries about COVID implications for family and testing procedures.
+  - Stevie showing concern and asking about work's response to the situation.
+  - Unexpected need for COVID testing and reluctance towards the procedure.
+- **October 12, 2020:**
+  - **12:44:** Recipient received upsetting news from their boss, leading to frustration.
+  - **12:49:** Recipient informed they cannot return to work without a negative test result.
+  - **13:04:** Recipient shared that a colleague, Bobby, was also affected.
+  - **13:50:** Recipient expressed frustration about the situation and upcoming testing.
+  - **15:00:** Recipient mentioned preparing for a COVID test and dealing with the repercussions of leaving work.
+  - **17:04:** Recipient described a frustrating incident involving a truck's trailer hitch in a parking lot, resulting in a humorous exchange with the contact.
+  - **17:16:** Both parties reminisced about past memories and shared laughter, providing a moment of light-heartedness.
+- **2020-10-12:**
+    - Stevie expresses self-consciousness about past weight with humor.
+    - Emotional exchange where Stevie felt underappreciated but loved regardless.
+    - Discussion about photos and reminiscing about past memories.
+    - Reflecting on personal growth and not being defined by past actions.
+    - Acknowledgement of difficulties in forgetting challenging memories.
+    - Sharing of music links to connect and support each other.
+- **2020-10-13:**
+    - Morning interactions sharing daily plans and work situations.
+    - Discussion about work shifts and personal struggles.
+    - Shared concerns and support regarding COVID testing and work environments.
+    - Checking in on each other's well-being and daily experiences.
+    - Recommendations for online deals, financial concerns, and work stress.
+    - Supportive communication regarding personal relationships and boundaries.
+- **2020-10-13**:
+  - Family drama at the hospital led to tensions between Nate and Bobby.
+  - Conversation about needing a break and hoping for a better day tomorrow.
+  - Stevie feeling overwhelmed and stressed, mentions starting her period.
+  - Mention of anxiety and desire for weed to help.
+  - Offers to help with insurance and financial support.
+  - Conversation about stress and feeling low due to Covid situation.
+  - Concerns about kids getting infected with Covid.
+- **2020-10-14**:
+  - Stevie mentions spray painting as a background and wishes a good day.
+  - Miscommunication about waking up late and not messaging earlier.
+  - Self-reflection on the dynamics of their relationship and apologizing for negativity.
+  - Expressing understanding and being out of work.
+- **2020-09-30**
+  - Individual expresses self-hatred and disappointment in reactions.
+  - Emotions of frustration, self-reflection, and desire for understanding.
+  - Tension and lack of communication between individuals.
+  - Financial concerns regarding child support and employer issues.
+  - Assistance sought and provided regarding child support and family matters.
+  - Frustration over one-sided interactions and lack of support.
+- **2020-10-01**
+  - Intensified conflict with accusations and insults exchanged.
+  - Criticism about parenting and personal responsibilities.
+  - Request for individual to stay out of personal affairs.
+- Overall emotional turmoil, strained relationships, and unresolved tensions evident throughout the conversation.
+- 2020-10-14: Stevie Linnabary informs about being at the bus stop to pick up kids on a half day.
+- 2020-10-14: Conversation about missing kids, work, and personal struggles with relationships.
+- 2020-10-14: Discussion on past relationships, trust issues, and self-focus.
+- 2020-10-14: Light-hearted exchanges about work, credit cards, and financial concerns.
+- 2020-10-14: Emotional conversation reflecting on past feelings and continuous support offered.
+- 2020-10-14: Request for financial assistance and reassurance regarding repayment.
+- Stevie expresses concerns about moving and improving credit to avoid being stuck alone in the house (2020-10-14).
+- Stevie hesitantly asks for help and expresses difficulty in organizing tasks due to a busy mind (2020-10-14).
+- Supportive reassurance is offered, with acknowledgment of personal responsibility and growth (2020-10-14).
+- Stevie shares apprehensions about financial impact and expresses gratitude for assistance (2020-10-14).
+- Reflective conversations on personal growth and accountability take place (2020-10-14).
+- Stevie talks about striving for positive change and avoiding old habits (2020-10-14).
+- Discussion on personal development, accountability, and fear of not reaching full potential (2020-10-14).
+- Light-hearted exchanges about daily activities and plans (2020-10-14).
+- Stevie shares parenting moments and fun interactions (2020-10-14).
+- Conversations continue with emotional support and encouragement (2020-10-15).
+- Stevie suggests getting a credit card for financial management (2020-10-15).
+- Plans for improving gear and daily tasks are discussed (2020-10-15).
+- **October 15, 2020**:
+  - Stevie Linnabary expresses gratitude for being a mom and shares excitement about painting.
+  - A dialogue about painting and the upcoming activities ensues between the individuals.
+  - The individual expresses regrets about not being able to participate but wishes Stevie luck.
+  - Stevie shares her activities and the struggle with managing everything.
+  - The individuals exchange messages of support and understanding.
+  - The individual expresses feelings of boredom and loneliness.
+  - Stevie and the individual have a conversation about personal struggles and supporting each other.
+- **October 16, 2020**:
+  - Stevie and the individual exchange morning greetings and discuss daily plans.
+  - Concerns about childcare and work schedules are shared.
+  - The individual expresses stress and dissatisfaction with the current situation.
+  - Plans to return home soon and discussions about work-related matters are mentioned.
+  - The individuals share their feelings of exhaustion, lack of time, and frustrations.
+Note: The conversation primarily revolves around emotional support, daily activities, personal struggles, and plans for the future.
+- **2020-10-16**:
+  - Person expressing disappointment about not getting a raise and missing family.
+  - Discussion about personal struggles and responsibilities.
+  - Reassurance of making personal decisions and taking responsibility.
+  - Expression of feeling depressed and overwhelmed.
+  - Financial support provided.
+  - Plans to help with childcare responsibilities.
+  - Supportive interactions and expressions of concern.
+  - Plans for the evening and checking on each other's well-being.
+- **2020-10-16:**
+  - Conversation about smoking and being tired.
+  - Positive interaction about hoping for better days.
+  - Assurance of support and encouragement to stay on a positive path.
+- **2020-10-17:**
+  - Discussion about feeling exhausted and not wanting to go back to the past.
+  - Mention of "Sweetest Day" and self-love.
+  - Supportive messages about personal growth, avoiding loneliness, and waiting for the right relationship.
+  - Plans for the day and sharing of a surprise gift.
+  - Comforting each other and expressing pride and care.
+  - Conversations about daily activities, music, and gaming.
+  - Emotional moments expressing dislike for current situation and struggles with loneliness and societal interactions.
+  - Mutual understanding and support in navigating emotions and personal growth.
+- **2020-10-17**:
+  - Stevie expresses frustration about her ex, Tyler, leaving his belongings in her house and calls him manipulative.
+  - Stevie vents about her struggles with Tyler, feeling guilty for involving her children in the situation.
+  - Stevie acknowledges her anxiety and distress regarding Tyler's actions and expresses her determination not to go back to him.
+  - Stevie shares her feelings of anger and betrayal towards Tyler, indicating that he triggers negative emotions in her.
+  - Stevie seeks support and validation from the recipient, who reassures Stevie and encourages her to move on from Tyler for her own happiness.
+  - The recipient supports Stevie emotionally, listens to her vent, and provides a sense of understanding and solidarity.
+  - Stevie mentions her past nightmares and ongoing emotional distress related to Tyler's actions.
+  - The recipient reassures Stevie and encourages her to focus on her own well-being and happiness.
+This summary captures the emotional turmoil, support, and determination expressed by Stevie in her interactions regarding her relationship with Tyler on October 17, 2020.
+- **2020-10-17**:
+  - Feeling of being neglected and unappreciated by Stevie.
+  - Expressing disappointment and hurt over lack of reciprocation in friendship.
+  - Requesting basic acknowledgment and communication.
+  - Perceived lack of empathy and understanding from Stevie.
+  - Tension escalates, leading to feelings of betrayal and resentment.
+  - Accusations of disrespect and one-sidedness in their relationship.
+  - Ultimatums and requests to be left alone.
+  - Comparisons to another person named Tyler.
+  - Accusations of hindering personal progress and success.
+  - Emotional outbursts and feelings of being taken for granted.
+  - Desperation to break free from the negative cycle of their relationship.
+  - Financial transactions and apologies mentioned.
+  - Request for space and autonomy for personal growth.
+- **2020-10-17**:
+  - Stevie expresses frustration about feeling mistreated due to relationship issues.
+  - Tension escalates with accusations of disrespect and inability to communicate effectively.
+  - Both parties express dissatisfaction with the relationship and communication breakdowns.
+  - The conversation turns emotionally charged with accusations of selfishness and poor treatment.
+- **2020-10-18**:
+  - The user expresses deep frustration with Stevie's behavior and lack of respect.
+  - User confronts Stevie about their actions and demands better treatment.
+  - User decides to block Stevie due to ongoing issues and hurtful interactions.
+  - The user emphasizes their need for happiness and freedom from negativity.
+  - The conversation ends with the user expressing anger and a desire to move on from the toxic relationship.
+- **2020-10-18**:
+  - Expressing frustration and disappointment towards Stevie Linnabary for past behavior.
+  - Desiring to cut ties due to perceived negative interactions.
+- **2020-10-21**:
+  - Requesting to borrow money, later apologizing for previous behavior.
+  - Sharing experiences of falling and stressful situations.
+  - Discussing past issues and trying to move forward while acknowledging difficulties.
+  - Mentioning a dream causing distress and expressing ongoing hurt.
+  - Revealing personal struggles and emotional exhaustion.
+  - Declaring a need for peace and respect in interactions.
+  - Expressing a desire to distance oneself from Tyler for mental well-being.
+  - Acknowledging emotional numbness and a blunt communication style at the moment.
+  - Misunderstandings leading to an abrupt end to the conversation.
+- **2020-10-21:**
+  - A conversation with Stevie Linnabary reveals misinterpretations and frustrations, seeking understanding and peace.
+  - Discussion about not involving the user's mom in their affairs and potential financial issues.
+  - Emotional expression about past wounds and desire for solitude and peace.
+- **2020-10-22:**
+  - Interaction continues with mundane conversations, checking on each other's well-being.
+  - User expresses being sorry for past behaviors, received with acceptance and understanding from Stevie.
+  - Health concerns and conversation about potential COVID symptoms and work stress.
+  - Chats about Halloween plans for the children and updates on school closures due to COVID.
+- **2020-10-23:**
+  - Exchange about a song link and a brief inquiry regarding a previous topic.
+  - Confirming that Stevie is not involved with a particular issue.
+- **2020-10-02**:
+  - A conversation unfolds between the user and Stevie Linnabary regarding relationship issues and emotional distress.
+  - The user expresses frustration and disappointment with Stevie's behavior, particularly concerning her interactions with another person named Tyler.
+  - Stevie mentions financial struggles and feeling overwhelmed.
+  - Both parties express their need for space and assert their independence.
+  - Issues of trust, communication, and past actions are prominent in the conversation.
+- **2020-10-23**:
+  - Discussion about family Christmas plans and being single to avoid complications.
+  - Decision to come home for good on November 17th.
+  - Conversation about work schedules and getting kids on the bus in the morning.
+  - Sharing of a cute image and a discussion about a movie.
+  - Compliments exchanged between the individuals.
+  - Mention of cleaning and tiredness, plans to watch someone's child due to work.
+  - Concerns about Covid-19 and potential school closures.
+  - Offers of support and reassurance.
+- **2020-10-23**:
+  - Stevie Linnabary is busy with household chores and taking care of the kids.
+  - Plans a Halloween party for the kids instead of trick-or-treating.
+- **2020-10-24**:
+  - Feels drained from social interactions with friends.
+  - Chooses to stay home with family instead of going out.
+  - Avoids going out due to social anxiety.
+- **2020-10-24 Evening**:
+  - Enjoys drinks with Crown Apple shots.
+  - Discusses relationships and social circles.
+- **2020-10-25 Morning**:
+  - Deals with a hangover from the previous night.
+  - Shares a song and memories.
+- **2020-10-25 Afternoon**:
+  - Communicates about returning home soon.
+  - Socializes but feels exhausted.
+- **2020-10-25 Evening**:
+  - Cady gets a tattoo from Ricky Richardson.
+  - Talks about family relationships and pool games.
+- **2020-10-26 Morning**:
+  - Experiences a series of mishaps and watches a fist fight.
+  - Stevie Linnabary spends time shopping at Marshall goodwill.
+  - Exchanges updates on the day's events.
+- **2020-10-26:**
+  - Stevie Linnabary expresses feeling confused and upset about their interaction.
+  - Emotions of care and struggle are shared, indicating a complex relationship dynamic.
+  - Stevie Linnabary expresses pride and joy over a child's progress.
+  - Plans for visiting and potential changes in relationships are discussed.
+  - A light-hearted conversation about daily activities and personal grooming occurs.
+  - Stevie Linnabary shares concerns about life direction and therapy.
+  - Music recommendations are exchanged for emotional support and connection.
+- **2020-10-26:**
+  - Positive interaction about liking an album and sharing music.
+  - Concern for a friend (Cady) having a bad day.
+  - Discussion about complexities of human emotions.
+  - Plans to get food and humorous interaction about being "4 shots deep in fireball."
+  - Conversation about availability for talking and bedtime.
+- **2020-10-27:**
+  - Supportive messages about personal struggles and doubts.
+  - Financial assistance requested and granted.
+  - Plans to return home and interactions about work schedules.
+  - Compliments and expressions of excitement about being together.
+  - Plans for dinner and updates on daily activities.
+  - Casual conversations about daily routines and activities.
+- **2020-10-27**:
+  - Conversation about root beers and playful banter.
+  - Discussion about music and singing, planning to use Smule app.
+  - Compliments exchanged about a song.
+  - Banter about forgetfulness and watching movies.
+  - Snack talk and banter in a playful manner.
+  - Banter about memory loss and age.
+  - Playful remarks about playing Call of Duty.
+- **2020-10-28**:
+  - Disappointment expressed over not being able to return home due to transportation issues.
+  - Frustration about having to wait until the weekend to return home.
+  - Plans to return home discussed with limitations due to transportation availability.
+- **2020-10-28**
+  - Individual expresses frustration about work schedule and desire for time off.
+  - Conversation about financial constraints and potential solutions to leave work early.
+  - Decision made to leave work early and head home, leading to positive emotions and anticipation.
+- **2020-10-29**
+  - Grateful exchange for help with children.
+  - Plans for child care and work arrangements discussed.
+  - Car trouble and repairs shared, showing concern and support from the other party.
+  - Misunderstanding and clarification about child care responsibilities.
+  - Decision made to adjust child care arrangements due to workload, leading to confusion and eventual resolution.
+- **2020-10-29**:
+  - Stevie expresses anxiety and frustration about potential unreliability.
+  - Miscommunication about plans causes tension between the individuals.
+  - Stevie decides not to work due to the situation.
+- **2020-10-30**:
+  - The interaction continues with Stevie feeling overwhelmed and unwell.
+  - Concerns about a concerning message from an individual named Lance are discussed.
+  - Support and discussions about personal relationships and family dynamics occur.
+  - Positive updates include Lydia achieving a school award and plans for future assistance with the children.
+  - The conversation shifts to discussing relationships and supporting each other emotionally.
+- **2020-10-30**:
+  - Congratulations and pride expressed towards Lydia Smith.
+  - Discussion about inappropriate behavior from someone and blocking them.
+  - Comforting and reassuring Stevie Linnabary about her actions and character.
+  - Plans to address the inappropriate behavior and support given to Stevie.
+  - Conversation about feeling purposeless and alone without children, seeking comfort.
+  - Support and understanding shared regarding personal struggles and frustrations.
+  - Reflections on past relationship dynamics and personal growth.
+  - Mutual support and acknowledgment of past differences and growth.
+  - Intentions to focus on personal well-being and avoid unhealthy relationships.
+  - Mutual understanding of past struggles and acceptance of moving forward separately.
+- 2020-10-30: Emotional exchange about overcoming obstacles and self-improvement
+- 2020-10-30: Conversation expressing love, support, and self-healing
+- 2020-10-30: Discussion about another person's relationship issues, offering advice and support
+- 2020-10-30: Sharing and discussing music, particularly a new album release
+- 2020-10-31: Coordination for retrieving Halloween costumes, work schedule, and expressing care
+- 2020-10-31: Interaction with Stevie Linnabary about both girls having a rough morning, not getting along, and needing a bath.
+- 2020-10-31: Request for information on corn mazes for a fun activity with the girls.
+- 2020-10-31: Feelings of disconnection from life expressed.
+- 2020-10-31: Plans to drop off the girls after pool time, discussed timing.
+- 2020-10-31: Discussion about taking the girls on a weekday.
+- 2020-10-31: Shared music interests and a goodnight message exchanged with Stevie.
+- **2020-10-02:**
+  - Emotions and interactions:
+    - Tension, anger, and frustration evident in the messages exchanged.
+    - Stevie feels accused and pressured, leading to defensive responses.
+    - Dustin expresses concern and offers help despite the conflict.
+  - Key events and important notes:
+    - Stevie expresses stress and loneliness, mentioning potential contact with Tyler out of insecurity.
+    - Dustin confronts Stevie about their interactions and emphasizes the need for honesty.
+    - Discussion about financial support and childcare arrangements for the girls.
+    - Stevie mentions applying for SSI and facing challenges in balancing work after a break.
+    - Both parties acknowledge personal struggles with mental health and past experiences.
+    - The conversation fluctuates between conflict, apologies, and attempts at understanding.
+- **2020-10-02**
+  - **Stevie Expresses Frustration:**
+    - Stevie is frustrated with the quality of their release radar, filled with content they don't enjoy.
+    - They express concern about potential dangers while listening outside, showing a mix of caution and humor.
+    - Stevie shares excitement over a raise at work but also mentions feeling undervalued compared to new hires.
+  - **Music and Work Conversations:**
+    - They discuss new music releases and share videos.
+    - Stevie talks about a potential house purchase and bonus from work for project completion.
+    - Work details are shared, including responsibilities and upcoming changes in positions and pay.
+  - **Personal Matters and TV Show Recommendation:**
+    - Personal struggles with finances and future plans are mentioned.
+    - Stevie recommends a TV show "Evil" on Netflix and describes its intriguing elements.
+    - A tense conversation arises regarding a concerning personal situation, emphasizing discretion.
+  - **Closure and Reflection:**
+    - The conversation ends on a note of goodnight wishes, with Stevie expressing concern and seeking reassurance.
+    - The user shares personal feelings of loneliness and desire for honest communication in relationships, addressing past issues.
+    - Reflecting on repeating patterns in relationships, a call for change and self-awareness is made.
+Please let me know if you need more details or further clarification on any of the points.
+- **2020-10-03**:
+  - Stevie apologizes for his previous actions.
+  - Conversation about work and being busy.
+  - Discussion about financial support and Christmas plans.
+  - Stevie suggests spending Christmas together for the kids.
+  - Mention of struggles and loneliness without the kids.
+  - Plans for the day and exchanging of supportive messages.
+  - Stevie shopping for clothes and feeling overwhelmed.
+  - Casual chats about daily activities and interactions with Bobby.
+  - Plans for the evening and relaxation.
+  - Stevie expressing loneliness and missing the kids.
+- **2020-10-03**:
+  - Girls causing chaos, fighting, stressing out the user's mom.
+  - User tries to manage the situation with Stevie's advice.
+  - User shares frustrations about lack of meaningful conversations and emotional vulnerability.
+  - User and Stevie discuss personal struggles and the importance of genuine connections.
+  - User reflects on being open and honest, being unafraid of vulnerability and emotional depth.
+  - User and Stevie bond over music and personal support.
+- **2020-09-29**:
+  - Stevie expresses difficulty in moving on from a past relationship and sets clear boundaries.
+  - There are mentions of challenges with alcohol affecting communication and emotions.
+  - Stevie reflects on disappointments and the need to focus on personal growth and moving forward.
+  - Work-related stress is mentioned, including a new role as a lead supervisor.
+  - Misunderstandings and emotional turmoil continue in the conversation, leading to frustration and confusion.
+  - Stevie expresses feelings of not being understood and struggles with the dynamics of the relationship.
+  - Concerns about child care responsibilities and job security are highlighted, adding to the stress.
+  - Communication issues arise with attempts to reach out for help not being successful.
+- **October 3, 2020**:
+  - Stevie Linnabary expresses feeling moody and struggles to connect with new people.
+  - Conversation navigates through personal struggles, political opinions, and music recommendations.
+  - Stevie Linnabary discusses relationship dynamics and past emotional turmoil.
+  - Issues of vulnerability, honesty, and relationship expectations are shared.
+  - The conversation touches on self-reflection, perception, and communication challenges in relationships.
+- Stevie expresses her efforts to meet others' needs, including Tyler's, due to differences with her ex-partner regarding affection and understanding. (2020-10-03)
+- Stevie reflects on past relationship dynamics, expressing regret for not showing affection and attention, acknowledging her mistakes, and accepting the past. (2020-10-03)
+- Despite acknowledging differences and past trauma, Stevie and the recipient aim to move forward positively, emphasizing honesty and self-awareness. (2020-10-03)
+- The conversation ends with Stevie expressing gratitude and understanding towards the recipient, indicating a desire for personal growth and honesty in communication. (2020-10-03)
+- **October 4, 2020:**
+  - Stevie Linnabary woke up late and got McDonald's to appease coworkers.
+  - Expresses tiredness and concern about coughing, hoping it's not COVID-19.
+  - Mentions difficulty in breathing due to dryness, exacerbated by wearing a mask.
+  - Plans to pay off debts and buy a house to support family.
+  - Discusses a troubled individual named Everett Smith and personal regrets.
+  - Shares interactions regarding missing past moments and feeling responsible for influencing others negatively.
+  - Mentions issues with a teenager's behavior and struggles with guidance and responsibility.
+  - Nostalgic conversations about past music experiences and potential alternate realities.
+- **October 4, 2020:**
+  - Stevie Linnabary expresses stress and self-doubt, mentions Jason's return and positive changes.
+  - Discussion about struggles with drinking and anxiety.
+  - Stevie Linnabary reflects on feeling overwhelmed and striving for improvement.
+  - Exchange about personal growth, honesty, and working towards stability and independence.
+  - Stevie Linnabary shares concerns about relationships and self-improvement.
+  - Focus on honesty, self-improvement, and understanding each other's challenges.
+  - Apologies and acknowledgments of past mistakes and commitment to positive change.
+- **October 4, 2020:**
+  - Stevie expresses a need to make choices for themselves and not worry about others' opinions.
+  - Stevie reflects on trying to change toxic behaviors and wanting better for themselves and others.
+  - Discussion on being supportive without controlling in relationships.
+  - Stevie acknowledges struggles with people-pleasing but aims for self-improvement.
+  - Both parties encourage each other's personal growth and happiness.
+- **October 5, 2020:**
+  - Stevie faces challenges due to a family accident and potential illness.
+  - Concerns about health and work responsibilities arise.
+  - Stevie mentions having a fever and cough, prompting considerations for COVID-19 testing.
+  - Plans to monitor health status with Wendy's assistance.
+- **2020-10-05**:
+  - Inner company politics causing stress and uncertainty for Stevie regarding work assignments.
+  - Financial strain due to a compromised debit card, but managing with child support and credit cards.
+  - Concern for Stevie's mother's health after a serious injury.
+  - Emotional turmoil and overwhelming circumstances leading to thoughts of giving up.
+  - Supportive interaction with a friend offering financial help and assistance with bills.
+  - Frustration with a disappointing dining experience adding to the already challenging day.
+  - Mutual understanding and emotional support exchanged between Stevie and the friend.
+  - Plans to seek clarity on work situation and address financial concerns the next day.
+- **2020-10-06**:
+  - Stevie expresses concern about going backwards and emphasizes the importance of staying focused.
+  - Stevie reassures about not going backwards and mentions spending time with Cady.
+  - Conversation about work commitments and health issues, with concern expressed for well-being.
+  - Stevie encourages growth and support, sharing positive sentiments and a link to a song.
+  - Discussion about smoking menthols due to a cough.
+  - Plans to have a phone conversation after settling kids and discussing work-related matters.
+  - Stevie shares intentions to financially support and assist with childcare arrangements.
+  - Stevie expresses plans for potential financial contributions and support.
+- 2020-10-06: Stevie expresses a need for a break, particularly on weekends, to recharge and take care of personal tasks without stress.
+- 2020-10-06: Stevie discusses avoiding a person named Tyler to maintain peace and happiness, emphasizing the need to prioritize self-improvement for the sake of their children and relationships.
+- 2020-10-06: Stevie acknowledges personal growth and healing, aiming to become the best version of themselves and learn to love independently.
+- 2020-10-06: A metaphor about being a canvas and the process of self-discovery and external influences is shared, highlighting the journey to finding one's true self.
+- **2020-10-06**
+  - Stevie Linnabary expresses the value and significance of artwork.
+  - They mention layers of paint and the emotional impact of art.
+  - A discussion about personal growth and self-realization occurs.
+  - Plans for potential future interactions are hinted at.
+- **2020-10-07**
+  - Stevie Linnabary updates on daily activities and plans.
+  - Conversations about personal space, interactions with others, and potential upcoming visits are prevalent.
+  - Support and encouragement are exchanged between parties.
+  - Humorous and light-hearted exchanges are present.
+  - Plans for future communication are suggested.
+- **2020-10-07**:
+  - Stevie Linnabary expresses frustration as things seem off.
+  - Light-hearted interactions with laughter and emojis exchanged.
+  - Reference to a song being worked on.
+  - Apologies and explanations for delays in communication.
+  - Discussion about a remix and singing confidence.
+- **2020-10-08**:
+  - Financial concerns regarding child support.
+  - Disappointment over not being able to attend a football game.
+  - Plans change, and the individual gets to go home for the weekend to attend the game and surprise family.
+  - Decision to return home for the weekend is made by the Project manager.
+  - Excitement about the unexpected opportunity to attend the game and surprise family.
+- **2020-09-29 15:46:27**: Stevie expresses exhaustion and frustration at handling everything alone.
+- **2020-09-29 15:47:13**: Stevie informs about a specific matter.
+- **2020-09-29 15:48:27**: Stevie mentions being at a breaking point and tired of discussing issues.
+- **2020-09-29 15:56:49**: Stevie prefers direct and concise communication to avoid wasting time.
+- **2020-09-29 16:08:10**: Stevie explains personal struggles and regrets, seeking understanding.
+- **2020-09-29 16:18:10**: Stevie reassures support and understanding, especially regarding children.
+- **2020-09-29 16:25:05**: Discussion about breaking cycles and mutual understanding in relationships.
+- **2020-09-29 16:29:39**: Both parties express loneliness and lack of fulfillment in life.
+- **2020-09-29 16:33:18**: Consideration of canceling a commitment due to personal reasons.
+- **2020-09-29 18:05:20**: Sharing a Spotify track.
+- **2020-09-29 18:22:09**: Technical issues affecting communication.
+- 2020-10-08: **Stevie Linnabary** plans to surprise family members at **Everett Smith's** game.
+- 2020-10-08: Stevie discusses arrangements with **Bobby** for the surprise visit.
+- 2020-10-08: Stevie contemplates keeping **Lydia Smith** home for more time together.
+- 2020-10-08: Stevie and the recipient discuss logistics and plans for the surprise visit.
+- 2020-10-08: Plans are made for a bonfire gathering with the girls.
+- 2020-10-08: Stevie shares a song recommendation and schedules time with the children.
+- 2020-10-08: Stevie jokes about surprises and anxiety, leading to light-hearted banter.
+- **2020-10-08** Stevie Linnabary forgets keys, plans fall through, Bobby drops off
+- **2020-10-08** Stevie offers accommodation, plans gaming night
+- **2020-10-08** Mention of Kennady, sleeping arrangements, Call of Duty
+- **2020-10-08** Conversation about staying over, light-hearted banter
+- **2020-10-08** Stevie expresses concern, offers financial help for duplex in Albion
+- **2020-10-08** Discussion on finances, potential investment in duplex
+- **2020-10-08** Stevie's desire to stay close to Cady, avoid being alone
+- **2020-10-08** Plans to possibly apply for a loan, buy duplex in Albion, and bus stop convenience
+- 2020-10-08: Stevie expresses love for living with someone and offers financial help without wanting anything in return.
+- Stevie expresses a strong desire to leave the house and mentions going through a credit union for a loan.
+- Plans to meet up are made, but Stevie gets upset upon learning about someone else being talked to.
+- Stevie feels uncomfortable and walks out in the cold, expressing frustration at not being cared for.
+- Stevie blocks the person on Facebook, feeling used and unappreciated despite providing support.
+- Stevie reflects on the situation later, acknowledging the person's potential but doubts their sincerity without expecting something in return.
+- **2020-10-08 23:48:20**: Stevie expresses discomfort and disappointment in the recipient for talking to someone else for 2 hours on the phone while he was present, feeling neglected and unappreciated.
+- **2020-10-08 23:57:28**: Stevie walks 6 miles in the cold due to feeling mistreated, vows not to help the recipient again, and expresses frustration.
+- **2020-10-09 04:43:40**: Stevie defends his actions, mentions helping with **Rayna Smith**, and criticizes the recipient for overreacting.
+- **2020-10-09 04:58:29**: Stevie reflects on the situation, expresses disappointment, and decides to cut ties after the weekend.
+- **2020-10-09 05:01:21**: Stevie clarifies not needing help and criticizes the recipient for interrupting his phone call.
+- **2020-10-09 05:09:20**: Stevie firmly asks the recipient to stop trying to appease him and expresses frustration.
+- **2020-10-09 05:10:14**: Stevie criticizes the recipient for lying to his kids and causing disappointment.
+- **2020-10-09 07:02:05**: Stevie expresses disappointment in the recipient for not seeing the kids and implies he will take care of the aftermath.
+- **2020-10-09 07:05:14**: Stevie expresses frustration and annoyance towards the recipient.
+- **2020-10-09 07:07:20**: Stevie emphasizes his role as the kids' mother and reassures he can handle the situation without the recipient.
+- **2020-10-09**:
+  - Stevie expresses frustration towards Dustin for bailing on his children, calling his actions selfish and childish.
+  - Dustin defends himself, mentioning he will pick up the children soon.
+  - Stevie accuses Dustin of neglecting his kids due to personal issues and criticizes his behavior.
+  - The conversation escalates into personal attacks regarding past relationships and parenting choices.
+  - Dustin accuses Stevie of being judgmental and mentions needing space due to discomfort.
+  - Both parties argue about trust issues, personal space, and parenting responsibilities.
+  - Dustin feels judged for his actions and accuses Stevie of treating him poorly.
+  - The conversation becomes heated with accusations of arrogance and lack of understanding between the two.
+- 2020-10-09: Stevie expresses frustration and conflict with another person, mentioning kids staying home from school.
+- 2020-10-09: Tension escalates with accusations of negative impact on emotions and intentions.
+- 2020-10-09: Discussion involves suicidal thoughts and emotional turmoil.
+- 2020-10-09: Stevie asserts independence and defends actions regarding children.
+- 2020-10-09: Emotional exchanges continue with criticism and blame.
+- 2020-10-09: Stevie emphasizes being a good person despite conflict.
+- 2020-10-09: Discussion shifts to logistics and parenting responsibilities.
+- 2020-10-09: Conflict persists over parenting decisions and time spent with children.
+- 2020-10-09: Emotional intensity remains high with personal attacks and defensive responses.
+- **2020-10-09**:
+  - A heated argument between individuals about parenting and responsibilities.
+  - Discussion about childcare arrangements and car seat logistics.
+  - Emotional exchanges regarding parenting choices and accusations of toxicity.
+  - Offer of help for childcare and groceries, met with resistance and frustration.
+  - Conflict resolution attempts and emphasis on prioritizing children's well-being.
+  - Assertive statements about personal decisions and actions for children's benefit.
+- **2020-10-09**: A heated conversation between individuals named Stevie Linnabary involving accusations and personal attacks.
+- Stevie expresses frustration about the other person's decisions that impact their children negatively.
+- The conversation escalates with both parties criticizing each other's choices and lifestyles.
+- Stevie mentions past mistakes like drug use and promiscuity but claims to have changed.
+- The exchange ends with a somewhat hostile but resigned tone, with one party expressing a desire to help the other despite disagreements.
+- Date: 2020-10-09
+- Stevie Linnabary feels confident about herself despite criticism.
+- Conversation becomes heated with accusations of being manipulative and negative.
+- Emotions escalate, including mentions of suicidal thoughts and relationship interference.
+- Stevie Linnabary expresses determination to keep moving forward and build success.
+- Reference to a toxic relationship with Tyler is mentioned.
+- Overall, a tense and emotionally charged interaction between individuals.
+- Stevie Linnabary expresses frustration and sets boundaries regarding relationships and personal well-being on 2020-10-09:
+  - Stevie acknowledges forgiving nature but emphasizes the need for personal growth and mental health boundaries.
+  - Discussion reveals complexities in past relationships, highlighting struggles with self-worth and communication.
+  - Stevie emphasizes not wanting a romantic relationship with the recipient.
+  - Tensions rise due to perceived interactions with a person named Tyler.
+  - Arguments ensue about past decisions and self-responsibility.
+  - Emotional outbursts and expressions of resentment are evident, with a desire for autonomy and peace.
+- The conversation transitions into accusations and blaming, with Stevie expressing frustration and setting firm boundaries on 2020-10-09.
+- **2020-09-29**:
+  - Conversation starts with apologies and misunderstandings.
+  - Emotions escalate to frustration and anger over perceived behavior.
+  - Request to not be contacted or only for specific purposes.
+  - Feelings of being unwanted and used are expressed.
+  - Threats to block each other due to negative interactions.
+  - Expressions of misery and regret over engaging in conversation.
+  - Feeling of being invisible and unappreciated.
+  - Desire for disconnection and peace for mental well-being.
+  - Repeated requests for blocking to avoid further distress.
+- **2020-10-09:**
+  - Stevie expresses frustration at negative interactions and decisions.
+  - Emotions of anger, resentment, and regret are evident in the communication.
+  - Discussion involves parenting responsibilities and past relationship issues.
+  - Stevie mentions financial matters like child support.
+  - Attempts at reconciliation and support are made later in the conversation.
+- **October 9, 2020**:
+  - Intense emotional exchange between Stevie Linnabary and another person regarding past relationship issues and misunderstandings.
+  - Stevie expresses frustration and anger towards the other person's interactions with an individual named Rebecca Rodriguez.
+  - Discussion involves concerns about the treatment of children and accusations of lying to them.
+  - Stevie accuses the other person of disrespect and favoring Rebecca Rodriguez over Stevie.
+  - The conversation escalates into heated arguments and insults.
+  - Stevie requests the other person to stop contacting and disrespecting them.
+  - The conversation ends with a request for the other person to leave Stevie alone.
+- **2020-10-09 18:07:17**: Stevie expresses being angry and upset.
+- **2020-10-09 18:07:53**: Stevie mentions feeling hurt and abandoned.
+- **2020-10-09 18:09:10**: Stevie expresses feeling disrespected and ends the conversation abruptly.
+- **2020-10-09 19:57:47**: Stevie shares her struggles and seeks understanding.
+- **2020-10-09 20:06:49**: Stevie expresses her desire for things to be good and worries about being a good person.
+- **2020-10-09 20:25:02**: Stevie reflects on her complexities, mental health issues, and desire for improvement.
+- **October 9, 2020**:
+   - Stevie expresses confusion and uncertainty about the relationship, feeling tired and wanting clarity.
+   - Stevie mentions feeling like the day was a train wreck and wishes for a better ending.
+   - Stevie discusses a frustrating work call and expresses a desire for a humble and loving life.
+   - Stevie admires the recipient for their efforts to be a better person and expresses hope for their own success.
+   - Stevie appreciates the recipient's unique qualities and bids goodnight.
+- **October 10, 2020**:
+   - Stevie mentions a unproductive and boring day, discusses watching TV and plans to listen to music.
+   - Stevie and the recipient exchange music links and discuss their activities.
+   - They talk about Stevie's new venture into Senegence and spending time with the children.
+   - Stevie expresses excitement about the children's potential and the challenges of parenting.
+   - Stevie expresses a lack of motivation and discusses potential job-related travel plans.
+   - The recipient expresses missing Stevie when away and hopes for more frequent visits.
+   - Stevie mentions a meeting with Kyle and gets clarification on who Kyle is.
+- 2020-10-10: Stevie Linnabary expresses curiosity and hopefulness about an event.
+- 2020-10-10: Discussion about bringing a screwdriver to change a plate.
+- 2020-10-10: Banter about financial struggles and relationships.
+- 2020-10-10: Fond memories shared about past events.
+- 2020-10-10: Music recommendations and conversations.
+- 2020-10-10: Plans to drop off children and conversations about food.
+- 2020-10-10: Concerns about delayed messages and interactions with Kyle.
+- 2020-10-10: Supportive messages exchanged.
+- **2020-10-10:**
+  - Stevie expresses mixed emotions about the situation and plans, mentioning changes in location and departure time.
+  - Stevie and the recipient discuss spending time together before leaving, showing care and consideration.
+  - The recipient shares feelings of being off and seeking human connection, while Stevie offers support and understanding.
+  - A conversation about potential intimacy and connection occurs, with both parties expressing their thoughts and intentions.
+  - Plans are made to meet up for companionship, with light-hearted banter about drinks and activities.
+- **2020-10-11:**
+  - Stevie shares a link to a wireless car charger before expressing gratitude and bidding farewell.
+  - The conversation transitions to future plans, including watching a show together and reminiscing about cuddling, showcasing a mix of light-heartedness and affection.
+  - Stevie communicates personal goals and aspirations, highlighting a desire for independence and recognition for hard work.
+  - Support and encouragement are exchanged, emphasizing understanding and empowerment for both parties.
+- **2020-10-11**:
+  - Stevie expresses appreciation and support towards Evie.
+  - Stevie offers encouragement to Evie, highlighting her strength and talent.
+  - They discuss music and sharing songs, with Stevie praising Evie's talent.
+  - Stevie helps Evie with technicalities of song sharing and offers to support her financially.
+  - Evie reaches a hotel and shares updates on her activities.
+  - Stevie and Evie discuss car issues and potential solutions, expressing concern and planning for repairs.
+  - They engage in casual conversation about TV shows and personal matters.
+- October 11, 2020: Stevie Linnabary expresses a fantasy of winning the lottery to help loved ones and buy houses.
+- Stevie Linnabary discusses car repair concerns and potential fixes with a friend.
+- They share plans of living near each other and helping with car repairs.
+- Stevie Linnabary shares personal struggles with an ex and phone plan issues.
+- They discuss transferring phone numbers and cutting ties with the ex.
+- Stevie Linnabary expresses frustration over financial matters and dealing with the ex.
+- The conversation shifts to movie discussions, environment observations, and pillow preferences.
+- The exchange ends with Stevie Linnabary discussing phone plan costs and considering options for a new plan.
+- 2020-10-11: Stevie Linnabary discusses transferring a phone line to own name and dealing with financial issues related to Verizon.
+- Stevie expresses frustration with the situation but plans to handle it.
+- There are mentions of owing money to Verizon and potential strategies to resolve the issue.
+- Stevie talks about not wanting to deal with a troublesome individual for the sake of a phone.
+- Conversation shifts to casual topics like watching TV and smoking cigarettes to unwind.
+- Stevie expresses missing home and contemplating returning instead of pursuing other job opportunities.
+- The conversation ends on a supportive note, emphasizing self-growth and making personal decisions.
+- **2020-10-11**:
+  - Emotional conversation expressing fondness and exclusivity.
+  - Discussion about getting head straight and going to bed.
+- **2020-10-12**:
+  - Morning greetings and motivation for the day.
+  - Concerns about COVID exposure from a football coach.
+  - Arrangements for testing due to potential exposure.
+  - Frustration over work response to testing requirement.
+  - Supportive interactions and conversations about home life during a storm.
+  - Boredom and seeking distraction while waiting for test results.
+- **September 29, 2020**:
+  - Stevie expresses feelings of being treated poorly and being reminded of past hurt.
+  - Stevie confronts the recipient about their behavior and reflects on his own actions.
+  - Stevie decides to block the recipient for his well-being.
+  - Stevie expresses frustration and disappointment in the lack of positive interactions.
+- **September 30, 2020**:
+  - Stevie mentions feeling self-hatred and disappointment in his reactions.
+  - Stevie requests the recipient to handle child support issues promptly.
+  - Stevie resolves child support concerns and informs the recipient that he won't need to hear from them.
+- Overall:
+  - Stevie expresses emotional turmoil, self-blame, and a desire to move forward.
+  - Communication primarily revolves around difficult topics and practical matters, lacking positive exchanges.
+- **2020-10-12**:
+  - Stevie Linnabary experiences pouring rain, wind, and lightning, feeling chilly and a bit bored.
+  - Conversation about the weather and feeling tired progresses into reminiscing about past events.
+  - Stevie Linnabary recounts a busy day involving work, shopping, kids, crafts, cleaning, and setting up Halloween decorations.
+  - Frustration arises when a work truck parked irresponsibly causes an accident in the rain.
+  - Lighter moments are shared, including jokes, laughter, and reminiscing about past fun times.
+  - Reflecting on personal growth, Stevie Linnabary and the other person discuss moving forward and embracing change.
+- **October 12, 2020**:
+  - Stevie Linnabary expresses deep thoughts and struggles with remembering the past.
+  - Shares a link to a depressing song and decides to smoke.
+  - After some interaction and listening to music, Stevie heads to bed.
+- **October 13, 2020**:
+  - Stevie wakes up and goes for Covid testing.
+  - Feels nervous about the test due to cold symptoms.
+  - Results come back negative, but work-related drama ensues.
+  - Discusses work shifts and stress, plans for the day, and deals with insurance issues.
+  - Stevie shares concerns about work situations and family dynamics.
+  - Interaction about personal matters and handling stress.
+  - Plans for potential vacation and expresses love for family.
+- **October 13, 2020**:
+  - Stevie Linnabary expresses feeling overwhelmed, stressed, and anxious, possibly due to impending menstruation.
+  - Conversation about using weed to alleviate anxiety.
+  - Supportive messages exchanged to help Stevie feel better.
+  - Discussion about work-related stress and anxious feelings.
+  - Concerns about COVID-19 affecting children.
+  - Stevie expresses feeling better after relaxation and conversation with a friend.
+- **October 14, 2020**:
+  - Stevie Linnabary discusses feeling off and apologizes for venting.
+  - Issues with a relationship and being ghosted are shared.
+  - Encouragement and support offered to move past negative emotions.
+  - Conversation about upcoming plans and work schedules.
+  - Wishing each other well for the day.
+- Stevie Linnabary expresses distrust in people and focuses on self-improvement (2020-10-14)
+- Stevie shares frustration about others seeking relationships and their life stories (2020-10-14)
+- Stevie appreciates a friend's intentions and values the friendship (2020-10-14)
+- Stevie reflects on past relationship struggles and the difficulty of moving forward (2020-10-14)
+- Stevie discusses work interactions and financial concerns (2020-10-14)
+- Stevie seeks financial assistance and expresses reluctance in asking for help (2020-10-14)
+- **October 14, 2020:**
+  - Stevie expresses a desire for a better life and fear of financial repercussions.
+  - Acknowledges personal responsibility and the need for a mindset shift.
+  - Reflects on personal growth and accomplishments throughout the year.
+  - Admits struggles with overbearing behavior and a desire for self-improvement.
+  - Stevie acknowledges the impact of negative feedback and strives for continuous improvement.
+  - Expresses a fear of not achieving personal growth before death.
+  - Enjoys dinner with friends but jokes about lack of friends and food.
+- **October 15, 2020:**
+  - Stevie faces challenges due to rainy weather at work.
+  - Expresses frustration with the current job situation and considers returning to a previous job.
+  - Encourages financial responsibility by suggesting getting a credit card.
+  - Plans to purchase better winter and rain gear.
+- **2020-10-15:**
+  - Stevie excitedly receives a package and plans to paint pumpkins.
+  - Expresses happiness and gratitude for a supportive relationship.
+  - Preparing for a fun but potentially stressful night of painting.
+  - Requests live feed of pumpkin painting.
+  - Stevie seeks prayers before painting.
+  - Conversations about feeling lonely and wanting to participate in activities.
+- **2020-10-16:**
+  - Discussion about struggling with personal issues and self-improvement.
+  - Plans to support and encourage each other through tough times.
+  - Humorous exchanges and updates about daily activities.
+  - Concerns about childcare arrangements and work stress.
+  - Confirmation of childcare support from Stevie's mom for work weekend.
+- **October 16, 2020:**
+  - Stevie Linnabary expresses feeling stressed, depressed, and frustrated about work and life circumstances.
+  - Talks about missing the kids, wanting time to herself, and feeling overwhelmed with responsibilities.
+  - Mentions difficulty in getting a raise, conflicts at work, and feeling stuck in a boring routine.
+  - Shares financial concerns and emotional struggles.
+  - Reaches out for support and reassurance from the recipient.
+  - Plans to return home soon and expresses hope for a better future.
+  - Exchange of messages conveying emotional support and understanding between Stevie Linnabary and the recipient.
+- **2020-10-16**:
+  - Stevie expresses feeling overwhelmed but determined to overcome it.
+  - Offer of help and support from the other person.
+  - Gesture of sending money for McDonald's for Stevie's children.
+- **2020-10-17**:
+  - Encouragement to have a positive day despite challenges.
+  - Light-hearted conversation about "Sweetest Day" and self-love.
+  - Expressing pride in Stevie's progress and well-being.
+  - A promise of continued support and encouragement in personal growth.
+  - Mention of a surprise gift for Stevie.
+  - Checking in on how Stevie is doing and sharing music.
+  - Stevie mentioning she's in pain and taking a bath.
+  - Exchange about plans for the evening.
+- **October 17, 2020:**
+  - Stevie expresses frustration at a situation.
+  - Stevie talks about feeling stuck and unhappy with life.
+  - Stevie discusses difficulties in making friends and feeling disconnected from others.
+  - Stevie vents about past experiences and people in her life causing distress.
+  - Stevie seeks reassurance and support from the other person.
+  - Stevie shares emotional turmoil and past trauma related to a person named Tyler.
+  - Stevie expresses anger and resentment towards Tyler.
+  - Stevie reflects on personal growth and moving forward from toxic situations.
+  - Stevie acknowledges the support and understanding received from the other person.
+  - Stevie and the other person discuss communication challenges and evolving perspectives.
+  - Stevie expresses determination to progress and leave negative influences behind.
+- **2020-10-17 18:06:34**: Stevie asks for an old photo of themselves before having a camera.
+- **2020-10-17 18:09:49**: Stevie mentions finding a photo for a relationship challenge.
+- **2020-10-17 18:22:46**: Stevie expresses deep feelings towards someone, hoping they'll realize the truth someday.
+- **2020-10-17 18:29:40**: Stevie shifts conversation to Tyler and a possible meeting on Sweetest Day.
+- **2020-10-17 19:00:16**: Stevie feels unappreciated and left feeling inadequate in their interactions.
+- **2020-10-17 19:14:20**: Stevie expresses feeling not good and wanting to end the conversation.
+- **2020-10-17 19:33:06**: Stevie shares disappointment in the lack of understanding and support from the other person.
+- **2020-10-17 19:37:27**: Stevie decides to distance themselves, feeling they deserve better treatment.
+- **2020-09-30**
+  - Emotional exchange between individuals expressing frustration, feeling of sabotage, and desire to be left alone.
+  - Mention of a past deal regarding happiness.
+  - Request for blocking contact.
+- **2020-10-01**
+  - Anger and accusation about the recipient's parenting and life choices.
+  - Insults and harsh language used to express frustration.
+- **2020-10-02**
+  - Discussion involving financial support and relationship boundaries.
+  - Expressions of feeling used and unappreciated.
+  - Decision to stop communication and move on from the relationship.
+- **2020-10-17**: Stevie expresses frustration at Tyler for not reciprocating respect and support.
+- **2020-10-17**: Tyler accuses Stevie of being disrespectful and draining him emotionally and financially.
+- **2020-10-17**: Tyler feels guilty for focusing on self-improvement while Stevie struggles.
+- **2020-10-17**: Tyler insists on Stevie staying away to allow personal growth.
+- **2020-10-17**: Tyler confronts Stevie about prioritizing others over their friendship.
+- **2020-10-17**: Tyler decides to cut ties with Stevie to seek peace and happiness elsewhere.
+- **2020-10-17:**
+  - Intense emotional exchange expressing frustration and hurt.
+  - Accusations of betrayal and selfishness.
+  - Request for respect and change in behavior.
+- **2020-10-18:**
+  - Increasing anger and resentment towards the other person.
+  - Desire for distance and ending communication.
+  - Accusations of selfishness and being a negative influence.
+- **2020-10-21:**
+  - Request for financial assistance followed by apologies for past behavior.
+  - Light-hearted conversation and sharing of daily mishaps.
+  - Expressions of regret and desire for improved communication and understanding.
+- **October 21, 2020:**
+  - Stevie expresses frustration about being pushed over the edge by a conversation about a past relationship and being the third wheel.
+  - Stevie gets angry when reminded of past hurtful experiences and tries to move forward.
+  - Communication becomes tense as past issues resurface, leading to misunderstandings and emotional exhaustion.
+  - Stevie requests to be left alone and expresses a desire for peace and respect in their interactions.
+- **October 22, 2020:**
+  - Stevie reaches out for financial assistance for Cady, showing ongoing communication despite previous tensions.
+- **2020-10-22:**
+  - Stevie and Linnabary had casual, light-hearted conversations, expressing concern over fever and work stress.
+  - Linnabary shared experiences of dark dreams possibly due to fever, leading to a discussion about COVID symptoms.
+  - Plans for Halloween costumes and family Christmas were touched upon.
+- **2020-10-23:**
+  - Discussion about work plans and schedule changes, with Nate and Linnabary deciding to return home on November 17th.
+  - Linnabary expresses excitement about being home and spending time with the children.
+  - Additional topics include music inquiries, image searches, and adjustments for family convenience.
+- **October 23, 2020:**
+  - Stevie shares an image and discusses Lydia Smith's improved year.
+  - Conversations about caring for others and self-worth.
+  - Joking and light-hearted banter about appearances.
+  - Plans for Halloween costumes and a party with kids.
+  - Stevie cleans house and prepares for the party.
+  - A brief discussion about smoking, watching movies, and exhaustion.
+- **October 24, 2020**:
+  - Stevie feels drained after a social night with friends and prefers familiar company.
+  - Despite suggestions to go out, she prefers socializing at home and declines going out due to feeling drained.
+  - Stevie expresses anxiety post-socializing and decides to stay in for the night.
+  - Conversation shifts to drinking and social interactions, with humorous exchanges.
+- **October 25, 2020**:
+  - Stevie wakes up hungover and shares the experience with a friend.
+  - The conversation transitions to reminiscing about shared interests, music, and plans to return home soon.
+  - Mention of family members, activities, and interactions with acquaintances is made.
+- **October 26, 2020**:
+  - Stevie shares a chaotic day of incidents involving a cracked phone, a fistfight, and getting stuck in a trench.
+  - A conversation about decisions, work, and personal feelings unfolds between Stevie and the friend.
+  - Emotions are discussed regarding caring, understanding, and moving on in relationships.
+  - Stevie expresses feelings of complexity and being upset over communication dynamics with the friend.
+  - The friend shares struggles with detachment and caring deeply about Stevie.
+- **2020-10-26**:
+  - Stevie Linnabary expresses pride for someone's progress in academics.
+  - Stevie Linnabary discusses work conditions while expressing empathy.
+  - Plans made for the weekend regarding visiting and Halloween night arrangements.
+  - Personal grooming and music sharing interactions.
+  - Stevie Linnabary expresses concern for Cady and struggles with fixing problems.
+- **October 26, 2020**:
+  - Stevie expresses complexity of humans.
+  - Plans to go to Anggios Italian restaurant.
+  - Enjoys steak and American fries, drinks Fireball shots with Bobby.
+  - Mentions conversation about Cady and then focuses on kids' bedtime.
+  - Ends the day with mixed emotions and self-reflection.
+- **October 27, 2020**:
+  - Talks about Fireball and waiting for Kyle's response.
+  - Assures support and compliments Stevie's appearance.
+  - Discusses plans to return home and children's activities.
+  - Requests financial assistance via Zelle.
+  - Shares interactions regarding children's photos and daily routines.
+  - Expresses excitement about upcoming plans and positive influence of company.
+  - Ends the day with relaxed activities and early bedtime.
+- 2020-10-27: Stevie Linnabary jokingly says "Root beers with a hard R" and engages in playful banter with humorous and light-hearted exchanges.
+- 2020-10-27: Conversation shifts to music, with discussions about songs, singing, and potential collaborations on a karaoke app.
+- 2020-10-27: Stevie Linnabary talks about work stress and responsibilities, expressing frustration over patient care.
+- 2020-10-27: Discussion about watching "Deadpool 2" and considering using a karaoke app, but deciding against it due to cost.
+- 2020-10-27: Humorous interactions continue, including banter about playing video games and jokingly insulting each other in British accents.
+- 2020-10-27: The conversation ends with Stevie Linnabary expressing boredom and contemplating playing video games solo.
+- **October 27, 2020**:
+  - Stevie updates about ETA for the next day and says goodnight.
+  - Later, Stevie apologizes for playing games instead of coming home.
+- **October 28, 2020**:
+  - Stevie expresses frustration as they can't return home due to a licensing issue with the truck.
+  - Stevie vents about work commitments and feeling upset about the situation.
+  - Financial constraints prevent Stevie from arranging alternative transport.
+  - Stevie eventually arranges to leave with a friend, feeling relieved and excited to surprise family.
+- **October 29, 2020**:
+  - Stevie acknowledges appreciation for help with the kids and discusses work plans and a potential raise.
+  - Plans are made to meet up, with Stevie heading home after resolving transportation issues.
+  - Stevie expresses concern about a car issue but makes it home safely.
+- Throughout the messages:
+  - Stevie's emotions range from frustration and anger to relief and gratitude.
+  - Interactions involve discussing work, financial limitations, and arrangements for family and transportation.
+  - Notable mentions of potential financial assistance, missed meals, and unexpected work situations.
+- **2020-10-02**: Stevie Linnabary expresses being in a bad mood and not wanting to talk.
+- **2020-10-02**: Communication between Stevie Linnabary and another party becomes tense due to issues regarding texting, communication consistency, and interactions with Tyler.
+- **2020-10-02**: Stevie Linnabary mentions difficulty in constant texting and expresses dislike for it.
+- **2020-10-02**: Tensions escalate over misunderstandings and past interactions with Tyler, leading to accusations and frustrations.
+- **2020-10-02**: Discussions revolve around honesty, reactions to situations, and potential consequences of continued communication.
+- **2020-10-02**: The conversation becomes strained with threats, accusations of toxicity, and a decision to end assistance and communication.
+- **2020-10-02**: Stevie Linnabary provides updates on childcare arrangements, financial matters, and other personal issues.
+- **2020-10-02**: Stevie Linnabary mentions applying for SSI for someone named Cam.
+- **2020-10-29:**
+  - Stevie offers to help and provide transportation.
+  - Discussion about brake line issue and repairs.
+  - Some miscommunication and frustration regarding child pickup arrangements.
+  - Stevie expresses anxiety and stress over plans changing.
+- **2020-10-30:**
+  - Continued support and offers of help from Stevie.
+  - Stevie expresses feeling overwhelmed and upset.
+  - Supportive messages and communication about daily activities and plans.
+  - Concerns about interactions with others outside of the conversation.
+  - Stevie shares personal feelings about love and relationships.
+- 2020-10-30: Stevie Linnabary receives inappropriate message asking for nudes, blocks the sender.
+- 2020-10-30: Stevie discusses a person cheating on their partner and expresses anger towards them.
+- 2020-10-30: Stevie shares pride as daughter receives award.
+- 2020-10-30: Stevie reassures not sending nudes and discusses blocking inappropriate individuals.
+- 2020-10-30: Stevie and a contact bond over shared experiences and frustrations.
+- 2020-10-30: Stevie expresses feeling bored and uncertain without kids but appreciates the support.
+- 2020-10-30: Stevie and contact check on each other's well-being and share emotional support through music and virtual hugs.
+- **October 30, 2020**:
+  - Stevie expresses frustration and confusion about life, feeling disconnected and overthinking emotions.
+  - Acknowledges that past actions may have prevented a fairy tale outcome in a relationship.
+  - Reflects on personal growth and the need to prioritize mental health before pursuing relationships.
+  - Expresses love and concern for the recipient, emphasizing the importance of self-improvement.
+  - Discusses past relationship dynamics and the challenges of moving forward.
+  - Stevie deals with a friend's relationship issue involving inappropriate behavior from the partner.
+  - Shares feelings of empowerment in standing up against inappropriate behavior.
+- 2020-10-30: Stevie expresses a desire to maintain their old soul.
+- 2020-10-30: Excitement over a new Bring Me The Horizon album release.
+- 2020-10-30: A shared link to a song is sent for the other person to enjoy.
+- 2020-10-31: Discussion about plans, work schedules, and child activities.
+- 2020-10-31: Emotional struggles and feeling disconnected are shared.
+- 2020-10-31: Concerns about a potential situation involving someone named Tyler.
+- 2020-11-01: A message expressing deep depression and feelings of being neglected in the relationship.
+- **2020-11-01 01:13:53**: Expresses willingness to help even after being hurt.
+- **2020-11-01 01:22:06**: Desires reciprocation in care and struggles with feeling neglected.
+- **2020-11-01 01:29:15**: Emphasizes feeling disregarded in the relationship.
+- **2020-11-01 02:05:47**: Stresses the imbalance in the relationship and the struggle to be acknowledged.
+- **2020-11-01 02:28:52**: Addresses issues with co-parenting and feeling unappreciated.
+- **2020-11-01 04:38:25**: Expresses feeling unvalued despite being supportive.
+- **2020-11-01 04:57:25**: Questions the lack of reciprocity in support and respect.
+- **2020-11-01 05:06:24**: Responds to accusations of overreacting to lack of response.
+- **2020-11-01 05:06:55**: Acknowledges the need for personal space and boundaries.
+- **2020-11-01 05:14:13 to 2020-11-01 05:47:58**:
+  - Emotional interactions about feeling ignored and unappreciated.
+  - Request to move on and heal from past hurts.
+  - Emphasis on the need for reciprocal care and understanding in a friendship.
+  - Requests to stay out of each other's lives.
+- **2020-11-01 08:00:11 to 2020-11-01 08:42:28**:
+  - Discussions about picking up the girls and work-related concerns.
+  - Comparison of financial situations.
+  - Desires for independence and focusing on personal growth.
+- **2020-11-01 10:28:07 to 2020-11-01 12:06:49**:
+  - Misunderstandings regarding panic attacks and support.
+  - Frustrations about unequal efforts in the friendship.
+  - Requests for help with the girls and expressions of feeling used.
+  - Intense emotional reactions and statements.
+- 2020-11-01: Intense exchanges of anger and threats between Stevie Linnabary and another party regarding childcare arrangements and personal conflicts.
+- 2020-11-01: Stevie expresses frustration at not receiving help and feeling unappreciated, reflecting on personal struggles and lack of support.
+- 2020-11-02: Stevie clarifies misunderstandings, shares music, discusses work schedules, and offers to assist despite past conflicts.
+- 2020-11-02: Transition to a more positive tone with discussions about work and sharing a link for a car phone holder.
+- **2020-10-02**:
+  - Stevie expresses feeling lonely and uneasy while being home alone.
+  - Stevie discusses insecurities and stresses in interactions with the recipient.
+  - Talks about work fatigue, stress, and financial struggles.
+  - Updates on watching videos, music preferences, and plans to buy a house.
+  - Mentions a possible bonus at work and managing a crew for a project.
+  - Discusses changing work positions and pay rates.
+  - Mentions watching the show "Evil" on Netflix and shares opinions on its content.
+- **October 2, 2020:**
+  - Stevie expresses being done with certain individuals.
+  - Reveals that Ryan physically harmed Stevie's mother.
+  - Implores not to repeat the information shared.
+  - Discussion about potential actions regarding the situation.
+  - Conversation about keeping things confidential.
+  - Stevie mentions going to sleep for the night.
+  - Expresses concern for privacy and trust.
+- **October 3, 2020:**
+  - Stevie discusses work and fatigue.
+  - A conversation about financial support and arrangements.
+  - Plans for Christmas and spending time with the kids.
+  - Exchange regarding work hours and daily activities.
+  - Shopping at Goodwill for clothes for the kids.
+  - Weather updates and overall day assessment.
+- **2020-10-03**:
+  - Stevie works most of the day.
+  - Stevie expresses fatigue and relief at work ending.
+  - Stevie discusses plans to call later after dealing with personal tasks.
+  - Stevie mentions being lonely without family around.
+  - Stevie shares reluctance to socialize and fatigue from work.
+  - Stevie describes family dynamics and stresses caused by children fighting.
+  - Stevie reflects on personal feelings of inadequacy and desire for companionship.
+  - Stevie and the contact engage in light-hearted banter and discuss weather unpredictability.
+  - Stevie expresses emotional vulnerability, feeling unappreciated and lonely.
+- **2014-10-27:**
+  - Stevie plans to meet Dustin shortly.
+  - Dustin shares login details.
+  - Stevie mentions Kevin Smith's appearance.
+  - Dustin and Stevie discuss activities at home.
+- **2014-10-28:**
+  - Stevie apologizes for wanting to spend time together.
+  - Stevie requests oven preheating.
+  - Dustin plans future tasks and a U-Haul rental.
+- **2014-10-29:**
+  - Stevie talks about decorating ideas.
+  - Tension arises over financial support for Rebecca Rodriguez's family.
+  - Dustin and Stevie argue about priorities and financial struggles.
+  - Stevie expresses frustration over unequal treatment of her son.
+  - Dustin tries to maintain a positive outlook despite financial concerns.
+  - Stevie vents about financial disparities and lack of support.
+  - Dustin struggles to find a solution and maintain positivity.
+  - Stevie apologizes for her emotions affecting their relationship.
+  - Dustin expresses difficulty in resolving the situation.
+  - Stevie shares her emotional turmoil regarding her child's well-being.
+  - Dustin acknowledges the situation but feels powerless to change it.
+  - Stevie appreciates Dustin understanding her feelings despite the challenges.
+  - Dustin expresses dislike for drawing tasks but enjoys downloading movies.
+  - Plans and uncertainties about keys are discussed.
+- **2014-12-31**
+  - Dustin asks about getting Red Bull, snacks, and supplies.
+  - Dustin feels uncomfortable about meeting someone named Jake.
+  - Stevie and Dustin discuss party preparations and food choices.
+  - Dustin realizes they need toilet paper.
+  - Stevie makes a list, and Dustin appreciates her efforts.
+  - Discussion about wine choice and chicken nuggets for the party.
+- **2015-01-01**
+  - Stevie and Dustin exchange playful messages about household tasks and grocery needs.
+  - Stevie expresses love and commitment to Dustin.
+- **2015-01-02**
+  - Stevie mentions potential relationship issues and expresses the need for quality time together.
+- **2015-01-06**
+  - Stevie shares links about baby drum sets.
+- **2015-01-10**
+  - Stevie apologizes for being moody, and Dustin plans work-related arrangements.
+- **2015-01-10**
+  - Stevie and Dustin discuss plans for the day but seem unsure about what to do together.
+- **2015-01-10**:
+  - Stevie expresses feeling like the relationship is falling apart and being ignored.
+  - Dustin feels pushed away and misses spending time with his friends.
+  - Stevie worries about losing Dustin and feeling like a priority.
+  - Dustin expresses frustration with Stevie's insecurities and doubts about their relationship.
+  - Stevie decides to back off and give space to Dustin.
+- **2015-01-11**:
+  - Stevie discusses getting food and shoes for work with Dustin.
+- **2015-01-12**:
+  - Dustin apologizes for making Stevie miserable.
+  - Stevie suggests a job opportunity at Dark Horse Brewery for Dustin.
+- **2015-01-15**:
+  - Dustin struggles with the car and considers switching vehicles with Stevie.
+- **2015-01-15**:
+  - Stevie reminds Dustin about his appointment and offers to switch vehicles.
+- **2015-01-15**:
+  - Dustin mentions forgetting to inform someone about not being able to pick them up.
+- **2015-01-15**
+  - Stevie expresses forgetfulness and frustration due to car trouble and missed interactions with Dustin.
+  - Discussion about plans for the weekend and potential visits to Cady's place.
+  - Emotional exchange about feeling worthless and depressed, leading to a discussion about relationship dynamics and communication.
+  - Dustin expresses his feelings of being unhappy and misunderstood, particularly in his friendship with Kevin.
+  - Stevie expresses deep sadness and uncertainty about their relationship, leading to a conversation about car issues and household chores.
+- **2015-01-16**
+  - Stevie reflects on feeling inadequate and not meeting Dustin's expectations, expressing concerns about their relationship falling apart.
+  - Dustin expresses frustration with Stevie's constant focus on their time together and her pessimistic outlook on life, leading to a heated discussion about their compatibility and emotional needs.
+  - Stevie expresses disappointment and a sense of abandonment from Dustin, leading to contemplation about their future and possible separation.
+  - Tension rises as they discuss co-parenting arrangements for their daughter, leading to accusations and misunderstandings about each other's intentions.
+  - Both express feelings of being unappreciated and misunderstood, with Stevie feeling neglected and Dustin feeling unfairly judged.
+This summary captures the emotional dynamics, misunderstandings, and growing tension in the relationship between Stevie and Dustin. It highlights their struggles with communication, differing priorities, and unresolved emotional needs.
+- 2015-01-16:
+  - Stevie Linnabary expresses flattery and waited for a song for 3 years.
+  - Stevie Linnabary feels like failing her kids.
+  - Dustin Smith mentions spending money on diapers and cash.
+- 2015-03-12:
+  - Discussion about Everett Smith wanting to build a PC.
+  - Contemplation of giving an old PC to Cam as a birthday gift.
+  - Light-hearted conversation about family interactions and funny observations.
+- 2015-03-13:
+  - Stevie Linnabary reflects on the significance of Friday the 13th for her family.
+  - Affectionate exchanges between Stevie Linnabary and Dustin Smith.
+  - Concerns about financial difficulties and job prospects.
+- 2015-03-14:
+  - Stevie Linnabary expresses insecurity about her role as a mom and girlfriend.
+  - Dustin Smith acknowledges personal struggles and seeks help.
+  - Tension arises regarding time management and attention in the relationship.
+- **2015-03-14:**
+  - Stevie expresses frustration at being ignored on her weekend off by Dustin, highlighting a lack of attention and communication in their relationship.
+  - Dustin mentions his struggle with mental issues, paralleling Stevie's anxiety, but Stevie feels neglected.
+  - Stevie expresses disappointment in Dustin's priorities and lack of time for their relationship, leading to unresolved tension.
+- **2015-03-15:**
+  - Stevie contemplates her relationship's future, feeling unloved and neglected despite her efforts.
+  - The couple plans a walk together, discussing family matters and past conflicts, showcasing a mix of tension and care in their interactions.
+  - Stevie's frustration with Dustin's phone usage and their communication issues escalates, questioning the relationship's viability.
+- **2015-03-16:**
+  - A casual mention of the weather hints at a potential shift in tone or a temporary distraction from their relationship issues.
+- **2015-03-16**:
+  - Everett Smith is suggested to be taken to the park.
+  - Emotions of soreness and tiredness are expressed by Stevie Linnabary and Dustin Smith.
+  - Conversation about St. Patrick's Day photos and plans for the park.
+  - Dustin expresses feeling like an "empty robot."
+  - Tensions arise with Stevie feeling sorry and Dustin apologizing.
+  - Discussion about job applications and potential opportunities.
+- **2015-03-17**:
+  - Playful and intimate interactions between Dustin Smith and Stevie Linnabary.
+  - Humorous exchange about a messy situation with Lydia Smith.
+  - Stevie blocks a contact and expresses frustration, leading to a tense conversation and mutual accusations.
+  - Dustin expresses growing resentment towards Stevie and hints at moving on.
+  - Relationship strain highlighted with mentions of past relationships and potential jealousy.
+- **2015-03-17:**
+- **Dustin Smith** expresses frustration and detachment, telling **Stevie Linnabary** to leave him alone due to relationship issues.
+- Stevie accuses Dustin of neglecting their relationship for **Rebecca Rodriguez**, leading to a heated argument.
+- Dustin decides to block Stevie and hints at ending their relationship.
+- Stevie feels unappreciated and questions their future together.
+- The conversation escalates with accusations and emotional turmoil.
+- Dustin eventually suggests breaking up, indicating an end to their relationship.
+- Both parties exchange hurtful words and decide to block each other.
+- **2015-03-17**:
+  - Stevie expresses feeling depressed and worthless.
+  - Dustin questions the relationship, mentioning Stevie's behavior.
+  - Stevie questions if Dustin still wants her, feeling worthless and seeking reassurance.
+  - Their conversation escalates into accusations and blame.
+  - Dustin and Stevie's argument intensifies, leading to insults and emotional outbursts.
+  - Dustin accuses Stevie of cheating, leading to further conflict.
+- **2015-03-18**:
+  - Dustin brings up the previous night's issues, indicating a strain on their relationship.
+  - Stevie acknowledges the relationship's failure and the unlikelihood of marriage.
+  - Dustin and Stevie's exchange becomes confrontational, with blame being shifted between them.
+  - Dustin urges Stevie to focus on self-improvement for the sake of their children.
+- **2015-03-18:**
+  - Stevie expresses feeling overwhelmed balancing work and personal life.
+  - Dustin accuses Stevie of being consumed by insecurities and not changing.
+  - Stevie defends herself, highlighting Dustin's lack of understanding.
+  - Dustin expresses frustration at the deteriorating relationship and accuses Stevie of living in the past.
+  - Stevie feels unappreciated and neglected by Dustin during stressful times.
+  - Dustin expresses fatigue and resentment towards Stevie, indicating a desire to move forward without her.
+  - Arguments escalate due to accusations of texting habits and mistrust.
+  - Dustin expresses hatred and doubts about the relationship's future.
+  - Stevie and Dustin question the viability of their relationship.
+- **2015-03-19:**
+  - Stevie seeks reconciliation, expressing regret and a desire to work things out.
+  - Dustin reciprocates, indicating a willingness to make the relationship work.
+  - The couple discusses virtual reality games and mundane daily tasks, showing moments of lightheartedness amidst their troubles.
+  - Stevie expresses fear of losing Dustin and a strong desire to be with him.
+  - Dustin reassures Stevie of his love and dependency on her presence.
+  - The couple discusses future plans and seeks reassurance about the relationship's longevity.
+- **2015-03-19**:
+  - Stevie Linnabary and Dustin Smith discuss Adam Levine's song "Sugar."
+  - Stevie mentions arrangements for Everett Smith.
+  - Stevie expresses feeling scared and distant in the relationship.
+  - Dustin suggests using the mCouple app.
+- **2015-03-20**:
+  - Discussion about arrangements with Rebecca Rodriguez regarding Everett Smith.
+  - Stevie informs Dustin about a canceled card and a present.
+  - Emotional conversation about relationship issues and birthday disappointment.
+- **2015-03-21**:
+  - Stevie contemplates leaving due to relationship struggles.
+  - Dustin expresses care and concern despite misunderstandings.
+  - They discuss dinner plans and a wedding dress.
+- **2015-03-22**:
+  - Flirtatious exchange between Stevie and Dustin.
+  - Compliments and intimate conversation between the two.
+- **2014-10-29**
+  - Stevie suggests meeting Bruce at 4:30 at the Verona house.
+  - Discussion about potential court costs for child support.
+- **2014-10-30**
+  - Stevie finds something.
+  - Emotional conversation about insecurities and relationship struggles.
+- **2014-10-31**
+  - Tension rises over financial issues and past conflicts.
+  - Dustin expresses frustration and thoughts of giving up.
+- **2014-11-01**
+  - Plans for getting food together, with emotional insecurity and relationship doubts resurfacing.
+  - Discussion about feeling special and insecurities about attention from others.
+- **2015-03-22 02:38:32**: Stevie expresses desire to touch Dustin.
+- **2015-03-22 02:41:24**: Power outage affects communication.
+- **2015-03-22 07:32:46**: Stevie shares experiencing terrible anxiety.
+- **2015-03-22 17:39:06**: Emotional conversation about insecurities and past relationships.
+- **2015-03-22 17:57:32**: Discussion on past conflicts and misunderstandings.
+- **2015-03-22 18:05:17**: Dustin expresses frustration and readiness to move forward.
+- **2015-03-22 18:10:04**: Dustin emphasizes moving forward without dwelling on the past.
+- **2015-03-22**:
+  - Dustin expresses feeling unable to be a good person with the other person.
+  - Stevie acknowledges the difficulty in letting go due to lingering feelings.
+  - Stevie contemplates moving out if truly unwanted.
+  - Emotional outpouring from Stevie about feeling unappreciated and exhausted.
+  - Dustin blames the relationship issues on Stevie's insecurities and lack of trust.
+- **2015-03-23**:
+  - Dustin expresses deep love and effort in the relationship, feeling unappreciated by Stevie.
+  - Stevie struggles with communication and acknowledges Dustin's concerns.
+  - Dustin emphasizes the need for change and growth for the sake of their children.
+  - Stevie agrees with Dustin's sentiments and expresses love.
+  - Stevie mentions upcoming medical appointment preparations.
+  - Mutual expressions of love between Stevie and Dustin.
+- **2015-03-23**:
+  - Stevie Linnabary expresses feeling unwell and mentions someone crying.
+  - Concern about someone putting fingers inside their ears, interpreted as a bad sign.
+  - Discussion about getting a pacifier for someone.
+  - Conversations about ordering pizza and the need for a bottle.
+  - Emotional dialogue about feeling lonely, hopeless, and lacking happiness.
+- **2015-03-24**:
+  - Stevie Linnabary inquires about medication and apologizes for past discussions.
+  - Mention of job opportunities and physical tests.
+- **2015-03-27**:
+  - Tensions rise with discussions about social anxiety, misunderstandings, and feeling neglected.
+- **2015-03-28**:
+  - Intense exchange regarding anxiety, communication issues, and relationship strain.
+  - Expressions of frustration, feeling unheard, and mutual resentment.
+- **General Notes**:
+  - Emotional fluctuations, lack of understanding, and communication challenges are evident throughout the conversations.
+- **2015-03-28**:
+  - Stevie expresses feeling unappreciated and unwanted by Dustin.
+  - Dustin criticizes Stevie for her behavior.
+  - Stevie suggests splitting up.
+  - Dustin expresses discomfort in public with Stevie.
+  - Stevie wants to fix things but faces Dustin's reluctance.
+- **2015-03-29**:
+  - Stevie expresses feeling unloved and neglected by her family.
+  - The couple discusses grocery shopping and shares affectionate moments.
+  - Financial stress is mentioned, causing Stevie distress.
+  - Dustin contemplates not going to work, seeking reassurance from Stevie.
+- **2015-03-30**:
+  - Stevie faces anxiety about a test, supported by Dustin.
+  - The couple discusses children's names and family dynamics.
+  - Stevie expresses frustration about their relationship dynamics falling apart.
+  - Dustin expresses identity confusion and uncertainty.
+- 2015-03-30: Emotional conversation with Dustin and Stevie about feeling lost and uncertain in their relationship.
+- 2015-03-31: Dustin expresses frustration, but later reassures Stevie of his love and family importance. They discuss adding someone on social media and deal with parenting challenges.
+- Stevie experiences physical pain, possibly appendicitis. They also try to remember the URL for their blog.
+- Overall, the conversation reflects a mix of love, doubt, frustration, and health concerns between the couple.
+- **2015-03-31**
+  - Dustin and Stevie have a casual conversation about using new soap.
+  - Stevie mentions getting a headache.
+  - Stevie expresses desire to be close to Dustin.
+  - They have playful banter and plan to be intimate later.
+  - Dustin jokes about Stevie making him feel worthless.
+- **2015-04-01**
+  - Stevie takes a test and worries about being pregnant.
+  - Dustin reassures her it's an April Fools' joke.
+  - Stevie expresses concerns about their relationship and Dustin's behavior.
+  - Dustin and Stevie have a heated argument about trust and infidelity.
+  - Stevie feels hurt and expresses insecurity.
+  - Dustin contemplates leaving and packing his things.
+- **2015-04-02**
+  - Dustin and Stevie have a serious argument about trust, insecurities, and potential separation.
+  - Stevie feels inadequate compared to another woman (Kristin).
+  - Dustin tries to explain his actions but faces accusations of dishonesty.
+  - Stevie questions their relationship and Dustin's feelings.
+  - The conversation becomes emotional and strained.
+- April 2, 2015: Dustin and Stevie engage in a heated conversation about trust issues and past actions.
+- Dustin expresses feelings of depression and uncertainty about the relationship, while Stevie confronts him about searching for another woman.
+- Stevie sets boundaries regarding Dustin's actions and expresses her feelings of inadequacy and hurt.
+- The conversation escalates with Dustin contemplating self-destructive behaviors and Stevie trying to understand and salvage the relationship.
+- Despite the turmoil, Stevie reassures Dustin of her care and hope for improvement.
+- The conversation shifts briefly to a family matter before returning to the relationship dynamics and unresolved issues.
+- Dustin expresses frustration and a sense of being misunderstood, while Stevie emphasizes her desire for positive change and trust.
+- The conversation ends with unresolved tension and questions about the future of their relationship.
+- **2015-04-02 17:50:35:** Dustin expresses frustration, unwillingness to apologize, and lack of care.
+- **2015-04-02 17:51:27:** Stevie reassures she's not leaving.
+- **2015-04-02 17:53:31:** Dustin explains his caring nature but feels misunderstood.
+- **2015-04-02 17:56:35:** Dustin hints at leaving Stevie.
+- **2015-04-02 18:10:31:** Stevie expresses fatigue and emotional distress.
+- **2015-04-02 18:20:58:** Dustin and Stevie discuss trust issues and potential breakup.
+- **2015-04-02 18:45:25:** Stevie expresses regret and pain.
+- **2015-04-02 18:49:00:** Dustin acknowledges not being the best for Stevie.
+- **2015-04-02 18:56:36:** Stevie expresses feeling unfulfilled.
+- **2015-04-02 18:59:49:** Dustin feels inadequate and frustrated.
+- **2015-04-02 19:01:56:** Dustin reaffirms his desire for Stevie despite her doubts.
+- **2015-04-02**:
+  - Dustin expresses self-doubt and confusion about his identity, causing emotional strain.
+  - Stevie feels distant and unsure about a job decision, leading to sadness and uncertainty.
+- **2015-04-03**:
+  - Stevie shares concerns about work and resigning, seeking support and advice from Dustin.
+  - Affection and care are exchanged, showing a loving bond despite challenges.
+- **2015-04-04**:
+  - Stevie appreciates Dustin's support and expresses love despite work-related worries.
+  - Both acknowledge and value each other's efforts in the relationship.
+- **2015-04-05**:
+  - Plans for a meal date are made, demonstrating consideration and care for each other's preferences.
+  - Stevie offers support and help in various situations, showcasing a supportive partnership.
+- **2015-04-08**:
+  - Dustin asks Stevie to get him Redbull and food.
+  - Stevie expresses feeling inadequate and wanting to be a better friend.
+  - Dustin struggles with overwhelming negative emotions.
+- **2015-04-09**:
+  - Stevie sends encouraging messages about fighting for their relationship.
+- **2015-04-11**:
+  - Dustin announces the end of the relationship.
+- **2015-04-15**:
+  - Stevie expresses insecurity about meeting relationship goals.
+  - Dustin reassures Stevie of his love despite challenges and misunderstandings.
+**Important Notes**:
+- Emotions range from gratitude to insecurity and self-doubt.
+- Communication includes expressions of love, support, and frustration.
+- Relationship struggles and attempts at reassurance are evident.
+- **2014-11-01**:
+  - Dustin expresses frustration and readiness to leave but later apologizes, showing love and concern for Stevie.
+  - Stevie informs Dustin about Lydia having thrush, a yeast infection, and discusses treatment.
+- **2014-11-07**:
+  - Dustin expresses annoyance about the focus on Rebecca Rodriguez and relationship tensions emerge.
+  - Stevie emphasizes the importance of family time and expresses feelings of neglect.
+- **2014-11-08**:
+  - Playful and intimate exchange between Stevie and Dustin.
+- **2014-11-14**:
+  - Stevie mentions the lack of a turkey and Christmas bonus, causing dissatisfaction.
+- **2014-11-15**:
+  - Tensions escalate as arguments about family arrangements and Rebecca Rodriguez intensify.
+  - Dustin expresses frustration about living conditions and relationship strain.
+This summary captures the emotional journey of the couple, highlighting moments of love, frustration, concern for family, and escalating conflicts over time.
+- **2015-04-15**:
+  - Stevie expresses feeling sad and doubts the relationship's future.
+  - Dustin mentions memory differences.
+  - Stevie mentions feeling depressed and undeserving.
+  - Tension arises from past actions and expectations.
+- **2015-04-18**:
+  - Stevie expresses frustration about broken jewelry.
+  - Positive exchanges show moments of affection.
+- **2015-04-19**:
+  - Humorous dialogue about shopping for items.
+  - Playful banter about drinking leading to intimacy.
+- **2015-04-20**:
+  - Dustin seeks help for a video contest.
+- Overall, the conversation reflects a mix of emotional struggles, relationship challenges, moments of affection, and occasional humor.
+- **2015-04-20**:
+  - Dustin suggests a fun project of drawing and painting on canvas.
+  - Stevie expresses feeling antsy and discusses leaving money for pizza.
+  - Casual conversation about work and lunch breaks.
+  - Tension arises as Stevie expresses frustration about not spending time together.
+- **2015-04-20 Evening**:
+  - Stevie brings up relationship commitment and marriage, leading to a heated argument.
+  - Discussion escalates about dedication, marriage, and personal worth.
+- **2015-04-21**:
+  - Stevie contemplates the relationship's future and expresses frustration over marriage.
+  - Argument intensifies regarding marriage promises, waiting, and moving on.
+  - Dustin mentions a job opportunity at Kellogg's, highlighting financial potential.
+  - Final exchanges show continued disagreement and potential separation.
+- **2015-04-21**:
+  - Stevie expresses frustration over differences in desires, leading to a heated exchange with Dustin.
+  - Stevie questions the value of their relationship and expresses doubts about their future together.
+- **2015-04-22**:
+  - Financial stress adds tension as they discuss bill payments and miscommunications.
+  - Dustin apologizes for his behavior, expressing love and appreciation for Stevie.
+  - Playful banter and affectionate exchanges alleviate some tension, highlighting their strong emotional connection.
+  - Stevie seeks reassurance about their relationship's strength and potential for a lasting bond.
+  - Both express love and affection, emphasizing their deep emotional connection and shared history.
+Overall, the conversation reflects a mix of emotional turbulence, financial concerns, moments of affection, and doubts about the relationship's future, ultimately showcasing their complex dynamic and deep emotional bond.
+- **2015-04-22 14:13:38**: Stevie expresses hurt over the idea of someone leaving.
+- **2015-04-22 17:15:28**: Stevie initiates a sexual conversation with Dustin.
+- **2015-04-23 04:31:43**: Stevie expresses eagerness to spend time together.
+- **2015-04-24 15:13:05**: Stevie questions their relationship dynamics and expresses sadness.
+- **2015-04-24 19:02:31**: Stevie discusses parenting concerns with Dustin regarding their son, Camryn.
+*Note: The conversation involves emotional moments, affection, sexual references, work-related discussions, and parenting disagreements.*
+- **April 24, 2015**:
+  - Stevie Linnabary announces getting a job and expresses motivation.
+  - Tension arises between Stevie and Dustin regarding understanding and love.
+  - Stevie indicates being done with the relationship due to perceived lack of care and love for her son.
+  - Discussion about parenting styles, past behaviors, and communication issues escalates.
+  - Dustin expresses frustration and annoyance, leading to a breakdown in communication.
+  - Stevie emphasizes the importance of working together for her son's well-being but faces resistance.
+  - Dustin and Stevie's conversation highlights differing views on discipline and treatment of their children.
+  - The argument intensifies, leading to Dustin expressing a desire to end the relationship.
+  - Dustin requests space, and Stevie reacts with a sense of injustice and unwillingness to isolate her son.
+- **2015-04-24**
+  - Stevie expresses concerns about Dustin's treatment of her son and their relationship dynamics.
+  - Dustin feels unappreciated and expresses frustration, leading to a heated argument.
+  - Stevie acknowledges the need for a better partner for her children's sake.
+  - Dustin and Stevie discuss their relationship issues, with accusations and hurtful words exchanged.
+  - Dustin indicates a desire to split up due to unresolved issues and feeling unloved.
+- **2015-04-25**
+  - The conversation continues with Stevie expressing her struggles and Dustin deciding he no longer wants to be with her.
+  - Dustin emphasizes the negative impact of the relationship on his well-being and suggests parting ways for closure.
+  - Stevie accepts the breakup and mentions the division of possessions.
+  - Both parties express a sense of disappointment and resignation toward the failed relationship.
+- **2015-04-25**:
+  - Dustin expresses hurt over Stevie's lack of belief in his love for her.
+  - Stevie leaves to get money, leading to a heated argument about their responsibilities.
+  - Dustin accuses Stevie of being a destructive force in their family.
+  - Stevie expresses feeling overwhelmed and scared about impending changes.
+  - Tensions rise with accusations and blame regarding addiction issues and parenting responsibilities.
+- **2015-04-26**:
+  - Stevie and Dustin's interactions continue with moments of affection and humor amidst underlying tensions.
+  - Stevie expresses feeling sick and needing to stay in the bathroom, while Dustin makes light-hearted comments.
+  - Despite ongoing disagreements and accusations, moments of humor and affection still surface in their conversations.
+- **2015-04-27**:
+  - Stevie expresses love and humor towards Dustin despite previous conflicts.
+  - Light-hearted banter and expressions of affection between the couple continue, showing a mix of emotions in their relationship.
+- 2015-04-27: Stevie Linnabary discusses her new work shift and excitement about a colleague joining.
+- 2015-04-27: Emotional conversation between Stevie and Dustin regarding insecurities and past relationships.
+- 2015-04-27: Financial stress and communication issues arise.
+- 2015-04-28: Continued stress about finances, lack of support, and emotional strain in their relationship.
+- 2015-04-28: Dustin expresses frustration and emotional turmoil, contemplating the future of their relationship.
+- 2015-04-28: Tension escalates as Stevie demands action and Dustin struggles with communication and responsibility.
+- **2015-04-28:**
+  - Stevie Linnabary expresses anger and anxiety, seeking release.
+  - Discussion about money and household issues between Stevie and Dustin.
+  - Tension over read receipts settings, leading to relationship concerns and insecurities.
+  - Emotional plea from Stevie about working together towards goals.
+  - Relationship struggles highlighted, indicating potential separation.
+- **2015-04-29:**
+  - Casual conversation about daily activities and family interactions.
+  - Plans for cleaning and family visit mentioned.
+  - Shock and sadness over a tragic news story involving child homicide.
+  - Shared disapproval of people responsible for harming children.
+- 2015-04-29: Stevie expresses concern about people harming their children unintentionally.
+- 2015-04-29: Dustin and Stevie affirm their love for each other and their children.
+- 2015-04-30: Dustin shares a humorous parenting moment.
+- 2015-04-30: Stevie expresses boredom and frustration.
+- 2015-04-30: Dustin apologizes and acknowledges appreciation for Stevie.
+- 2015-04-30: Discussion about discipline issues with their child, Cam.
+- 2015-05-01: Dustin and Stevie express love and discuss relationship challenges.
+- 2015-05-01: Stevie worries about their relationship status and communication.
+- 2015-05-02: Intimate discussion about physical intimacy and concerns about their relationship.
+- **2014-11-15**
+  - Stevie asks Dustin to throw away a towel, expressing disgust.
+  - Dustin mentions needing Stevie's help.
+  - Stevie apologizes for not being able to help and expresses a desire for time off.
+- **2014-11-16**
+  - Stevie and Dustin discuss moving to a new house and mention marriage plans.
+  - Stevie expresses feeling unwell but plans to get donuts.
+  - They celebrate their anniversary but encounter stress during the move.
+  - The conversation escalates into an argument, leading to Stevie leaving.
+- **2014-11-17**
+  - Dustin apologizes, and Stevie acknowledges personal struggles and the need for help.
+  - They discuss job opportunities and medication issues.
+- **2014-11-18**
+  - They plan for Thanksgiving and express concern over health issues.
+- **2014-11-19**
+  - The couple shows affection and discusses their child's intelligence and achievements.
+  - Dustin seeks help with a mathematical problem, and they engage in a supportive conversation.
+- **2015-05-02**
+  - Stevie Linnabary feels miserable and needs to go to the bathroom.
+  - Conversation about finding old oak items at garage sales or Craigslist.
+  - Plans for the day involve a potential trash run.
+  - Stevie Linnabary expresses feeling sick but wants to get out of the house.
+  - Discussion about potential activities and hanging out with friends.
+  - Playful interaction about being naked and horny.
+  - Excitement over achieving a 4.0.
+- **2015-05-03**
+  - Stevie Linnabary expresses concern about a teenager's well-being.
+  - Conversation about stomach issues and potential causes.
+  - Desire for luxurious AC due to feeling unwell.
+- **2015-05-04**
+  - Dustin Smith and Stevie Linnabary express longing for each other and discuss household tasks.
+  - Playful and flirtatious exchanges about food and intimacy.
+  - Dustin Smith's frustration with the hot weather and discomfort.
+(Note: Some content has been omitted for brevity and relevance.)
+- **May 4, 2015**:
+  - Dustin Smith adds items to a shopping list and mentions having BBQ chips.
+  - Stevie Linnabary asks about the presence of Cam.
+  - Discussion about lacking an extra fan and the heat in the bath.
+  - Stevie shares a disturbing photo received.
+- **May 5, 2015**:
+  - Morning exchanges reveal playful banter between Dustin and Stevie.
+  - Tension arises over clothing clutter and personal space concerns.
+  - Argument escalates with accusations and emotional outbursts.
+  - Dustin expresses feelings of unappreciation and frustration.
+  - Stevie hints at feeling neglected and not valued enough.
+  - Password change confusion occurs regarding social media accounts.
+(Note: Emotions range from playful and loving moments to escalating tension and misunderstandings, highlighting communication challenges and relationship strain.)
+- **May 5, 2015:**
+  - Stevie expresses feelings of worthlessness.
+  - Discussion about dinner plans and snacks.
+  - Tensions rise as Dustin questions Stevie's actions and contacts.
+  - Stevie asserts control over the situation regarding their child.
+  - Emotional exchanges about love, custody, and relationship dissatisfaction.
+  - Dustin and Stevie reach a breaking point, discussing separation and moving out.
+  - Mutual accusations of broken promises and lack of love.
+  - Dustin expresses frustration and blames Stevie for negative impacts on his life.
+  - Stevie acknowledges the end of the relationship and suggests parting ways.
+  - Dustin and Stevie confront each other's intentions and past actions.
+  - Their conversation ends with an acknowledgment of moving on separately.
+- **2015-05-05** - Dustin Smith asks Stevie Linnabary to pick up Lydia Smith from his mom's place. Stevie expresses feeling unappreciated and unheard in the relationship.
+- **2015-05-05** - Stevie feels hurt and expresses disappointment in Dustin for not making their relationship a priority.
+- **2015-05-05** - Dustin asks Stevie to make a decision on their future together, expressing frustration and the need for clarity.
+- **2015-05-06** - Tensions escalate with accusations of blame and lack of commitment from both sides.
+- **2015-05-06** - The conversation becomes heated, leading to Dustin planning to delete Stevie from Facebook and change his status to single.
+- **2015-05-06** - Both parties express readiness to move on and hint at the end of the relationship, highlighting a lack of alignment in goals and priorities.
+- **2015-05-06**:
+  - Dustin Smith expresses frustration over not being able to leave due to the car seat situation.
+  - Dustin Smith apologizes for his words about Jensen, reflecting on feeling both good and bad because of the recipient's actions.
+  - Dustin Smith acknowledges his role in his current situation but also attributes it to the recipient's words and actions, feeling broken down.
+  - Dustin Smith questions the recipient's love, expressing feeling hurt and unappreciated in the relationship.
+- **2015-05-06 to 2015-05-07**:
+  - Conversation shifts to lighter topics such as house inspection, central air discovery, and cleaning the house.
+  - Stevie Linnabary shares a news article about a disturbing incident.
+  - Concerns about financial matters arise, including wage comparisons and garnishments, leading to discussions on pay stubs and calculations.
+  - Supportive messages and expressions of love exchanged amidst financial worries and uncertainties about the future.
+- May 7, 2015:
+  - Stevie expresses hunger, Dustin agrees.
+  - Conversation about marrying and paying off Oaklawn.
+  - Humorous exchange about hot weather and playfully flirting.
+  - Stevie introduces her dad.
+  - Stevie expresses anxiety and stress.
+  - Stevie jokingly proposes marriage, Dustin initially jokes about something else but eventually agrees.
+- May 8, 2015:
+  - Stevie asks Dustin to call about a recall, Dustin expresses frustration due to family stress.
+  - Dustin apologizes for his frustration.
+  - Dustin expresses feeling worthless and criticized, leading to tension.
+  - Stevie and Dustin discuss their relationship and future plans, expressing frustration and lack of progress.
+  - Stevie mentions another couple's wedding and Dustin questions the relevance.
+  - Tension escalates as they discuss efforts and commitment in the relationship.
+  - Stevie expresses a wish to be the one to bring light into Dustin's life.
+  - The conversation ends with unresolved tension and emotional strain.
+- **2015-05-08**
+  - Dustin expresses frustration and anger at Stevie bringing up past issues repeatedly, feeling it hinders progress.
+  - Stevie highlights feeling unfairness due to Dustin's past relationships and lies, leading to insecurities.
+  - Tension escalates as Stevie questions Dustin's commitment and readiness for marriage, feeling unappreciated.
+  - Dustin and Stevie argue about marriage plans, responsibilities, and emotional needs, leading to further discord.
+  - The conversation becomes heated with accusations and hurtful remarks exchanged.
+  - Dustin questions the relationship's future, emphasizing the impact on their children and the need for change.
+  - Both express feelings of hurt, worthlessness, and disappointment, highlighting the strain on their relationship.
+  - The argument continues late into the night, with unresolved issues and emotional exhaustion evident.
+- **2015-05-08, 20:58:23**
+  - Stevie warns Dustin not to talk to her son and accuses him of mistreatment, leading to more heated exchanges.
+- **2015-05-08, 21:20:12**
+  - Dustin accuses Stevie of avoiding him and prioritizing others over their conversation, adding to the ongoing conflict.
+- **2015-05-08**:
+  - Dustin expresses frustration and doubts about change.
+  - Tension arises between Dustin and Stevie regarding commitment and dissatisfaction.
+  - Dustin questions their relationship and future plans.
+- **2015-05-09**:
+  - Dustin accuses Stevie of neglecting responsibilities and their daughter.
+  - Stevie feels unappreciated and overwhelmed by criticism.
+  - Stevie contemplates drastic actions due to emotional distress.
+  - Dustin tries to reassure and understand Stevie's feelings.
+  - Lighter conversation about daily activities and dinner plans occurs.
+  - Dustin expresses a desire for Stevie to love him again, suggesting marriage.
+  - Stevie jokingly suggests marriage and confirms her love for Dustin.
+- **2015-05-09**:
+  - Dustin expresses enduring love and desire to make Stevie happy.
+  - Stevie feels insecure about their relationship and seeks validation.
+  - Both express their love for each other despite external perceptions.
+- **2015-05-10**:
+  - Stevie appreciates Dustin for a good day and acknowledges her parenting challenges.
+  - Dustin reassures and acknowledges his own shortcomings.
+  - Discussion about plans for the day and childcare.
+- **2015-05-11**:
+  - Stevie expresses love and financial concerns.
+  - Dustin reassures and discusses job prospects.
+  - Conversations about mundane tasks, affection, and job search.
+- **2015-05-12**:
+  - Dustin expresses self-doubt and apologizes for causing stress.
+  - Stevie reaffirms her love and support for Dustin amidst personal and family challenges.
+  - Normal interactions about daily activities and household issues.
+- **2015-05-12**:
+  - Dustin expresses frustration over lack of water for dishes and cooking.
+  - Tensions rise as Dustin and Stevie argue over priorities, with Stevie wanting a shower and Dustin feeling neglected.
+  - Stevie expresses feeling overwhelmed and unappreciated, suggesting a need for understanding and support.
+- **2015-05-13**:
+  - The couple continues to argue about responsibilities and communication issues.
+  - Stevie contemplates moving out, feeling unappreciated and unhappy.
+  - Dustin expresses frustration with the ongoing conflicts and lack of understanding.
+  - Both express feelings of being unloved and misunderstood, highlighting the need for change and better communication.
+  - The conversation escalates with accusations and a sense of desperation from both parties.
+- **2014-11-19**:
+  - Dustin and Stevie discuss calculations involving degrees and tolerance values.
+  - Dustin expresses frustration with falling behind in studies.
+  - Stevie offers to bring Dustin food and charger during a blizzard.
+- **2014-11-20**:
+  - Dustin and Stevie exchange messages about missing each other and food mishaps.
+- **2014-11-21**:
+  - Financial concerns and work stress are discussed.
+  - Plans for future and aspirations are shared, expressing love and support.
+  - Tragic news about a friend's loss is mentioned.
+- **2014-11-22**:
+  - Routine exchanges about locating items and sharing photos.
+- **2015-05-13**:
+  - Stevie Linnabary expresses feeling stressed, overwhelmed, and neglected in the relationship.
+  - Conflict arises when Dustin Smith feels unappreciated for his efforts.
+  - Stevie seeks emotional support due to anxiety and stress, but Dustin is resistant and accuses her of mistreating him.
+  - Tensions escalate with accusations and emotional outbursts.
+  - Stevie expresses feelings of worthlessness and loneliness, while Dustin becomes defensive and distant.
+- **2015-05-14**:
+  - Despite ongoing issues, both express love for each other amidst the turmoil.
+  - Dustin's father's health issues bring moments of reflection and reconciliation.
+  - Dustin acknowledges the need for change and collaboration to break the cycle of misery.
+  - Stevie responds positively to Dustin's reflections, showing willingness to discuss and work on their relationship.
+  - The day ends with a lighter exchange, hinting at a potential shift towards better communication and understanding.
+- **2015-05-14:**
+  - Stevie expresses love and happiness in interactions with Dustin.
+- **2015-05-15:**
+  - Stevie mentions health concerns, Dustin shows casual attitude.
+- **2015-05-16:**
+  - Stevie and Dustin have a tense conversation about health and plans, leading to arguments.
+  - They later exchange playful and affectionate banter.
+  - Plans for socializing and interactions with friends are mentioned.
+  - Dustin seems detached at times but expresses love for Stevie and their kids.
+- **2015-05-16**
+  - Lydia is being honored.
+  - Stevie is waiting for Dustin to come home.
+  - Emotional tension between Stevie and Dustin regarding their relationship and future plans.
+- **2015-05-17**
+  - Stevie expresses frustration about not being able to shower or do laundry.
+  - Arguments about past relationships and suspicions arise.
+  - Stevie questions her worth and the status of her relationship with Dustin.
+  - Dustin and Stevie engage in heated exchanges, indicating relationship strain and potential infidelity accusations.
+  - Dustin expresses indifference and asks Stevie to move on.
+  - Stevie struggles with feelings of abandonment and desires for love and commitment.
+  - Tensions escalate with hurtful comments and accusations exchanged.
+  - Dustin appears to distance himself emotionally from Stevie.
+  - Stevie expresses sadness and longing for love and confirmation of Dustin's commitment.
+  - Dustin's responses showcase a lack of emotional investment and willingness to engage in the relationship.
+  - A sense of emotional distress and uncertainty is evident in the interactions.
+- **2015-05-17**:
+  - Stevie expresses emotional frustration about worthiness and commitment.
+  - Dustin mentions past issues and communication problems.
+  - Tension rises as Stevie feels unappreciated and Dustin accuses her of negativity.
+- **2015-05-18**:
+  - Stevie worries about work scheduling issues, affecting their relationship.
+  - Dustin offers support but acknowledges challenges.
+- **2015-05-19**:
+  - Stevie expresses feelings of worthlessness and seeks reassurance.
+  - Communication deteriorates, leading to arguments about support and negativity.
+  - Dustin suggests seeking professional help and questions the relationship's future.
+- **2015-05-19**
+  - Stevie expresses feeling unhappy and unappreciated, desires kindness and support from Dustin.
+  - Dustin emphasizes personal responsibility for feelings and actions, expresses a need for change in their relationship dynamic.
+  - Stevie questions Dustin about borrowing money, financial troubles arise in conversation.
+  - Tension escalates as Dustin asserts his need for positive communication and decision-making.
+  - Stevie expresses concern about their relationship and Dustin's commitment, leading to a discussion about marriage.
+  - Dustin emphasizes the need for happiness and growth, setting boundaries on communication.
+- **2015-05-20**
+  - Both parties express love and affection, engage in light-hearted banter.
+  - Practical matters such as household chores, finances, and plans for the day are discussed.
+  - Dustin expresses frustration over parenting challenges.
+  - Stevie and Dustin make plans for the day, discuss food options, and express affection.
+- **2015-05-20**:
+  - Stevie almost bought a Transformers shirt but didn't like how it looked on her.
+  - Stevie and Dustin exchange playful messages, with Dustin mentioning a well issue and water from neighbors.
+- **2015-05-21**:
+  - Stevie and Dustin express love and discuss attending an event for Everett Smith.
+  - Work-related stress for Stevie, feeling underpaid and discussing a flexible schedule with Dustin.
+  - Tension arises between Stevie and Dustin over a comment from Christy Hampton on a picture of Everett Smith.
+  - Misunderstandings and insecurities about other women surface in their conversation.
+  - The day ends with expressions of love and a light-hearted exchange about waking up.
+- **2015-05-22**:
+  - Stevie apologizes for questioning trust, considers working only second shift, and reminds Dustin to pay Semco.
+  - Dustin reassures Stevie about shift choice and expresses his love.
+- **2015-05-22 06:27:57**: Stevie expresses uncertainty about being forced to work different shifts.
+- **2015-05-22 06:40:50**: Stevie mentions her card being unblocked after Walmart activity was deemed suspicious.
+- **2015-05-22 08:06:39 - 08:07:06**: Dustin sends affectionate messages in all caps to Stevie.
+- **2015-05-22 11:03:19**: Stevie admires a post about marriage and expresses desire to start their forever.
+- **2015-05-22 11:18:04**: Stevie comments on dynamics with friends and relationships, expressing frustration about not being allowed to hang out with Kevin.
+- **2015-05-22 11:56:21**: Stevie feels embarrassed when a guy asks her out and declines, mentioning her relationship.
+- **2015-05-22 15:48:39**: Dustin expresses stress and frustration with household chores and time management.
+- **2015-05-22 15:51:42**: Stevie reassures Dustin about spending time together being her priority.
+- **May 22, 2015**:
+  - Stevie expresses desire to see Dustin before sleep.
+  - Plans to get beer together.
+  - Stevie feels ill and asks for help while mentioning encountering ticks.
+  - Discussion about natural tick and spider spray.
+  - Tension arises regarding spending time together and household responsibilities.
+- **May 23, 2015**:
+  - Argument escalates over not spending time together, household duties, and personal criticisms.
+  - Emotional exchanges about feeling inadequate and relationship strain.
+  - Stevie expresses self-doubt and Dustin changes password after fights.
+  - Apologies and unresolved issues continue.
+- **May 24, 2015:**
+  - Dustin Smith and Stevie Linnabary have a brief exchange about sitting separately.
+  - Dustin expresses frustration with managing children.
+- **May 25, 2015:**
+  - Stevie struggles with handling children in a crowded place, leading to tension with Dustin.
+  - A heated argument ensues about their relationship and wedding plans.
+  - Stevie expresses deep sadness and loneliness, while Dustin shows resistance towards marriage.
+- **May 26, 2015:**
+  - Financial stress, family conflicts, and housing issues add strain to their relationship.
+  - Dustin faces anger from his mother over rent payment, leading to self-doubt and frustration.
+  - Both acknowledge external challenges impacting their situation but struggle to find common ground.
+- **May 26, 2015**:
+  - Stevie Linnabary and Dustin Smith have light-hearted banter about accidentally double-liking a post.
+  - Stevie expresses missing Dustin and later asks for medical relief.
+- **May 27, 2015**:
+  - Stevie greets Dustin in the morning but shares feeling awful and overwhelmed at work.
+  - Emotional exchange about missing each other, Stevie's rough day, and playful Snickers commercial reference.
+  - Intimacy and planning for dinner and a call from therapy.
+- **May 28, 2015**:
+  - Stevie shares personal struggles and seeking validation from Dustin, expressing self-doubt.
+  - Dustin reassures Stevie and offers support regarding negative comments from Cory.
+- **May 29, 2015**:
+  - Dustin appreciates Stevie's efforts and expresses love and support.
+  - Playful and intimate conversation about household tasks and joint humor.
+  - Financial discussion and light-hearted exchange about an engagement ring link.
+- **May 30, 2015**:
+  - Both Stevie and Dustin don't feel well.
+The interactions involve emotional support, playful banter, intimacy, and financial considerations among the couple, with Stevie seeking reassurance and validation from Dustin during personal struggles.
+- **2014-11-22**
+  - Stevie Linnabary injures thumb, experiences pain
+  - Discussion about grocery shopping plans
+  - Concerns about Lydia Smith's health and crankiness
+- **2014-11-23**
+  - Both parties feel unwell, possibly due to food poisoning
+  - Stevie Linnabary contemplates calling in sick to work
+  - Relaxed interactions and expressions of love between Dustin Smith and Stevie Linnabary
+- **2015-05-30:**
+  - Stevie Linnabary expresses shakiness and a racing heart, indicating emotional distress.
+  - Dustin Smith initially mentions selling off possessions, followed by a shared link.
+  - Emotional conversation unfolds between Stevie and Dustin regarding past relationships and feelings.
+  - Stevie expresses desire for a strong bond and loving words, while Dustin responds negatively.
+  - Tension escalates with accusations, hurtful exchanges, and financial disagreements.
+  - Stevie expresses feelings of inadequacy, longing for love, and self-destructive thoughts.
+  - Dustin expresses frustration and a desire to distance himself from Stevie's behavior.
+  - The conversation ends with Dustin threatening consequences and Stevie expressing despair over feeling unloved and unwanted.
+  - Dustin makes a final statement indicating a sense of independence and readiness to move forward without Stevie.
+- **2015-05-30**:
+  - Intense emotional exchange between Dustin Smith and Stevie Linnabary, expressing frustration and hurt feelings.
+  - Dustin feels unappreciated and accuses Stevie of neglecting their kids.
+  - Stevie asserts her value and expresses her love despite the conflict.
+- **2015-05-31**:
+  - Stevie expresses desire for love and marriage, reminiscent of past affection.
+- **2015-06-01**:
+  - Financial stress and communication issues arise, causing anxiety for Stevie about gas and money.
+  - Dustin reassures Stevie, emphasizing their ability to overcome challenges together.
+- **2015-06-01**
+  - Stevie plans to figure something out before the end of work.
+  - Dustin offers to help, asks to be called after work.
+- **2015-06-01**
+  - Stevie and Dustin discuss shopping at Walmart.
+- **2015-06-01**
+  - Stevie realizes they forgot beer.
+  - Stevie expresses feeling invincible when intimate while drunk due to insecurity.
+  - Dustin questions the need for alcohol to feel secure.
+- **2015-06-02**
+  - Playful interaction about kissing goodbye and spider posts.
+  - Conversation about household chores and feeling better.
+  - Dustin jokingly references intimate plans with alcohol.
+- **2015-06-02**
+  - Stevie expresses being overwhelmed at work scheduling.
+  - Dustin shares cleaning accomplishments and feeling better.
+- **2015-06-02**
+  - Arrangement for dinner and movie plans.
+  - Playful banter about intimate activities and joking invitations.
+- **2015-06-03**
+  - Stevie expresses feeling distant from Dustin.
+  - Dustin reassures Stevie of his love and explains his tasks at home.
+- **2015-06-03 14:30:54**: Stevie plans to make dinner while Camryn is hungry.
+- **2015-06-03 16:30:48**: Stevie asks Dustin about his life goals and future with her.
+- **2015-06-03 16:40:17**: Dustin expresses his goals of being a good father and husband.
+- **2015-06-03 16:50:17**: Stevie notes Dustin's response about his future plans.
+- **2015-06-03 17:00:35**: Stevie thanks Dustin for his response.
+- **2015-06-03 17:02:45**: Misunderstanding arises about feelings and future plans.
+- **2015-06-03 17:20:18**: Stevie feels neglected compared to another person.
+- **2015-06-03 17:21:49**: Stevie expresses feeling worthless and unimportant.
+- **2015-06-03 17:23:41**: Tension grows regarding commitment and promises.
+- **2015-06-03 17:27:30**: Stevie desires a romantic proposal and expresses sadness over the lack thereof.
+- **2015-06-03 17:47:38**: Stevie comments on Dustin being stuck in his ways.
+- **2015-06-03 17:51:19**: Stevie feels unappreciated and unheard.
+- **2015-06-03 18:03:46**: Dustin prioritizes the kids over marriage, causing conflict.
+- **2015-06-03 18:09:05**: Dustin aims to be a positive role model for the kids.
+- **2015-06-03 19:22:27**: Communication issues persist, leading to accusations of secrecy and avoidance.
+- **2015-06-03:**
+  - Dustin and Stevie have a heated argument about communication with others, leading to thoughts of separation.
+  - Stevie suggests moving out to separate their lives, expressing dissatisfaction.
+  - Dustin emphasizes wanting happiness with his kids, not past relationships.
+  - Stevie initiates a breakup, Dustin reluctantly agrees.
+- **2015-06-04:**
+  - Dustin expresses concern for their children's safety in their absence.
+  - Stevie contemplates leaving and expresses frustration and sadness.
+  - Dustin emphasizes the need for positive change for their children's well-being.
+  - Stevie and Dustin discuss their relationship and express emotional distress.
+  - Stevie mentions feeling overwhelmed and wanting to give up.
+- **2015-06-05:**
+  - Stevie expresses love and desire to be with Dustin.
+  - A lighthearted moment occurs with discussion about iPhone chargers.
+  - Stevie talks about feeling unwell, and Dustin offers support.
+  - Stevie mentions frustration over baby food, and a casual conversation unfolds.
+  - Dustin shares a humorous moment about a bug, and Stevie expresses anger over a situation with Jessica.
+  - Light-hearted banter occurs between Stevie and Dustin about drinking and friends.
+- **2015-06-05**:
+  - Dustin is asked to not be present when a woman arrives, causing amusement.
+  - Humorous and flirtatious exchanges between Stevie and Dustin.
+  - Mention of making a porno.
+- **2015-06-06**:
+  - Positive interaction at the post office.
+  - Discussion about personal issues and frustrations with living arrangements.
+- **2015-06-07**:
+  - Stevie expresses a desire for a stable life, marriage, and better family life.
+  - Tension and arguments about marriage and relationship dynamics.
+  - Dustin expresses frustration with current living situation and relationship dynamics.
+  - Apology and emotional reconciliation between Dustin and Stevie.
+- **June 8, 2015**:
+  - Stevie expresses sadness about growing up and nostalgia for old times.
+  - Discussion about past relationships and friends.
+  - Tension arises regarding phone privacy and trust issues.
+  - Argument escalates over passcode and phone access.
+  - Stevie apologizes and expresses the need for change.
+- **June 9, 2015**:
+  - Stevie feels unloved and expresses loneliness.
+  - Both parties express feeling overwhelmed and stressed.
+  - Stevie seeks comfort while Dustin desires space.
+  - Discussion about the upcoming move and lack of support.
+  - Tension continues as Stevie feels uncared for.
+- Overall, the communication reflects a strained relationship marked by trust issues, differing needs for support, and emotional disconnect.
+- **June 9, 2015**:
+  - Stevie Linnabary expresses frustration about her son moving a lot due to his mom, hopes for recognition from Rebecca Rodriguez for good parenting.
+  - Discussion escalates as Dustin Smith feels the conversation is not about him.
+  - Stevie questions Dustin's lack of hope in their relationship, leading to Dustin expressing his doubts.
+  - Tension rises with accusations of not caring and lack of effort in the relationship.
+  - Dustin and Stevie argue about trust, privacy, and emotional disconnect.
+  - The conversation turns towards relationship dissatisfaction and potential separation.
+  - Stevie feels inadequate and lost, unsure how to make Dustin happy.
+  - Dustin focuses more on distractions like games, leading to Stevie feeling neglected.
+  - The argument intensifies with Dustin accusing Stevie of being dramatic and Stevie emphasizing the need for love and attention towards her son.
+  - Dustin expresses frustration and resentment towards Stevie, highlighting issues with parenting and relationship dynamics.
+  - Both parties acknowledge the deteriorating situation, with Dustin indicating growing anger and Stevie feeling helpless and unheard.
+- **2015-06-09**:
+  - Tension and argument between Stevie Linnabary and Dustin Smith regarding parentage and relationship issues.
+  - Dustin expresses frustration and desire for Stevie to find her own place to live.
+  - Stevie accepts the situation, indicating mutual dissatisfaction.
+- **2015-06-10**:
+  - Dustin expresses a wish to start over and improve the relationship for the children's sake.
+  - Stevie seeks clarity on their relationship status, feeling uncertain and insecure.
+  - Dustin emphasizes the need for Stevie to address her insecurities for the relationship to improve.
+  - Stevie expresses distress and feeling of life falling apart.
+  - Moments of reconciliation and expressions of love between Stevie and Dustin, hinting at ongoing emotional turmoil.
+- **2015-06-10**
+  - Playful interaction between Dustin Smith and Stevie Linnabary discussing feeling rather than overthinking.
+  - Mention of shower plans.
+  - Dustin shares a YouTube link.
+- **2015-06-11**
+  - Morning exchange about TV shows and theater remodeling.
+  - Stevie seeks attention from Dustin, who is preoccupied with tasks and mentions feeling overwhelmed.
+  - Stevie expresses her desire for attention and connection.
+  - Dustin mentions missing Stevie and feeling tired.
+  - Discussion about work-related matters and missing each other.
+  - Dustin expresses feeling tired and overwhelmed.
+  - Exchange about food order from Wendy's and expressions of missing each other.
+  - Plans to meet with Bryan and sell the Xbox.
+- **2015-06-12**
+  - Stevie's frustration with multiple potential buyers for the Xbox, leading to feeling overwhelmed and covered in ink.
+  - Dustin expressing the need for help with Lydia and feeling overwhelmed about moving out.
+  - Hope for getting life back on track and positive thoughts.
+  - Plans to sell the Xbox to Joby and logistical arrangements with potential buyers.
+  - Stevie's phone battery dying.
+- **2014-11-23**:
+  - Dustin expresses fatigue and lack of sleep.
+  - Stevie acknowledges his tiredness.
+- **2014-12-02**:
+  - Stevie feels sick and Dustin offers help.
+- **2014-12-03**:
+  - Stevie complains about feeling unwell.
+- **2014-12-11**:
+  - Dustin and Stevie discuss plans but escalate into a heated argument.
+  - Dustin expresses frustration and threatens drastic actions.
+  - Stevie questions Dustin's behavior and motives.
+  - The conversation turns into accusations and emotional outbursts.
+  - Dustin expresses feeling overwhelmed and unhappy in the relationship.
+  - Stevie questions the relationship's future, leading to a possible break-up.
+- **2015-06-12**
+  - Stevie expresses feeling unwell and desires intimacy with Dustin.
+  - Stevie expresses insecurity and desire for a committed relationship with Dustin.
+  - Dustin seems distracted and busy, causing Stevie to feel unloved and unwanted.
+- **2015-06-13**
+  - Stevie expresses concerns about their future and anxiety over their living situation.
+  - Dustin tries to reassure Stevie about their plans and expresses his commitment.
+- **2015-06-14**
+  - Stevie appears frustrated due to communication issues with Dustin.
+- **2015-06-15**
+  - Stevie mentions feeling unwell and discusses household tasks with Dustin.
+  - Stevie and Dustin have a casual conversation about daily activities and household issues.
+- **June 15, 2015:**
+  - Stevie expresses concern about having explosive diarrhea in the shower.
+  - Stevie mentions her love for Dustin and a forgotten DS.
+  - Dustin reassures Stevie and they exchange contact information for emergencies.
+- **June 16, 2015:**
+  - Stevie shares about a meeting with Marshall Academy.
+  - Dustin and Stevie discuss household tasks and express love and support for each other.
+- **June 17, 2015:**
+  - Stevie and Dustin share affectionate messages and discuss health remedies.
+  - Stevie provides a link for an apartment listing.
+- **June 18, 2015:**
+  - Stevie and Dustin have a tense interaction regarding shared responsibilities and social dynamics.
+  - They eventually reconcile and make plans for the evening.
+- **June 19, 2015:**
+  - Stevie expresses frustration towards Dustin and another individual, causing a heated argument.
+  - Dustin and Stevie have a conflict regarding trust and past actions, leading to unresolved tension.
+- **2015-06-19 08:20:16**: Dustin expresses frustration, accusing Stevie of selfishness and hurting others.
+- **2015-06-19 11:26:08**: Dustin asks Stevie to pick him up from Taco Bell.
+- **2015-06-19 16:51:11**: Stevie expresses confusion about making Dustin happy.
+- **2015-06-19 17:16:10**: Stevie offers Subway for dinner, to which Dustin responds indifferently.
+- **2015-06-19 17:26:08**: Dustin expresses feeling trapped and resentful towards Stevie.
+- **2015-06-19 17:33:42**: Stevie questions Dustin's honesty and integrity.
+- **2015-06-19 17:51:54**: Dustin implies seeking someone better than Stevie, causing emotional tension.
+- **2015-06-19 18:18:12**: Dustin accuses Stevie of lying and being a worse liar than himself.
+- **2015-06-19 18:17:05**: Dustin dismisses Stevie's complaints, claiming equality in his disdain towards women.
+- **2015-06-19**:
+  - Dustin expresses feeling mistreated.
+  - Tense exchange between Dustin and Stevie, including insults.
+- **2015-06-20**:
+  - Discussion about relationship insecurities and misunderstandings.
+  - Dustin expresses missing Stevie.
+  - Shopping list exchange.
+- **2015-06-21**:
+  - Father's Day wishes exchanged.
+  - Concerns about the relationship and future expressed.
+- **2015-06-22**:
+  - Dustin expresses frustration with treatment and threatens change.
+  - Stevie asks for Sprite due to feeling sick.
+- **2015-06-23**:
+  - Light-hearted banter about mosquito bites and stomach issues.
+  - Discussion about personal appearance and health concerns.
+  - Technical issues and bathroom humor discussed.
+- **2015-06-23:**
+  - Stevie Linnabary expresses feeling like she's dying.
+  - Dustin Smith suggests she needs to go to bed.
+  - Stevie impatiently asks if Dustin is almost done.
+- **2015-06-24:**
+  - Mention of a drive-by shooting at the Admiral in Marshall.
+  - Stevie thanks Dustin for being with her; they express love and gratitude for each other.
+- **2015-06-26:**
+  - Dustin apologizes for being an "asshole" and expresses his efforts to improve.
+  - Discussion about getting milk, gas, and preparing food.
+  - Stevie shares feeling ill with a swollen throat.
+- **2015-06-27:**
+  - Discussion about being blocked by Stevie's uncle due to differing views on gay marriage.
+  - Affectionate dialogue between Stevie and Dustin, with playful banter and expressions of love.
+  - Humorous exchange about finding a missing drill battery and bathroom odors.
+  - Intimate conversation and shower request.
+- **2015-06-28**:
+  - Stevie Linnabary excited about the day, suggests doing something.
+  - Stevie shares a YouTube link.
+  - Light-hearted banter between Stevie and Dustin about a song.
+  - Playful and tired exchanges regarding lunch and being tired.
+  - Plans to see Everett Smith discussed.
+  - Affectionate messages exchanged.
+- **2015-06-29**:
+  - Concerns about Cam's health; medical treatment discussed.
+  - Stevie updates Dustin about Cam's condition.
+- **2015-07-01**:
+  - Financial stress mentioned.
+  - Jeremy sending money discussed.
+  - Interactions about Lydia's behavior.
+- **2015-07-02**:
+  - Stevie feeling unwell; mourning the passing of a lady they knew.
+  - Comforting exchanges between Stevie and Dustin.
+  - Reflections on making a positive impact on the lady.
+- **July 2, 2015:**
+  - Dustin Smith communicates with Stevie Linnabary about plans involving Everett Smith.
+  - Tension arises as Stevie expresses feeling unappreciated and lonely due to lack of quality time together.
+- **July 3, 2015:**
+  - Stevie shares her emotional state during work, hinting at feeling neglected.
+  - Dustin seems unaware of Stevie's feelings, leading to miscommunication.
+- **July 4, 2015:**
+  - Arguments escalate as Stevie expresses feeling invisible and unloved.
+  - Disagreements over plans with another individual contribute to the strain in their relationship.
+- **July 5, 2015:**
+  - Stevie seeks intimacy and attention, feeling neglected and unimportant.
+  - Dustin responds defensively, highlighting miscommunication and differing priorities.
+  - The conversation ends with Stevie expressing loneliness and questioning the quality of their relationship.
+Note: The exchanges reveal a pattern of emotional disconnect, misunderstandings, and unmet expectations within the relationship.
+- **2015-07-05**
+  - Stevie expresses feeling unloved, Dustin feels frustrated.
+  - Stevie decides to leave Dustin alone due to feeling unappreciated.
+- **2015-07-06**
+  - Stevie mentions a work raise.
+  - Dustin jokes about the raise and asks about a text message.
+  - Stevie worries about negative interactions with others.
+  - They discuss a gross incident with a mouse.
+  - Dustin affirms commitment to Stevie.
+- **2015-07-07**
+  - Stevie thanks Dustin for watching the kids.
+  - They talk about a movie reference and a disturbing news story.
+  - Light-hearted banter about missed opportunities and mosquito spray.
+  - A misunderstanding leads to humor and affectionate exchange.
+- **2014-12-11**:
+  - Tension between Stevie Linnabary and Dustin Smith regarding their relationship and child.
+  - Dustin expresses frustration and hints at growing distance in their love.
+- **2014-12-12**:
+  - Stevie shares good news about a job listing.
+  - Dustin and Stevie exchange casual conversation without conflict.
+- **2014-12-13**:
+  - Financial strain discussed between Dustin and Stevie regarding family support.
+  - Playful banter and plans for the day between the couple.
+- **2014-12-16**:
+  - Minor misunderstanding and emotional check-in between Stevie and Dustin.
+- **2014-12-17**:
+  - Stevie expresses longing for financial stability and relationship improvement.
+- **2014-12-18**:
+  - Excitement over job interview for Stevie and discussion about holiday gifts for the children.
+- **2014-12-19**:
+  - Dustin Smith plans to spend $500 on clothes for boys and food.
+- **2014-12-20**:
+  - Discussion about a tragic incident involving a toddler, potential connection to a daycare.
+- **2014-12-20**:
+  - Plans to go out for dinner and shopping.
+- **2014-12-26**:
+  - Playful interaction about making macaroni.
+- **2014-12-27**:
+  - Tension between Dustin and Stevie.
+- **2014-12-30**:
+  - Stevie shares emotional experience with a parent.
+- **2014-12-30**:
+  - Shared link about a disturbing eye-related incident.
+- **2014-12-31**:
+  - Coordination for Dustin's mom to visit.
+- **2014-08-12**: Contacted Stevie Linnabary at 19:04:27.
+- **2014-08-13**: Emotional exchange with Stevie Linnabary expressing love and fear of losing job.
+- **2014-08-13**: Conversation about work issues and plans for the future.
+- **2014-08-13**: Heartfelt discussion about a tragic event involving Sheena's daughter.
+- **2014-08-13**: Coordination for lunch and emotional expressions of love.
+- **2014-08-13**: Miscommunication about an appointment and desire to spend time together.
+- **2014-08-14**: Playful and affectionate messages exchanged.
+- 2014-08-27: Stevie expresses frustration about not getting help to work at Autocam.
+- 2014-08-28: Stevie discusses financial concerns and plans for an SSI application for Camryn.
+- 2014-08-29: Stevie and Stevie's interactions include sharing love messages and discussing going out.
+- 2014-08-30: Stevie expresses stress and struggles with focus, medication, and motivation. Stevie discusses pharmacy visits and feeling overwhelmed.
+- **2014-08-30**:
+  - Stevie Linnabary expresses frustration with racing thoughts until seeing therapist again.
+  - Stevie Marie expresses love and support for Stevie Linnabary.
+  - Stevie Linnabary finds a misplaced prescription.
+- **2014-08-31**:
+  - Stevie Linnabary shares feeling good but hating their current location.
+  - Stevie Marie mentions a movie that reminds her of Stevie Linnabary.
+- **2014-09-02**:
+  - Stevie Linnabary feels sick and contemplates taking a test.
+  - Stevie Marie reassures Stevie Linnabary about having enough money for a test.
+- **2014-09-03**:
+  - Stevie Linnabary expresses desire for a proposal and discusses finances for marriage.
+  - Intimate interactions between Stevie Linnabary and Stevie Marie.
+  - Stevie Linnabary questions possibility of another baby.
+This summary captures key emotional conversations, concerns, and interactions between Stevie Linnabary and Stevie Marie over a span of several days in 2014.
+- **2014-09-03**: Stevie Marie and Stevie Linnabary discuss various topics, including Stevie Linnabary's discomfort with Lydia Smith and social media interactions.
+- Stevie Linnabary expresses feeling bored and suggests checking Pinterest for ideas.
+- Stevie Linnabary accuses Stevie Marie of following Lydia Smith and expresses discomfort due to past interactions.
+- The conversation escalates as Stevie Linnabary requests Stevie Marie to delete Lydia Smith from social media.
+- Stevie Marie denies any inappropriate actions with Lydia Smith but eventually agrees to delete her.
+- Tension rises as Stevie Linnabary questions the importance of keeping past relationships on social media.
+- Stevie Marie denies any inappropriate interactions with Lydia Smith and eventually decides to delete her account.
+- Stevie Linnabary expresses fear of losing Stevie Marie and apologizes for overreacting due to stress and anxiety.
+- The conversation ends with Stevie Linnabary sending a message that says "Bling I pop."
+- 2014-09-04: Marie and Stevie exchange affectionate messages.
+- 2014-09-04: Marie expresses feeling down, Stevie offers help.
+- 2014-09-04: Stevie offers to bring items for Marie.
+- 2014-09-05: Sexual innuendos and playful banter between Marie and Stevie.
+- 2014-09-05: Marie requests urgent call from Stevie.
+- 2014-09-06: Marie asks for specific items from Stevie.
+- 2014-09-06: Plans for a bonfire discussed.
+- 2014-09-06: Discussion about changing address with bank.
+- 2014-09-07: Marie asks Stevie to check work pants for holiday pay.
+- 2014-09-08: Conversation about making coffee and dealing with a noisy child.
+- 2014-09-08: Stevie updates Marie on daily tasks and shares music news.
+- 2014-09-08: Marie expresses missing Stevie's presence.
+- **2014-09-08**:
+  - Stevie finds Camryn hilarious.
+  - Stevie notices a dark red car driving by.
+  - Stevie requests coffee or creamer and sugar.
+  - Stevie expresses feeling left out seeing happy married couples.
+- **2014-09-08 - 2014-09-10**:
+  - Stevie and partner discuss wedding plans, expressing concerns about timing and happiness.
+  - Stevie expresses love and support for partner.
+  - Discussion about Lydia's room decor and wedding date planning.
+  - Partner suggests a specific wedding date (November 15th at 5) which surprises Stevie.
+- 2014-09-10: Excitement about an upcoming event.
+- 2014-09-11: Discussion about announcing marriage and financial concerns.
+- 2014-09-12: Planning for wedding and everyday tasks.
+- 2014-09-13: Affectionate interactions and plans to meet up after work. Anxiety attack mentioned.
+- **2014-09-13:** Stevie Marie experiences low blood sugar without food.
+- **2014-09-13 08:01:12:** Stevie Marie realizes she forgot her charger but is reassured by Jerron's.
+- **2014-09-13 10:26:54:** Plans to meet up later are made, with no rush mentioned.
+- **2014-09-13 14:26:24:** A discussion about canceling an appointment leads to relationship tension.
+- **2014-09-13 14:28:32:** Serious doubts about the relationship and future plans are expressed.
+- **2014-09-13 14:45:36:** Concerns about lack of quality time together are raised.
+- **2014-09-13 14:49:26:** Importance of making time for loved ones is highlighted.
+- **2014-09-13 14:59:26:** Frustration about communication and relationship expectations is evident.
+- **2014-09-13 15:02:40:** Desire for meaningful conversation is expressed, despite ongoing challenges.
+- 2014-09-13:
+  - Stevie expresses hurt over feeling neglected in the relationship, questioning the future of marriage.
+  - Emotions range from hurt to frustration and a desire for improvement.
+  - Discussion about canceling a bridal appointment due to emotional distress.
+- 2014-09-14:
+  - Transition to a more intimate and playful conversation about physical intimacy and daily activities.
+  - Expressions of excitement and nervousness about dress shopping and household tasks.
+  - Conversations about scheduling plans and interactions with family members.
+- 2014-09-15:
+  - Longing for physical intimacy and escape from work stress.
+  - Playful exchange regarding a nap and desire for closeness.
+  - Casual interactions and expressions of missing each other throughout the day.
+- 2014-09-16:
+  - Mention of feeling unwell and wishing for a good day.
+  - Lighthearted expressions of missing each other and checking on well-being.
+  - Overall tone shifts to concern for partner's health and well-being.
+- **2014-09-16**:
+  - Stevie asks for $5 to go tanning with a friend.
+  - Stevie confirms it's okay.
+  - Sweet exchange expressing excitement about their upcoming marriage.
+- **2014-09-17**:
+  - Stevie wishes good luck for school and expresses love.
+  - Frustration over a long meeting and slow registration process at school.
+  - Tension arises regarding canceling the wedding, with emotional exchanges.
+  - Concern about the wedding dress and regretful actions.
+  - Stevie seeks Xanax for chest pain, indicating distress.
+(Note: The messages show emotional ups and downs, from moments of love and excitement to frustration and distress.)
+- **September 17, 2014**:
+  - Stevie Marie receives messages expressing feelings of neglect and importance from Stevie Linnabary.
+  - Stevie reassures Stevie Linnabary, denying the desire to call off their plans.
+- **September 18, 2014**:
+  - Stevie Marie and Stevie Linnabary discuss food options and plans for the day.
+  - Apologies are exchanged for previous misunderstandings.
+- **September 19, 2014**:
+  - Wedding arrangements and guest lists are mentioned.
+  - Discussion about venue options and propane estimates.
+  - Emotional conversation regarding self-esteem and relationship concerns.
+  - Planning visits to family members for further arrangements.
+  - Frustration expressed about work situations and potential schedule changes.
+- **August 14, 2014**:
+  - Stevie Linnabary receives a $91 check, expresses excitement.
+  - Stevie discusses work-related issues, breaks, and feeling unappreciated.
+  - A conversation reveals emotional tension and relationship struggles, including accusations of jealousy, unhappiness in jobs, and suicidal thoughts.
+  - Stevie expresses feelings of inadequacy, mentions jealousy towards other women at work, and implies feeling unloved.
+  - The dialogue turns emotional with talks of leaving, suicidal ideation, and doubts about the relationship.
+  - The conversation becomes intense, with accusations, expressions of love, and feelings of being unappreciated.
+  - The exchange ends with emotional distress, expressions of love, and a sense of resignation.
+- **2014-09-19**
+  - Stevie Marie plans to meet Stevie Linnabary after a VFW event to get cash for Chelsea and Everett Smith.
+  - Stevie Marie mentions Lydia rolling over, and Stevie Linnabary shares her discomfort with severe period cramps.
+- **2014-09-20**
+  - Stevie Marie struggles with a baby swing and seeks advice from Stevie Linnabary.
+  - Stevie Linnabary asks for food and discusses household issues.
+- **2014-09-21**
+  - Stevie Linnabary plans a bonfire, inquires about cash for Chelsea, and expresses love for Stevie Marie.
+- **2014-09-22**
+  - Stevie Linnabary asks about extra money, plans to hang out with Katie, and discusses food options with Stevie Marie.
+- **2014-09-22**:
+  - Stevie expresses love and excitement about getting married soon.
+  - Romantic messages exchanged, including references to intimacy.
+- **2014-09-23**:
+  - Stevie faces challenges with work and family, dealing with a sick child.
+  - Miscommunication and tensions arise due to perceived neglect during texting.
+  - Concerns about health and caring for each other are expressed.
+- **2014-09-24**:
+  - Stevie discusses feeling sick and dissatisfaction with work.
+  - Arrangements made for picking up and meeting at a location.
+  - Light-hearted banter and concern for each other's well-being continue throughout the day.
+- **2014-09-24**
+  - Stevie Linnabary expresses hunger, awaiting Stevie Marie's return.
+  - Stevie Marie apologizes for the delay.
+  - Stevie Linnabary mentions being out and low on phone battery.
+- **2014-09-24 Evening**
+  - Stevie Linnabary expresses concerns about being hated and not loved honestly.
+  - Discussion on past insecurities, lying, and relationship issues ensues.
+- **2014-09-25**
+  - Stevie Marie attempts to initiate a conversation, feeling upset about lack of honesty and trust.
+  - Argument escalates about lying, jealousy, and lack of honesty leading to a breakup.
+  - Stevie Marie expresses willingness to change and hope for love, while Stevie Linnabary seems resigned to the situation.
+- **2014-09-25, Later**
+  - Stevie Linnabary promises honesty and commitment, while Stevie Marie seems doubtful and resigned.
+  - The conversation ends with unresolved issues and a sense of emotional turmoil.
+- 2014-09-25: Stevie Linnabary informs about canceling the wedding and returning the dress with deposit issues.
+- 2014-09-26: Conversations include concerns about driving, TV shows, and complimenting a baby's cuteness.
+- 2014-09-26: Flirtatious exchanges about future intimacy and loving interactions.
+- 2014-09-27: Plans for the day, frustrations about work, and discussions about job opportunities and hard work.
+- 2014-09-27: Planning to meet up and discussing job dissatisfaction and personal interactions.
+- **2014-09-27**:
+  - Stevie Linnabary expresses regret for being rude and feeling like they ruin everything.
+  - Stevie Marie reassures Stevie Linnabary and expresses love and concern for their well-being.
+  - Stevie Linnabary acknowledges mistakes and expresses love, apologizing and feeling insecure about losing Stevie Marie.
+- **2014-09-28**:
+  - Stevie Linnabary requests document copies for safety.
+  - Stevie Marie responds humorously and mentions love despite imperfections.
+- **2014-09-29**:
+  - Stevie Linnabary makes a harsh comment, leading to a conversation about understanding and forgiveness.
+  - Both express love and affection for each other, resolving the misunderstanding.
+- **2014-09-29:**
+  - Excited interactions between Stevie Marie and Stevie Linnabary.
+  - Playful banter about a missing envelope and expressing affection.
+  - Tension arises with discussions about relationship insecurities and unhappiness.
+- **2014-09-30:**
+  - Stevie Marie shows concern about Ebola in Texas.
+  - Light-hearted conversation about getting costumes.
+- **2014-10-01:**
+  - Stevie Marie expresses love and discusses potential job stress.
+  - Planning for someone named Travis to stay over.
+  - Discontent with iPhone and desire for a different phone.
+- **2014-10-02:**
+  - Stevie Linnabary expresses work-related stress and panic attack.
+  - Stevie Marie's work machine down again, leading to frustration.
+- **October 2, 2014**:
+  - Stevie expresses frustration about job, feeling pressured to sign out for breaks, and the fear of being written up for tardiness.
+  - Stevie desires a new job and expresses love and support for a friend.
+  - Stevie discusses struggles at work and feeling unappreciated.
+- **October 3, 2014**:
+  - Tensions rise as Stevie expresses frustration with wedding plans and relationship issues.
+  - Despite difficulties, there is a plea for a chance to improve the situation.
+- **October 4, 2014**:
+  - Plans to meet with someone named Everett Smith are made, and mixed emotions about social events are expressed.
+  - Concerns about financial matters and cleaning for a visitor are mentioned.
+  - Stevie Linnabary inquires about a social event and shares updates on babysitting arrangements.
+- **October 4, 2014:**
+  - Stevie expresses reluctance to attend a friend's reception due to social anxiety and concerns about someone taking her belongings.
+  - Stevie arranges to drop off orange soda for a potluck while taking care of a child named Lydia Smith.
+- **October 5, 2014:**
+  - Stevie discusses picking up Everett Smith and bringing him to see someone.
+  - Stevie expresses stress over cleaning and taking care of children.
+  - Stevie and a person named Lydia Smith have interactions about the child's needs.
+- **October 6, 2014:**
+  - Stevie jokes about a flat tire and discusses job opportunities and anxiety.
+  - Stevie expresses concerns about lying, love, and truthfulness in the relationship.
+  - Affectionate messages exchanged between Stevie and the recipient.
+- **2014-10-07**:
+  - Stevie expresses frustration about dishonesty, reminiscing about past honesty.
+  - Concern about a news story involving a child attempting suicide.
+  - Work-related stress and lack of breaks are mentioned.
+  - Discussion about renting a house and financial considerations.
+  - Personal messages expressing love and support.
+- **2014-10-08**:
+  - Stevie expresses disappointment in perceived unfair treatment compared to another person.
+  - Emotional conversation about support and negativity within the relationship.
+  - Requests for understanding and positivity from the recipient.
+  - Expressions of love and desire for support.
+- **2014-10-08:**
+  - Stevie Linnabary expresses frustration about being hurt by others.
+  - Stevie Marie feels misunderstood and strives for peace in handling a situation.
+  - Tension arises as Stevie Marie feels unheard and seeks validation.
+  - Stevie Linnabary questions the need for a friendship with someone.
+  - Misunderstandings and emotional turmoil continue between Stevie Linnabary and Stevie Marie.
+- **2014-10-09:**
+  - Stevie Marie expresses a desire for love and understanding in the relationship.
+  - Stevie Linnabary apologizes for hurtful words and expresses insecurities.
+  - Lighter moments and interactions occur during the day.
+  - A brief conflict arises regarding intimacy and past actions.
+  - Inquiries about individuals lead to casual conversations between Stevie Linnabary and Stevie Marie.
+- **2014-08-14**:
+  - Stevie Marie expressed feeling hurt and ruined everything good in their interaction with Stevie Linnabary.
+  - Stevie Linnabary expressed love and regret but also mentioned leaving.
+- **2014-08-15**:
+  - Stevie Marie urged Stevie Linnabary to seek counseling for relationship and personal issues.
+  - Stevie Linnabary acknowledged the need for help and expressed love and admiration.
+- **2014-08-16**:
+  - Stevie Marie and Stevie Linnabary shared affectionate messages and discussed household tasks.
+- **2014-08-17**:
+  - Stevie Linnabary inquired about work and shared missing Stevie Marie and their child.
+- **2014-10-09**:
+  - Interaction regarding Facebook privacy settings and searching people online, leading to a conversation about trust and relationships.
+- **2014-10-10**:
+  - Conversation about daily activities, work stress, relationship issues, and expressing desires for a better future together.
+- **2014-10-11**:
+  - Expressions of love and dreams of marriage, followed by discussions about family dynamics and children's feelings regarding family interactions.
+- **2014-10-11**:
+  - Arie expresses frustration about infrequent meetings.
+  - Stevie is sympathetic about Arie's neck pain and mentions feeling unwell due to eating candy.
+- **2014-10-13**:
+  - Stevie and Arie discuss taking Everett Smith trick-or-treating.
+  - Stevie mentions difficulties with editing photos and jokes about tagging the wrong person on Facebook.
+  - Arie expresses frustration over a long day and lack of break, mentioning machine issues and upcoming appointments.
+- **2014-10-14**:
+  - Arie vents about a stressful day, including work issues, financial concerns, and personal conflicts with acquaintances.
+  - Stevie provides support and reassurance to Arie amidst her overwhelming schedule.
+- 2014-10-14: Stevie plans to spend money on Everett Smith's clothes, expresses love, and shares frustrations with waiting.
+- 2014-10-15: Stevie discusses Cameron's health, shopping, and missing each other, with a mix of affectionate and casual conversations.
+- **2014-10-15**:
+  - Stevie Marie jokingly mentions having a cure involving explicit content.
+  - Discussion about packing garage items and staying at Verona house or with Marie's mom.
+- **2014-10-17**:
+  - Marie shares a new schedule and discusses job concerns with Linnabary.
+  - Conversation about taking a test for a different job opportunity.
+- **2014-10-18**:
+  - Banter about not going out together and planning activities.
+  - Light-hearted exchange about gifts and spending time together.
+- **2014-10-19**:
+  - Linnabary expresses work frustrations.
+  - Affectionate messages back and forth.
+The interactions involve humor, relationship dynamics, work concerns, and expressions of love and support.
+- **2014-10-19**:
+  - Stevie Linnabary expresses interest in doing something.
+  - Stevie Marie reciprocates the affection.
+- **2014-10-20**:
+  - Stevie Linnabary expresses love and concern for feeling unwell.
+  - Stevie Marie reassures and shows understanding.
+  - Light-hearted conversation about passing time and plans for food.
+  - Stevie Linnabary apologizes for being inconsiderate.
+  - Stevie Marie expresses self-doubt and worries about the relationship.
+  - Reassurances and expressions of love exchanged between the two.
+- **2014-10-21**:
+  - Stevie Linnabary offers to bring food.
+  - Busy workday mentioned.
+  - Playful banter about food and plans.
+  - Brief exchange about a missed opportunity.
+  - Affectionate goodbyes and expressions of love.
+- **2014-10-22**:
+  - Technical discussion about jailbreak and confusion resolved.
+  - Misunderstanding about forgoing plans.
+  - Apologies for delay and concerns about others waiting.
+  - Reassuring messages exchanged.
+- **2014-10-22**:
+  - Stevie Linnabary expresses concern about taking care of Lydia Smith and doing housework.
+  - Stevie Linnabary asks about buying a Batman item for Everett Smith.
+  - Tension arises between Stevie Marie and Stevie Linnabary over communication issues.
+  - Stevie Linnabary shares emotional struggles regarding Everett Smith's challenges.
+- **2014-10-23**:
+  - Stevie Linnabary and Stevie Marie discuss breakfast plans humorously.
+  - Stevie Linnabary expresses love and deep emotions towards Stevie Marie.
+  - Disagreement and heated exchange occur between Stevie Linnabary and Stevie Marie over misunderstandings.
+  - Stevie Linnabary expresses frustration and emotional strain, while Stevie Marie confronts the situation.
+  - Mention of family pictures and potential plans for the future.
+- 2014-10-24: Stevie Linnabary asks about snacks, plans to get Cheez-Its and cookies.
+- 2014-10-25: Discussion about kids wanting to play, emotional messages exchanged.
+- 2014-10-26: Coffee request, dinner plans, concerns about relationships and jealousy.
+- 2014-10-27: Conflict escalates due to perceived jealousy and relationship issues.
+- **2014-10-27:**
+  - Stevie expresses frustration over perceived jealousy issues.
+  - Stevie considers leaving due to mental abuse.
+  - Tension arises regarding trust and jealousy.
+- **2014-10-28:**
+  - Stevie apologizes for previous night's tension.
+  - Stevie plans future activities together.
+- **2014-10-29:**
+  - Financial strain discussed with mention of supporting another person's children.
+  - Stevie seeks comfort but feels unsupported.
+  - Stevie expresses disappointment and seeks reassurance from the partner.
+  - Misunderstandings and emotional turmoil continue, leading to a lack of mutual understanding and support.
+- **2014-10-29**
+  - Stevie expresses frustration about financial struggles and perceived favoritism towards Rebecca Rodriguez.
+  - Stevie feels neglected and undervalued in comparison to Rebecca Rodriguez.
+  - Discussion about money, struggles, and providing for the children.
+  - Stevie expresses sadness and dissatisfaction with the situation.
+- **2014-10-30**
+  - Stevie is concerned about their relationship and expresses fear of being unwanted.
+  - Communication about personal fears and uncertainties.
+- **2014-10-31**
+  - Financial strain and arguments about past issues lead to heightened tension.
+  - Stevie considers giving up due to stress and financial difficulties.
+  - Offer to give the relationship one last chance with conditions.
+  - Overwhelmed by negative emotions and financial pressures.
+- Ongoing conversations about daily activities and plans amidst underlying relationship and financial stress.
+- **2014-10-31**
+  - Stevie Marie expresses feeling overwhelmed and ready to give up.
+  - Stevie Marie worries about potential consequences and expresses distress.
+  - Stevie Linnabary reassures Stevie Marie about her importance to Lydia and Everett.
+  - Stevie Marie expresses frustration and sadness.
+- **2014-11-01**
+  - Stevie Marie and Stevie Linnabary exchange messages about daily activities and concerns.
+  - Stevie Linnabary expresses insecurities about the relationship.
+  - Stevie Marie reassures and expresses love for Stevie Linnabary.
+  - Stevie Linnabary shares concerns about Lydia's health.
+  - Stevie Linnabary explains Lydia's condition and plans for treatment.
+  - Stevie Linnabary discusses Lydia's symptoms and seeking medical advice.
+  - Stevie Linnabary mentions caring for Lydia and managing her symptoms.
+(Note: The conversation involves emotional moments, relationship reflections, and concerns about a child's health.)
+- **2014-08-17:**
+  - Stevie is concerned about the future of their relationship and mentions postpartum depression and pregnancy affecting her behavior.
+  - Reassurance of hope for a happy ending and discussion about marriage.
+  - Mention of counseling for anxiety.
+  - Casual conversation about daily activities and credit limit discussions.
+- **2014-08-18:**
+  - Expressions of love and planning for a movie outing.
+  - Scheduling conflicts and reassurances of love despite arguments.
+- **2014-08-19:**
+  - Apologies for misunderstandings and expressions of love.
+  - Mention of late-night events involving family and friends.
+  - Encouragement and planning for the day ahead.
+- **2014-11-01**:
+  - Stevie Linnabary forgets the diaper bag, causing distress over feeding Lydia Smith.
+- **2014-11-02**:
+  - Stevie expresses love and affection for each other.
+  - Discussion about fixing a bump on the driveway and watching a movie.
+- **2014-11-03**:
+  - Tension arises over a Facebook password issue, feelings of insecurity, and work-related questions.
+- **2014-11-04**:
+  - Morning interactions expressing love, checking on Lydia, and planning lunch.
+- Note: Emotional moments, expressions of love, occasional tension, and everyday interaction are prevalent throughout the conversation.
+- **2014-08-19**:
+  - Will and Jo Jo plan to visit Marie around 4 PM with baby items.
+  - Stevie mentions previous inquiries about Jo Jo's visit, leading to a light-hearted exchange.
+  - Stevie offers a ride to Marie, who declines due to a meeting.
+  - Playful and intimate messages exchanged between Stevie and Marie.
+- **2014-08-20**:
+  - Stevie describes experiencing anxiety symptoms but opts not to go to the hospital due to work.
+  - Emotional messages of love and support shared between Stevie and Marie.
+- **2014-08-21**:
+  - Stevie expresses feelings of discomfort at work and talks about wanting to confront a work-related issue with a coworker.
+  - Light-hearted and affectionate messages shared between Stevie and Marie about household items and moving.
+- Note: The conversation involves personal and intimate details, with expressions of love and support between Stevie and Marie.
+- 2014-08-21: Stevie discusses worries about getting Rebecca Rodriguez caught up by Christmas and shopping for Camryn's clothes.
+- 2014-08-21: Stevie and Stevie plan shopping but prioritize more important things over minor issues.
+- 2014-08-21: Stevie expresses anxiety about her child going to school and separation anxiety.
+- 2014-08-21: Stevie mentions needing an 8ball of cocaine for staying awake.
+- 2014-08-21: Stevie and Stevie discuss frustrations about potential moves, child support, and legal matters.
+- 2014-08-22: Stevie shares work-related stress and anger towards a colleague.
+- 2014-08-22: Stevie expresses love and support amidst challenges and potential job loss.
+- 2014-08-22: Stevie prepares for an interview and seeks reassurance from Stevie.
+- **2014-08-22**:
+  - Stevie expresses love and concern for job results, physical test performance, and potential competition for a position.
+  - Discussion about dealing with a difficult physical test and job prospects.
+  - Conversations about potential legal issues and financial matters related to a house.
+  - Tensions rise over relocation decisions and emotional outbursts.
+- **2014-08-23**:
+  - Stevie acknowledges past anger issues and seeks medical help for anxiety.
+  - Packing and financial transactions related to rent and expenses.
+  - Requests for Redbull and cash, along with mundane activities like packing and banking errands.
+- **2014-08-23**:
+  - Negotiation over payment for babysitting.
+  - Expressing hunger and need for food.
+  - Concern about privacy regarding home address.
+  - Discussions about furniture and social media contacts.
+- **2014-08-24**:
+  - Frustration over work-related issues.
+- **2014-08-25**:
+  - Organizing and moving tasks.
+  - Affectionate and playful exchanges.
+  - Dealing with utility services for new residence.
+  - Planning a party for August birthdays.
+  - Arrival and communication updates between individuals.
+- On August 25, 2014:
+  - Stevie Linnabary shares the birth weight of Stevie Marie.
+  - Stevie expresses feeling tiny and humorously comments on being overlooked.
+  - A loving exchange occurs between Stevie and the recipient.
+  - Stevie expresses feeling unwell and mentions a job opportunity at Brembo.
+  - Concerns about being grumpy and missing being close to town are shared.
+- On August 26, 2014:
+  - Plans to meet and humorous conversation about attire are discussed.
+  - Invitation to go out is extended, emphasizing the recipient's preferences.
+- On August 27, 2014:
+  - Misunderstandings arise about birthday plans and expressions of love.
+  - Conversations about daily activities, work, and food choices occur.
+  - Stevie expresses concerns about not making the recipient smile and feelings of inadequacy.
+  - Discussion around job opportunities and frustrations with test requirements takes place.

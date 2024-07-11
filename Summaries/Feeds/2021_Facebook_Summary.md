@@ -1,0 +1,140 @@
+# 2021_Facebook_Summary
+
+- **2021-01-01**:
+  - Positive New Year's message encouraging goal-setting and humility.
+- **2021-01-02**:
+  - Reflective post on personal growth and the importance of moving forward.
+- **2021-01-02**:
+  - Political post expressing dislike for certain figures and desire for justice.
+- **2021-01-06**:
+  - Call for unity and broader perspectives.
+- **2021-01-06**:
+  - Concern about security and system failures during a particular event.
+- **2021-01-09**:
+  - Expressing concern about societal division and the need for compassion.
+- **2021-01-09**:
+  - Speculation on current events and potential motivations behind actions.
+- **2021-01-10**:
+  - Emphasizing unity among Americans despite political differences.
+- **2021-01-10**:
+  - Personal reflection on political beliefs and the importance of mutual respect.
+- **2021-01-10**:
+  - Reactivation of Facebook account with a defiant tone towards censorship.
+- **2021-01-23**:
+    - Gas prices rising to $7 a gallon, political opinions expressed.
+    - Comment on future president contrasting with Trump.
+    - Mention of unusual situation prompting a reaction.
+    - Humorous interaction with girlfriend about political views.
+- **2021-01-27**:
+    - Reflection on personal accountability and growth.
+    - Humorous comment on mask-wearing.
+    - Philosophical reflection on personal impact on the world.
+- **2021-02-12**:
+    - Emotional posts about the passing of the user's father, expressing love and remembrance.
+- **2021-02-14**:
+    - Heartfelt tribute to the user's father, expressing deep gratitude and sorrow.
+- **2021-02-15**:
+    - Gratitude for the support received after the father's passing.
+- **2021-02-17**:
+  - Happy birthday messages to mom Lori Herman Smith.
+- **2021-02-18**:
+  - Intense emotions expressed towards Tawnie Nicole Reynolds.
+- **2021-02-18**:
+  - Appreciation for the timing of new music releases by Joe from nothing nowhere.
+- **2021-02-25**:
+  - Emotional moment finding a letter from the dad.
+- **2021-02-27**:
+  - Reflective post on time and spending it wisely.
+- **2021-03-03**:
+  - Playful birthday post and a reference to being a nerd.
+- **2021-03-14**:
+  - Strongly worded opinions against cancel culture and related topics.
+- **2021-03-27**:
+  - Hangout location shared with Everett Smith.
+- **2021-04-04**:
+  - Praise for "Point Break" movie.
+- **2021-04-18**:
+  - Acknowledgment and gratitude towards Tawnie Nicole Reynolds.
+- **2021-04-24**:
+  - Empowering message to turn hurt into a superpower.
+- **2021-05-01**:
+  - Reflection on love, loss, and appreciation.
+- **2021-05-02**:
+  - Lyrics reflecting personal growth and moving forward.
+- **2021-05-05**:
+  - Enjoying Dairy Delight.
+- **2021-05-08**: A visit to Dave & Buster's in Kentwood, MI.
+- **2021-05-08**: Expressing gratitude towards a significant other for bringing peace and positivity into life.
+- **2021-05-09**: Reflecting on listening to the universe and embracing progress.
+- **2021-05-10**: Amused by a humorous nickname "Petty Wap" mentioned in a post.
+- **2021-05-10**: Acknowledging personal growth and the positive influence of a partner on self-improvement.
+- **2021-05-24**: Reflecting on missing and honoring the memory of the father, using his absence as motivation for personal growth.
+- **2021-05-28**: Emotional tribute to a father, expressing deep love and missing him.
+- **2021-05-31**: Advocating for accountability in actions and relationships.
+- **2021-06-22**: Encouraging self-reflection and focusing on personal expectations rather than imposing them on others.
+- **2013**
+  - Found an old voicemail from dad in the hospital, reflecting on missed opportunities and the importance of changing for the better.
+  - Expresses regret for not being there and gratitude for lessons learned, emphasizing the need to show love and forgiveness.
+- **2021-06-27**
+  - Reflects on father's positive influence, motivation, and the ability to change for the better.
+  - Stresses the importance of surrounding oneself with supportive, loving people, even if not blood-related.
+- **2021-07-05**
+  - Emphasizes the power of personal choice in finding happiness and making positive decisions for oneself.
+  - Acknowledges the unpredictability of life and the significance of self-responsibility for one's own well-being.
+- **2021-07-25**
+  - Proudly celebrates son's growth and accomplishments, expressing admiration and love.
+  - Acknowledges son's impact on his own life, highlighting the mutual inspiration and pride shared.
+- **2021-07-27**
+  - Reflects on personal growth despite challenges and negativity received.
+  - Shares music link expressing emotional struggles and resilience.
+- **2021-07-29:**
+  - Concern about Miley Cyrus's mental state.
+- **2021-07-30:**
+  - Posts about Miley Cyrus, The Kid Laroi, and ILLENIUM.
+  - Discussion about the Delta variant.
+  - Criticism of newer generations at concerts.
+- **2021-08-01:**
+  - Criticism of vaccine promotion and mask-wearing.
+  - Light-hearted comment about annoying a loved one on road trips.
+- **2021-08-01 to 2021-08-02:**
+  - Multiple posts about Lollapalooza performances and photos.
+- **2021-08-02:**
+  - Commentary on COVID, lockdowns, and vaccination.
+  - Reference to performing as an internet troll.
+- **2021-08-03:**
+  - Gratitude and reflection on personal growth.
+- **2021-08-06:**
+  - Assertion of being unvaccinated and COVID-free.
+- **2021-08-11:**
+  - Humorous comment about Mother Nature vs. COVID.
+- **2021-08-15:**
+  - Political commentary regarding past leadership.
+- **2021-08-23:**
+  - Expression of frustration about mask mandates in schools.
+- **2021-09-05:**
+  - Emotional tribute on a loved one's birthday.
+- **2021-10-06:**
+  - Bold statement regarding immunity to COVID.
+- **2021-10-09:**
+  - Update on a post date.
+These bullet points summarize the key events, emotions, and interactions from the provided content.
+- **2021-10-11T22:48:52**
+  - Promoting a motivational page on Instagram.
+- **2021-10-12T21:50:59**
+  - Expressing frustration towards Facebook.
+- **2021-10-14T19:41:48**
+  - Reflecting on missing a father's presence and wishing for more memories.
+- **2021-10-16T14:48:01**
+  - Showing pride in Everett Smith.
+- **2021-10-23T21:34:00**
+  - Sharing about a new vehicle.
+- **2021-10-31T09:57:02**
+  - Celebrating the life of a loved one and reflecting on personal growth.
+- **2021-11-02T18:09:49**
+  - Discussing the importance of leaving a digital footprint for memories.
+- **2021-12-03T06:47:03**
+  - Casual greeting post.
+- **2021-12-28T22:48:09**
+  - Remembering Juice Wrld and his impact on music.
+- **2021-12-29T11:37:42**
+  - Questioning the need for vaccination due to personal experiences with COVID-19.
