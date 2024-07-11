@@ -22,62 +22,11 @@ Core Relationship
 Core Relationship
 - Stevie Linnabary
 	- Core Memories
-
-## Timeline of Stevie Linnabary and Relevant Information
-
-- 11-16-2011 - Officially started a relationship with Stevie Linnabary.
-- 02-14-2012 - Engaged to Stevie Linnabary.
-- 09-05-2012 - Experienced the tragic loss of their baby boy, Jensen B. Smith, due to a cord accident.
-- 11-16-2013 - Me and Stevie celebrated our one-year anniversary, and proposed again to her.
-
-### 2012
-
-- 02-14-2012 - Engaged to Stevie Linnabary.
-- 09-05-2012 - Experienced the tragic loss of their baby boy, Jensen B. Smith, due to a cord accident.
-- **September**: Dustin's father suffered a heart attack.
-- **October**: Laid off from job at Guardian Fiberglass.
-- **November 16**: Proposed to Stevie again on their one-year anniversary.
-
-### 2013
-
-
-
-### 2014
-
-- **April 15**: Daughter Lydia Smith was born at 5:28 am, weighing 6 lbs 8 oz.
-- **August**: Started school at the Regional Manufacturing Technology Center to pursue career advancement.
-- **August**: Moved to a new house with family.
-- **September-October**: Planned for a November wedding with Stevie but later postponed it due to ongoing relationship challenges.
-
-### 2015
-
-- **February**: Left Autocam Corporation.
-- **June**: Moved to a new house with Stevie.
-- **November 15**: Celebrated their three-year anniversary. Dustin expressed his desire to get married.
-- **November 16**: Dustin and Stevie got married.
-
-### 2016
-
-- **April**: Moved in with Dustin's mother and her partner due to financial difficulties.
-- **June 27**: Daughter Rayna Smith was born at 5:59 am, weighing 6 lbs 10 oz.
-- **July**: Moved into a new house in Marshall.
-- **November**: Celebrated 5th anniversary with Stevie.
-
-### 2017
-
-- **March 11**: Married Stevie Marie Linnabary.
-- **April 19**: Discovered Stevie's affair with Tyler Long, leading to their separation and eventual divorce.
-- **April 20**: Dustin and Stevie's marriage officially ended.
-- **May 12**: Dustin filed for divorce.
-
-### 2018
-
-- **October**: Officially separated from Stevie and attempted an amicable separation for the children.
-
-Throughout these years, Dustin and Stevie faced significant challenges, including:
-- **Struggles with Anger Management**: Dustin put Stevie's head through a glass door in a fit of rage on June 18, 2014, and had other incidents highlighting his struggle with anger .
-- **Anxiety and Depression**: Stevie struggled with postpartum depression and anxiety, impacting their relationship dynamics .
-- **Frequent Conflicts**: Their relationship was marked by frequent arguments and emotional distance, particularly leading up to their breakup .
-- **Efforts to Reconcile**: Despite multiple efforts to reconcile, their relationship remained strained and eventually led to their separation .
-
-This timeline provides a comprehensive overview of the key events and relationship dynamics between Dustin and Stevie Linnabary, highlighting the significant milestones and challenges they faced together.
+		- 11-03-2011 - Met Stevie Linnabary in the Barnes & Noble parking lot. She was wearing a black dress coat, a gray Yellowcard shirt, jeans and black winter boots.
+		- 11-16-2011 - Officially started a relationship with Stevie Linnabary.
+		- 02-14-2012 - Engaged to Stevie Linnabary.
+		- 09-05-2012 - Experienced the tragic loss of their baby boy, Jensen B. Smith, due to a cord accident.
+		- 04-16-2014 - Daughter Lydia Smith was born at 5:28 am, weighing 6 lbs 8 oz.
+		- 06-27-2016 - Daughter Rayna Smith was born at 5:59 am, weighing 6 lbs 10 oz.
+		- 03-11-2017 - Married Stevie Marie Linnabary.
+		- 04-19-2017 - Discovered Stevie's affair with Tyler Long, leading to their separation and eventual divorce.

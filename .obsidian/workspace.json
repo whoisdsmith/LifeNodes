@@ -25,7 +25,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Core Relationships.md",
+                "file": "Intake.md",
                 "mode": "source",
                 "source": false
               }
@@ -98,7 +98,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Core Relationships.md",
+                "file": "Intake.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -115,7 +115,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Core Relationships.md",
+                "file": "Intake.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -127,7 +127,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Core Relationships.md"
+                "file": "Intake.md"
               }
             }
           },
@@ -191,15 +191,16 @@
       "bulk-exporter:Bulk Exporter Preview": false
     }
   },
-  "active": "7e202dd12cfbc8f0",
+  "active": "3d73aa1c2840cf19",
   "lastOpenFiles": [
-    "cmd.md",
-    "Childhood.md",
     "Notes.md",
+    "Core Relationships.md",
     "Intake.md",
+    "cmd.md",
+    "core.json",
+    "Childhood.md",
     "Childhood.md.crdownload",
     "cmd.md.crdownload",
-    "Core Relationships.md",
     "Core Relationships.md.crdownload",
     "README.md",
     "Cores/Building A Solid Foundation.md",
@@ -221,7 +222,6 @@
     "Midnight Thoughts.md",
     "Blueprints/Blueprints For A Better Future.md",
     "Blueprints/The Truth Is.md",
-    "Blueprints/Punches.md",
     "trauma-healing-website.html",
     "trauma-healing-website.html.crdownload",
     "Cause and Effect",
@@ -237,7 +237,6 @@
     "Attachments/PowerofPositiveThinkingQuotes.jpg",
     "Attachments/NewtonsLawForRealityCreation.jpg",
     "Attachments/EliminateProcrastination.jpg",
-    "Attachments/BPBanner.PNG",
-    "themirrorprinciplecontd.jpg.crdownload"
+    "Attachments/BPBanner.PNG"
   ]
 }
