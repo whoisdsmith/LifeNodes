@@ -1,0 +1,142 @@
+# Tawnie and Dustin 2023_summary
+
+- **2023-01-02**:
+  - Tawnie questions Dustin about a $50 charge on her card.
+- **2023-01-03**:
+  - Tawnie informs Dustin about KJ's plans with Melissa.
+- **2023-01-04**:
+  - Tawnie sends loving messages to Dustin; they discuss AirPods and their child.
+- **2023-01-06**:
+  - Dustin shares a Spotify track and a cool video with Tawnie.
+- **2023-01-13**:
+  - Dustin faces iCloud issues; they discuss a wireless charger.
+- **2023-01-20**:
+  - Dustin asks for smokes and drinks; they coordinate about medications and dinner plans.
+- **2023-01-25**:
+  - Tawnie jokes about the dangerous road conditions.
+- **2023-01-28**:
+  - Dustin and Tawnie discuss dinner plans.
+- 2023-06-22: Tawnie forgot her iPad charging block, leading to frustration and emojis of crying faces.
+- 2023-06-22: Dustin Smith expressed a wish to help but couldn't due to his mom's situation.
+- 2023-06-23: Dustin Smith surprises Tawnie with a new sink fixture, sparking laughter.
+- 2023-06-23: Dustin showcases his "dad skills" by making plans for the day with the kids.
+- 2023-06-26: Dustin helps his mom with a health issue, showcases stubbornness and love for Tawnie.
+- 2023-07-04: Dustin asks for White Russians or mudslides, indicating a desire to relax and have fun.
+- 2023-07-05: Tawnie and Dustin discuss a basketball hoop vandalism incident and potential suspects.
+- 2023-07-06: Tawnie and Dustin contemplate potential drama involving their daughter and her friend, Steven.
+- **2023-07-06**
+  - Tawnie finds things amusing with 😂 emojis.
+  - Dustin changes the WiFi password and asks for cigarettes.
+  - Humorous interaction about beers and WiFi password with Konner.
+- **2023-07-07**
+  - Dustin talks about bad dreams and running errands.
+  - Tawnie asks about arrangements for the children.
+  - Dustin mentions Konner breaking his screen.
+- **2023-07-10**
+  - Playful interaction about pressing a button for no reason.
+- **2023-07-11**
+  - Tawnie inquires about the children's stay.
+  - Plans for Rayna's build-a-bear trip are discussed.
+- **2023-07-12**
+  - Tawnie expresses tiredness while Dustin forgets cigarettes.
+- **2023-07-20**
+  - Tawnie and Dustin have a heartfelt conversation addressing communication and family dynamics.
+- 2023-07-20: Tawnie expresses guilt about a situation, Dustin reassures her and expresses love.
+- 2023-07-20: Discussion about handling a tantrum and kids' activities.
+- 2023-07-21: Troubles with internet connection and family interactions regarding kids' whereabouts.
+- 2023-07-23: Tawnie shares a phone number.
+- 2023-07-24: Tawnie shares a file.
+- 2023-07-25: Tawnie informs Dustin about Kj's schedule change and her health, with humorous vitamin D conversation.
+- 2023-07-25: Discussion on getting something, with Tawnie offering payment information.
+- 2023-07-28: Dustin asks Tawnie to get items and mentions a family gathering invitation.
+- **2023-01-28**:
+  - Tawnie confirms being okay.
+  - Dustin informs Tawnie about having only one monster in the fridge.
+- **2023-01-30**:
+  - Dustin asks Tawnie to check if Frontier is down, revealing the bill wasn't paid.
+  - Tawnie shares that Frontier will be serviced on 2/8 due to an equipment issue.
+- **2023-01-31**:
+  - Dustin discovers he had accidentally turned off the internet and requests it back on.
+  - Tawnie engages with Frontier for service, causing some frustration.
+- **2023-02-03**:
+  - Tawnie updates Dustin that the internet tech is on the way.
+- **2023-02-07**:
+  - Dustin expresses missing Tawnie and sends loving messages.
+- **2023-02-14**:
+  - Tawnie apologizes for being stressed and Dustin reassures her with humor and love.
+- **2023-02-16**:
+  - Dustin and Tawnie discuss family plans and events, including a surprise birthday party.
+- 2023-02-16: Tawnie Shelton and Dustin Smith discuss last-minute plans with kids and leaving work.
+- 2023-02-18: Conversation about Everett losing matches and being upset.
+- 2023-02-25: Dustin asks for food from Wendy's, later opts for Popeyes.
+- 2023-03-03: Tawnie reminds kids about chores and homework before electronics.
+- 2023-03-10: Tawnie expresses concern about possibly being fired.
+- 2023-03-12: Dustin and Tawnie have an emotional conversation about communication and teamwork.
+- 2023-03-13: Dustin mentions kids facing issues with neighbors and asks for a drink.
+- 2023-03-14: Tawnie mentions a concerning incident with police and school.
+- 2023-03-15: Sweet exchange of "I love you" messages between Dustin and Tawnie.
+- **2023-03-15**:
+  - Dustin Smith expresses frustration at the water being shut off, especially for families with children involved.
+  - Tawnie Shelton questions the actions of those in power and the lack of notice regarding the water shut-off.
+- **2023-03-18**:
+  - Dustin Smith humorously mentions fighting and requests food for the kids, cigarettes, and energy drinks.
+- **2023-03-20**:
+  - Tawnie Shelton discusses a school issue and the delay in decision-making.
+- **2023-03-21**:
+  - Dustin Smith assists in delivering Tawnie's medication and license, highlighting communication challenges with the delivery person.
+- **2023-03-22**:
+  - Expressions of love and gratitude between Dustin Smith and Tawnie Shelton.
+- **2023-03-24**:
+  - Concerns about someone potentially coming over, leading to cautionary actions.
+- **2023-03-27**:
+  - Affectionate messages exchanged between Dustin Smith and Tawnie Shelton, emphasizing support and appreciation for each other's efforts.
+This summary highlights emotional exchanges, challenges faced, humorous interactions, and expressions of love and care between the individuals involved.
+- **2023-03-28:** Tawnie Shelton expresses liking something.
+- **2023-03-29:** Tawnie and Dustin exchange affectionate messages.
+- **2023-03-31:** Discussion about AirPods mix-up and landlord issues.
+- **2023-04-01:** Dustin checks on Tawnie, humorous exchange.
+- **2023-04-02:** Food order discussed.
+- **2023-04-03:** Concerns about rent, potential legal actions, and dental issues.
+- **2023-04-05:** Dustin appreciates food, weather, and asks about an event.
+- **2023-04-07:** Plans for a visitor and casual conversation.
+- **2023-04-10:** Humorous discussion about "boner cancer" and daily activities.
+- **2023-04-13:** Task delegation and communication about visiting hours.
+- **2023-04-14:** Affectionate messages and Netflix fix.
+- **2023-04-17:** Request for court papers and sharing new music.
+- **2023-04-18:** More affectionate messages and request for items.
+- **2023-04-18:**
+  - Light-hearted interaction between Dustin Smith and Tawnie Shelton about setting up a planner.
+- **2023-04-19:**
+  - Interaction about waiting for maintenance, expressing love and relief when the issue is resolved.
+- **2023-04-26:**
+  - Dustin asks Tawnie about their child's schedule and shares updates on the day.
+- **2023-04-28:**
+  - Dustin decides to transition from Adderall to Intuniv, receives support from Tawnie.
+- **2023-05-08:**
+  - Tawnie encourages and supports Dustin during a dental visit for their daughters.
+- **2023-05-11:**
+  - Humorous exchange between Dustin and Tawnie about DNA variants.
+This summary captures key interactions, emotions, decisions, and updates from the provided content.
+- May 15, 2023: Dustin takes his daughter Rayna to urgent care due to severe swelling on her face, leading to a visit to the ER for treatment.
+- May 15, 2023: Dustin expresses frustration at the delayed medical care for Rayna and seeks an allergy specialist for further evaluation.
+- May 15, 2023: Tawnie shares her anger and frustration about a school incident involving her child, expressing a desire to take action.
+- May 15, 2023: Dustin and Tawnie discuss a DNA analysis and share emotional moments regarding their children's well-being.
+- May 23, 2023: Rayna's allergy appointment does not go as expected, prompting further tests at Oaklawn allergy specialist.
+- May 23, 2023: Dustin informs Tawnie about Karter missing her and updates her on family activities.
+- May 25, 2023: Light-hearted banter ensues between Dustin and Tawnie about lighters, leading to a humorous misunderstanding.
+- May 25, 2023: Dustin and Tawnie share playful exchanges about lighters and humorously mention the term "BBC."
+- 2023-05-25: Concerns about a collapsed lung without a diagnosis, waiting for Covid results.
+- 2023-05-25: Interactions between Tawnie and Dustin about medical speculations and personal updates.
+- 2023-05-30: Discussion about unlocking an Android phone.
+- 2023-06-01: Coordination on picking up someone and gas meter issue.
+- 2023-06-05: Conversations about household chores and missing out on family discussions.
+- 2023-06-06: Dealing with lice treatment mishap humorously.
+- 2023-06-08: Emotionally charged text exchange regarding communication issues and relationship dynamics.
+- 2023-06-08: Tawnie expresses stress and anger over things she can't change, while Dustin shares a similar sentiment regarding issues at Stevie's house.
+- 2023-06-08: Tawnie emphasizes the importance of better treatment for Dustin's girls, expressing frustration at Stevie's behavior.
+- 2023-06-08: Dustin acknowledges the challenges with Stevie's parenting and expresses reluctance to confront her due to legal issues.
+- 2023-06-08: Conversation delves into Stevie's neglectful behavior, including instances of not fulfilling promises to her children.
+- 2023-06-08: Tension rises as Tawnie and Dustin discuss Stevie's parenting, with Tawnie expressing disappointment and Dustin contemplating custody.
+- 2023-06-16: Dustin and Tawnie engage in a conversation about financial transactions, with a playful exchange regarding lending money.
+- 2023-06-21: Tawnie and Dustin discuss plans for dinner and mention missing Karter, with Tawnie informing Dustin about Karter's visit.
+- 2023-06-22: Tawnie mentions having 71 names to cut, implying a task or project she needs to work on.

@@ -1,0 +1,125 @@
+# 2019_Facebook_Summary
+
+- **2019-05-12T00:53:25**
+  - Emotion: Hopeful for forever
+- **2019-05-12T02:57:55**
+  - Interaction: Facebook account deletion humor
+- **2019-05-12T15:14:43**
+  - Emotion: Dealing with anxiety and negative emotions
+- **2019-05-26T02:29:05**
+  - Creative process: Music creation from vision
+- **2019-06-12T19:16:42**
+  - Emotional journey reflected in music and video creation
+- **2019-06-26T00:28:28**
+  - Transition from negativity to positive focus in music project
+- **2019-06-30T23:09:11**
+  - Personal growth and change for better future
+- **2019-07-22T23:53:45**
+  - Hopeful outlook on reaching goals and ambition
+These summaries capture the emotional and creative journey of the individual, highlighting moments of struggle, growth, and positivity.
+- **2019-07-25T21:26:26**
+  - Death of a Marriage lyric video released.
+- **2019-07-26T05:32:17**
+  - Celebrated son Everett Smith's 14th birthday, expressing pride and admiration.
+- **2019-07-26T07:22:51**
+  - Enjoyed a fun outing with son Everett Smith and uncle Richard Smith for go karts and laser tag.
+- **2019-07-27T17:29:09**
+  - Proudly shared son Everett Smith's first time singing on the mic.
+- **2019-07-27T22:14:32**
+  - Wished a happy 1-year wedding anniversary to Cady Lin-Hope Lahusky & Bryan Lahusky.
+- **2019-07-28T02:40:39**
+  - Reflected on moving forward by metaphorically preventing bridges from being rebuilt.
+- **2019-07-28T15:42:20**
+  - Encouraged turning pain into something positive.
+- **2019-07-28T18:37:39**
+  - Felt mentally at peace and connected deeply, focusing on a roadmap to a better future.
+- **2019-07-28T20:30:28**
+  - Teased an upcoming content clip.
+- **2019-07-29T04:00:07**
+  - Shared a location-related post.
+- **2019-07-30T19:53:11**
+  - Started divorce proceedings, aiming for a positive and musical mindset.
+- **2019-07-31T02:48:24**
+  - Announced the upcoming release of the album "Jekyll & Light."
+- **2019-07-31T21:48:26**
+  - Acknowledged dual emotional states, referencing Mr. Hyde.
+- **2019-08-05T00:28:44**
+  - Announced the filing of divorce papers, expressing relief and readiness to move on.
+- **2019-08-09T23:50:42**
+  - Expressed forgiveness and acceptance towards a challenging situation.
+- **2019-08-10T23:55:44**
+  - Contemplated exploring a darker side of the self.
+- **2019-08-13T08:47:49**
+  - Critiqued manipulative behavior and reflected on choosing between darkness and light.
+- **2019-08-19T23:02:35**
+  - Urged not to let past hurt affect present relationships and happiness.
+- **2019-08-21T21:40:27**
+  - Shared insights on growing up and realizing the wisdom of older advice.
+- **2019-08-21**:
+  - Reflecting on being a good person and encouraging self-recognition.
+- **2019-08-22**:
+  - Casual conversation with son about high school and slang.
+- **2019-08-23**:
+  - Emphasizing on overcoming negativity and living positively.
+- **2019-08-25**:
+  - Encouraging self-sufficiency and happiness without a partner.
+- **2019-08-30**:
+  - Acknowledging personal growth and resilience with family's support.
+- **2019-08-31**:
+  - Contemplating human nature and accepting the presence of darkness.
+- **2019-09-02**:
+  - Appreciating family time during the holidays.
+- **2019-09-02**:
+  - Overcoming a period of deep sadness and celebrating personal growth.
+  - Acknowledging the challenges of single parenting and encouraging self-appreciation for single parents.
+- **2019-09-04**:
+  - Reflecting on newfound happiness and self-sufficiency, emphasizing the importance of self-reliance for joy.
+  - Marking the 7th birthday of Jensen in Heaven.
+- **2019-09-05**:
+  - Expressing a willingness to help others despite being perceived as an "asshole."
+  - Finding solace in simple pleasures to improve mood.
+  - Setting boundaries for positive vibes only and sharing a humorous gif.
+- **2019-09-07**:
+  - Encouraging self-love before loving others.
+  - Seeking assistance to change from a negative mood.
+- **2019-09-09**:
+  - Showing admiration for independent single women and highlighting the attractiveness of self-sufficiency.
+- **2019-09-10**:
+  - Reflecting on personal growth and newfound sense of purpose after a challenging period.
+  - Warning about a clown with a specific coat.
+- **2019-09-14**:
+  - Remembering Patrick Swayze's death anniversary and teasing upcoming content.
+- **2019-09-16**:
+  - Expressing a renewed sense of vitality and love for family.
+- **2019-09-17**:
+  - Seeking connections on Snapchat.
+- **2019-09-18**:
+  - Sharing a meaningful post inspired by the movie "The Vow."
+- **2019-09-19**:
+  - Sharing a YouTube link.
+- **2019-09-21**: Expresses frustration about a mosquito bite causing problems.
+- **2019-09-22**: Continues feeling frustrated.
+- **2019-09-27**: Enjoys bowling with mini me Everett Smith.
+- **2019-09-28**: Decides to start living again and move on to the next chapter.
+- **2019-09-29**: Expresses frustration with people's behaviors and shares a link to a video.
+- **2019-09-30**: Reflects on love and money.
+- **2019-10-06**: Engages with memes and shares admiration for Post Malone.
+- **2019-10-14**: Advocates for kindness and love over hate and disrespect.
+- **2019-10-30**: Expresses disillusionment with human behavior and desires to escape to Mars.
+- **2019-10-31**: Reflects on personal growth and resilience.
+- **2019-11-01T00:18:38**:
+  - Emphasizes living life deeply and experiencing challenges.
+- **2019-11-04T17:22:48**:
+  - Criticizes social media for spreading darkness and chaos.
+- **2019-11-26T12:08:08**:
+  - Appreciates the beauty of the sun and a positive decision to get out of bed.
+- **2019-11-26T12:19:05**:
+  - Expresses gratitude and happiness on Thanksgiving.
+- **2019-11-30T00:39:19**:
+  - Reflects on a challenging year for relationships and surviving difficulties.
+- **2019-12-09T14:34:23**:
+  - Uses a hashtag "#WATCHMEBLEED" to possibly indicate a bold or defiant attitude.
+- **2019-12-15T19:08:58**:
+  - Humorous comment about working hard.
+- **2019-12-25T13:23:26**:
+  - Acknowledges past failures and takes responsibility for achieving personal goals.

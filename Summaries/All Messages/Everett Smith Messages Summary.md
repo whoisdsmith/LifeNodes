@@ -1,0 +1,154 @@
+# Everett Smith Messages Summary
+
+- **August 10, 2022**
+  - Everett Smith informs about a football fundraiser selling Hungry Howie's coupons.
+  - Dustin Smith mentions being broke and planning to go back to work soon.
+- **June 16, 2020**
+  - Everett Smith expresses amazement at selected pictures of Tyler Lee Smith.
+  - Tyler Lee Smith's pictures were posted and someone did something with them.
+- **Apr 12, 2019**: Everett plans to go to the gym and get the Halo anniversary edition. Dustin shows interest in the game.
+- **Apr 13, 2019**: Dustin checks in on Everett's whereabouts and plans. They discuss Xbox and food arrangements.
+- **Apr 16, 2019**:
+  - **Everett Smith** expresses concerns about his father going back to Stevie due to his bipolar diagnosis and the trust issues involving Stevie.
+- **Apr 20, 2019**:
+  - **Everett Smith** asks for an email password and Xbox password, followed by a brief conversation about going to the gym.
+- **2019-05**
+  - May 11, 2019 - Everett discusses Mother's Day plans with Dustin and learns about upcoming job interviews.
+  - May 9, 2019 - Dustin shares a heartfelt song lyrics with Everett and expresses love.
+- **Apr 27, 2019**:
+  - Coordination between **Dustin Smith** and **Everett Smith** for pick up arrangements, with **Dustin Smith** mentioning car issues and possibly meeting halfway.
+  - **Everett Smith** mentions his mom's birthday and plans to visit for the next two weeks.
+- **Apr 28, 2019**:
+  - **Everett Smith** asks for email and serial for PdaNet.
+- **June 21, 2019**
+  - Everett Smith mentions accidentally using a thumbs down emoji and not being able to change it.
+  - Dustin Smith acknowledges a good song shared by Everett Smith.
+- **June 15, 2019**
+  - Dustin Smith discusses work schedule and the difficulty in arranging to meet.
+  - Everett Smith tries to plan a visit.
+- **June 12, 2019**
+  - Everett Smith appreciates a powerful song shared by Dustin Smith.
+  - Plans are made for Everett Smith to visit.
+- **June 6, 2019**
+  - Dustin Smith mentions being on 3rd shift for the next 4 days.
+  - Everett Smith queries about coming over on the weekend.
+- **May 11, 2019:**
+  - Dustin gets fired from work and has 2 interviews scheduled.
+  - Everett expresses disbelief at Dustin's firing.
+- **May 9, 2019:**
+  - Dustin shares emotional song lyrics with Everett.
+  - Dustin sends music links to Everett.
+- **May 4, 2019:**
+  - Dustin asks Everett to visit due to family issues.
+- **Apr 27, 2019:**
+  - Dustin and Everett discuss meeting up, facing car issues.
+- **Apr 20, 2019:**
+  - Everett and Dustin talk about gym and password help.
+- **Apr 16, 2019:**
+  - Everett expresses concerns about Dustin's relationship with Stevie.
+- **Apr 13, 2019:**
+  - Dustin and Everett plan to meet, discuss Xbox and food.
+- **2018-03:**
+  - Everett inquires about a username on Messenger.
+  - Plans to meet up, missed calls, and requests to spend the night.
+  - Discussion about picking up Everett, missed calls, and gaming requests.
+- **2018-04:**
+  - Everett requests to come over, asks for tech help with his laptop.
+  - Conversation about troubleshooting the laptop issue and sharing email passwords.
+  - Plans to meet and solve laptop problems.
+- **2018-09**
+  - Sep 22, 2018, 9:00 PM - **Everett Smith** expresses readiness to meet up in 30 minutes.
+  - Sep 22, 2018, 10:05 AM - **Dustin Smith** anticipates seeing Everett and expresses excitement.
+  - Sep 22, 2018, 10:02 AM - **Everett Smith** accidentally breaks something and mentions it lasted for a year.
+  - Sep 22, 2018, 9:59 AM - **Everett Smith** sends a photo.
+  - Sep 19, 2018 - **Everett Smith** suggests meeting up on the weekend.
+- **2018-05**
+  - May 12, 2018 - Everett tries to contact Dustin multiple times, expressing a desire to come over but receives no response.
+- **Sep 5, 2018**: Dustin can't make it to Everett's game but promises to attend the next one. Grandma and Clark will be there.
+- **Oct 3, 2018**: Dustin and family are sick and can't make the meetup. Everett talks about upcoming games.
+- **Oct 20, 2018**: Dustin informs Everett about ending things with Stevie. Everett shows understanding and support. Dustin shares news about a new job.
+- **Oct 21, 2018**: Dustin gets into a car accident but assures Everett he's fine. They exchange messages of love and concern.
+  - - **Oct 21, 2018**
+  - Dustin Smith had a car accident but is fine.
+  - Everett expressed concern for Dustin's well-being.
+  - The two had a video chat that lasted for 21 seconds.
+- **Oct 20, 2018**
+  - Everett shared his business activities and goals with Dustin.
+  - Dustin informed Everett about getting an engineering job.
+- **Oct 7, 2018**
+  - Dustin congratulated Everett on a win.
+- **Sep 22, 2018**
+  - Everett mentioned a broken device after a mishap.
+- **Sep 19, 2018**
+  - Dustin couldn't meet due to illness but expressed love and luck.
+- **Sep 13, 2018**
+  - Everett discussed a sports game outcome with Dustin.
+- **Sep 11, 2018**
+  - Dustin checked in on Everett's quad injury and school.
+- **Apr 13, 2019**
+  - Everett and Dustin planned to meet.
+- **Apr 12, 2019**
+  - Dustin inquired about a new Halo game.
+- **Apr 12, 2019**
+  - Everett shared plans about visiting a chiropractor and playing Halo.
+- **Sep 8, 2018**
+  - Dustin Smith inquired about a potential win.
+- **Sep 5, 2018**
+  - Dustin Smith expressed love and apologized for missing a game due to a counseling session.
+- **Sep 2, 2018**
+  - Dustin Smith and Everett Smith shared casual conversations and asked about plans.
+- **Aug 31, 2018**
+  - Dustin Smith checked in on Everett Smith's well-being and football.
+- **May 12, 2018**
+  - Everett Smith tried to contact Dustin Smith multiple times.
+- **May 6, 2018**
+  - Everett Smith seeks to visit Dustin Smith.
+- **Apr 17, 2018**
+  - Affectionate goodnight messages exchanged.
+- **Apr 9, 2018**
+  - Everett Smith sought technical assistance from Dustin Smith.
+- **Apr 7, 2018**
+  - Everett Smith attempted to connect with Dustin Smith and requested to visit.
+- **Mar 30, 2018**
+  - Everett Smith repeatedly tried to contact Dustin Smith through calls and messages.
+  - Everett Smith asked about being picked up and changed chat colors.
+- **Mar 29, 2018**
+  - Everett Smith requested downloading a game on his Xbox and mentioned listening to an album.
+  - Dustin Smith mentioned plans with **Lydia Smith** affecting his availability.
+- **Mar 26, 2018**
+  - Dustin Smith shared a song with Everett Smith.
+- **Mar 25, 2018**
+  - Everett Smith asked to spend the night and visit but faced missed calls.
+- **Mar 16, 2018**
+  - Everett Smith inquired about Dustin Smith working with someone.
+- **Mar 15, 2018**
+  - Dustin Smith questioned "Stevie why?" in response to Everett Smith.
+- **Mar 14, 2018**
+  - Everett Smith asked about an unknown user.
+- **Jul 17, 2014**:
+  - Everett compliments a Youtube video, expressing admiration for singing.
+  - Interaction includes playful banter and a discussion about changing names on Siri.
+- **Jul 22, 2014**:
+  - Everett urgently asks for a charger as his device is low on battery.
+- **Jul 23, 2014**:
+  - Everett expresses fear due to thundering noise and seeks comfort.
+- **Sep 28, 2014**:
+  - Everett mentions someone named Bridget, leading to a query about the identity.
+- **Jul 18, 2014:**
+  - Everett found a video on YouTube and praised the user's singing.
+  - A humorous conversation about changing names in Siri.
+  - Everett shared compliments on the user's music and singing talent.
+  - Expressions of love and goodnight wishes exchanged.
+- **Jul 22, 2014:**
+  - Everett urgently seeks a charger for his device.
+- **Jul 23, 2014:**
+  - Everett expresses fear due to thundering sounds.
+  - Multiple attempts to get the user's attention during the night.
+- **Jul 25, 2014:**
+  - User requests Everett to close his door quietly.
+- **Jul 26, 2014:**
+  - Everett exclaims in surprise.
+- **Sep 28, 2014:**
+  - Everett mentions someone named Bridget, prompting a query from the user.
+- **Oct 3, 2014:**
+  - Everett asks for his email address and the user provides it.

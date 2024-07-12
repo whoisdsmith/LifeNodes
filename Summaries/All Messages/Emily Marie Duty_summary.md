@@ -1,0 +1,33 @@
+# Emily Marie Duty_summary
+
+- **2011-09-21**
+  - Emily needs something for court and is determined to find a way to get it.
+  - Dustin expresses uncertainty about someone driving by something.
+- **2011-01-14**
+  - Light-hearted conversation about music and iPod between 742310327 and Dustin.
+- **2010-05-16**
+  - 742310327 avoids starting conflict and expresses discomfort about social dynamics with friends.
+- **2010-01-29**
+  - Tension between Dustin and 742310327 regarding relationships and honesty.
+- **2010-01-22**
+  - 742310327 distances themselves from Dustin, expressing lack of recognition.
+- **2010-01-21**
+  - Heartfelt exchange where 742310327 encourages Dustin to seek help and find motivation.
+- **2009-09-22**
+  - Dustin denies cheating accusations and clarifies the situation with another girl.
+- **2009-09-07**
+  - Dustin asks Emily to figure out her life and express feelings, creating a space for reflection and decision-making.
+- **2009-09-04**
+  - Dustin addresses concerns about Emily's well-being and hints at interference in her family dynamics.
+- **2009-07-13**
+  - Dustin expresses frustration with insincere people and reflects on the situation, emphasizing his discontent.
+- **2009-04-06**:
+  - Dustin expresses happiness in the relationship, wanting to make the other person happy and willing to put in effort to make it work.
+  - A message from 742310327 shows care, admiration, and support for the recipient's well-being and safety.
+- **2009-03-06**:
+  - Light-hearted messages exchanged between Dustin and the recipient, showing humor and interest in meeting up for dinner.
+  - A message from 742310327 indicates being drunk but still expressing affection and willingness to talk later.
+- **Regarding Blog Post Conflict**:
+  - A heated exchange involving someone named Holly expressing concerns and doubts about the relationship, questioning motives and sacrifices made by the other person.
+  - The other person defends their love and dedication, expressing frustration and hurt over not feeling accepted by the family.
+  - A plea for understanding and acceptance while highlighting efforts made to support the recipient through difficult times.

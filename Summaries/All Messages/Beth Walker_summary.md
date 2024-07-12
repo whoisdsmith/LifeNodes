@@ -1,0 +1,219 @@
+# Beth Walker_summary
+
+- **2011-11-21T21:09:00** - Beth Walker greets Dustin Smith with "hey sugars."
+- **2011-11-17T01:05:00** - Dustin Smith responds with "Hiya" to Beth Walker's message "hey boiii."
+- **2011-11-15T23:10:00** - Beth suggests hanging out on Thursday night.
+- **2011-11-15T22:39:00** - Beth enthusiastically plans to hang out with Dustin ASAP.
+- **2011-11-15T22:36:00** - Beth jokes about claiming Dustin's bed to avoid drinking and driving.
+- **2011-11-13T23:54:00** - Beth and Dustin exchange goodnight messages.
+- **2011-11-13T23:48:00** - Dustin shares a song snippet with Beth.
+- **2011-11-13T23:33:00** - Dustin receives positive feedback on his music from Beth.
+- **2011-11-07T17:08:00** - Beth mentions a movie night in the future to Dustin.
+- **2011-11-02T16:30:00** - Beth expresses her love for painting to Dustin.
+- **2011-10-25T23:36:00** - Beth and Dustin bid each other good night.
+- **2011-08-31**
+  - Beth Walker inquires about how she knows Dustin Smith.
+  - Beth expresses hope for good pay and surprise ("dang").
+  - Dustin mentions working as a shift mechanic, having worked long hours and feeling delusional.
+  - Beth reacts to Dustin's work situation with amazement ("dayuum").
+  - Dustin shares about his long work day and feeling tired.
+  - Casual interaction between Dustin and Beth, with Dustin playfully mentioning meeting at Steak 'n Shake.
+- **2011-10-25T23:21:00**
+  - Emotion: Expressing interest in sexual activity.
+  - Interaction: Discussing the number of sexual partners.
+- **2011-10-25T23:20:00**
+  - Note: Managing expectations regarding relationships.
+- **2011-10-25T23:19:00**
+  - Interaction: Sharing experiences and preferences during sex.
+- **2011-10-25T23:18:00**
+  - Interaction: Playful conversation about sexual behaviors.
+- **2011-10-25T23:17:00**
+  - Interaction: Sharing reactions and behaviors post-sex.
+- **2011-10-25T23:16:00**
+  - Note: Mentioning unusual behaviors during sex.
+- **2011-10-25T23:15:00**
+  - Interaction: Discussing moaning during sex.
+- **2011-10-25T23:14:00**
+  - Interaction: Talking about partners' sexual experiences.
+- **2011-10-25T23:13:00**
+  - Note: Emphasizing communication and mutual pleasure in sex.
+- **2011-10-25T23:11:00**
+  - Interaction: Sharing sexual preferences.
+- **2011-10-25T23:09:00**
+  - Interaction: Complimenting each other's sexual openness.
+- **2011-10-25T23:07:00**
+  - Interaction: Discussing preferences in oral sex.
+- **2011-10-25T23:06:00**
+  - Interaction: Playful conversation about sexual activities.
+- **2011-10-25T23:05:00**
+  - Note: Request for privacy regarding sexual discussions.
+- **2011-10-25T23:04:00**
+  - Interaction: Sharing preferences in sexual positions and behaviors.
+- **2011-10-25T23:03:00**
+  - Emotion: Expressing dislike towards certain sexual behaviors.
+- **2011-10-25T23:02:00**
+  - Note: Mentioning rumors and reactions to sexual stories.
+- **2011-10-25T23:01:00**
+  - Note: Discussing experiences with public sexual activities.
+- **2011-10-25T23:00:00**
+  - Note: Exploring the concept of swinging in relationships.
+- **2011-10-25T22:59:00**
+  - Note: Discussing jealousy in relationships.
+- **2011-10-25T22:58:00**
+  - Note: Reflecting on relationship dynamics and titles.
+- **2011-10-25T22:57:00**
+  - Note: Conversing about couple activities and road trips.
+- **2011-10-25T22:56:00**
+  - Note: Sharing thoughts on sexual teasing.
+- **2011-10-25T22:55:00**
+  - Note: Discussing preferences and enjoyment in oral sex.
+- **2011-10-25T22:54:00**
+  - Note: Reflection on relationship status and implications.
+- **2011-10-25T22:53:00**
+  - Note: Contemplation on relationship dynamics.
+- **2011-10-25T22:52:00**
+  - Note: Mentioning sexual desires and fantasies.
+- **2011-10-25T22:51:00**
+  - Note: Advising on communicating sexual dissatisfaction.
+- **2011-10-25T22:50:00**
+  - Note: Reflecting on openness in discussing sex.
+- **2011-10-25T22:49:00**
+  - Note: Reacting to funny and intriguing comments.
+- **2011-10-25T22:47:00**
+  - Note: Acknowledging the nature of conversation.
+- **2011-10-25T22:46:00**
+  - Note: Reflecting on the explicit nature of discussion.
+- **2011-10-25T22:45:00**
+  - Note: Acknowledging the explicit nature of conversation.
+- **2011-10-25T22:43:00**
+  - Note: Humorous remark on sexual activity.
+- **2011-10-25**
+  - Beth Walker expresses interest in rough sex and kinky activities, mentioning specific preferences.
+  - Dustin Smith and Beth Walker engage in playful and flirtatious banter, discussing past sexual experiences and preferences.
+  - Beth Walker shares her dissatisfaction with current sexual experiences and desires more passion and excitement.
+  - Dustin Smith and Beth Walker share personal feelings about love and relationships, with Beth expressing doubts about finding a soulmate.
+  - Dustin Smith mentions his struggles with past relationships and not being able to take his son trick-or-treating.
+  - Conversation shifts to Halloween plans, with Beth suggesting playful activities like pretending to be mermaids at a fountain.
+  - Overall, the exchange involves personal revelations, sexual discussions, relationship reflections, and a touch of lightheartedness.
+- **2011-10-25:**
+  - Beth plans to hang out with Dustin and suggests dressing up like a pirate and watching scary movies.
+  - Beth playfully mentions kidnapping Dustin and coming over as a mermaid.
+  - Dustin and Beth exchange light-hearted banter, with mention of Halloween plans.
+- **2011-10-10:**
+  - Dustin and Beth discuss Mark Zuckerberg and Facebook in a humorous conversation.
+- **2011-10-04:**
+  - Beth prepares for a costume party and shares excitement about the event.
+- **2011-10-01:**
+  - Beth expresses affection for Dustin, calling him a "creep" in a playful manner.
+- **2011-09-29:**
+  - Dustin and Beth banter about energy drinks and hanging out, with a humorous exchange about injecting Red Bull.
+- **2011-09-29T19:18:00**
+  - Interaction: "not funny"
+- **2011-09-29**
+  - Beth Walker expresses excitement about leaving the house and shares too much information with Dustin.
+  - Beth also expresses frustration about her car not being fixed.
+  - Dustin shares about using certain activities to fall asleep.
+- **2011-09-28**
+  - Dustin opens up about a past tragic event involving his girlfriend.
+  - Beth expresses support and admiration for Dustin.
+  - Beth considers going on a date but changes her mind.
+  - Dustin advises Beth to play the field regarding relationships.
+  - Beth and Dustin share light-hearted banter and discuss personal interests.
+- Beth Walker expressed sympathy for a situation involving disrespect on 2011-09-28T21:31:00.
+- Dustin Smith shared personal struggles with a past relationship on 2011-09-28T21:30:00.
+- Beth Walker and Dustin discussed relationship challenges, including betrayal and emotional pain, on 2011-09-28.
+- Beth Walker offered emotional support and understanding to Dustin on 2011-09-28.
+- Dustin shared personal struggles and emotions with Beth on 2011-09-28.
+- Dustin and Beth engaged in light-hearted conversations about Halloween costumes and plans on 2011-09-28.
+- Beth expressed confusion about relationships and personal choices on 2011-09-28.
+- Dustin and Beth discussed attending a show on the 25th on 2011-09-27.
+- Beth and Dustin shared music interests and personal experiences on 2011-09-27.
+- **2011-09-27**:
+  - Beth Walker expresses sadness and worry about a situation.
+  - Eric confesses he is a virgin to Beth.
+  - Dustin Smith jokingly comments about Eric being a virgin.
+  - Beth feels concerned about Eric getting attached to her.
+- **2011-09-27**:
+  - Playful banter between Beth, Dustin, and Eric.
+  - Mention of watching a video on Beth's wall.
+  - Reference to a humorous act called the "helicockter."
+- **2011-09-27** - **2011-09-16**:
+  - Various conversations between Beth Walker and Dustin Smith about relationships, video chats, and casual interactions.
+  - Dustin expresses concern about relationships.
+  - Beth mentions being a free spirit and not wanting to be tied down.
+  - Humorous and light-hearted exchanges between the two.
+- **2011-09-16T07:19:00**
+  - Beth Walker asks Dustin Smith how old he is.
+  - Dustin Smith comments on the behavior of kids these days.
+- **2011-09-16T07:18:00**
+  - Beth Walker mentions drama she's not into.
+  - Dustin Smith comments humorously.
+- **2011-09-16T07:17:00**
+  - Beth Walker talks about breaking things off.
+  - Dustin Smith inquires about her relationship with Eric.
+- **2011-09-16T07:15:00**
+  - Beth Walker discusses preferences.
+- **2011-09-16T07:14:00**
+  - Beth Walker and Dustin Smith share lighthearted banter.
+- **2011-09-16T07:12:00**
+  - Beth Walker talks about investments.
+- **2011-09-16T07:11:00**
+  - Dustin Smith and Beth Walker discuss piercings.
+- **2011-09-16T07:10:00**
+  - Beth Walker mentions pain perceptions.
+- **2011-09-16T07:09:00**
+  - Beth Walker expresses concerns about piercings.
+- **2011-09-16T07:08:00**
+  - Beth Walker and Dustin Smith have a playful conversation.
+- **2011-09-16T07:07:00**
+  - Conversations about avoiding drama and strippers.
+- **2011-09-16T07:06:00**
+  - Dustin Smith shares his activities.
+- **2011-09-16T07:04:00**
+  - Light teasing between Beth Walker and Dustin Smith.
+- **2011-09-16T07:03:00**
+  - Plans and casual exchanges.
+- **2011-09-16T07:02:00**
+  - Light-hearted responses.
+- **2011-09-16T07:01:00**
+  - Playful back-and-forth.
+- **2011-09-07T01:16:00**
+  - Prior interactions about gifts.
+- **2011-09-07T01:15:00**
+  - Discussions about music and instruments.
+- **2011-09-07T01:10:00**
+  - Differing music tastes.
+- **2011-09-07T01:06:00**
+  - Conversations about cars.
+- **2011-09-07T01:02:00**
+  - Humorous exchanges.
+- **2011-09-07T01:01:00**
+  - Light teasing and jokes.
+- **2011-09-07T00:59:00**
+  - References to celebrities.
+- **2011-09-07T00:55:00**
+  - Thoughts on Halloween costumes.
+- **2011-09-06T22:51:00**
+  - Light-hearted banter and compliments.
+- **2011-09-06**
+  - Dustin Smith plans to watch a movie with his mom.
+  - Beth Walker expresses excitement.
+  - Dustin Smith hints at visiting Beth at work, which disappoints her.
+- **2011-09-06**
+  - Discussion about work schedules and haircut plans.
+  - Beth mentions her days off and work schedule for the weekend.
+- **2011-09-06**
+  - Playful banter about chilling, tumbling, and interactions.
+- **2011-09-06**
+  - Humorous exchange about "smex," movies, and interests.
+- **2011-09-02**
+  - Dustin Smith jokes about visiting Beth.
+  - Beth appreciates the gesture and mentions hairdressing skills.
+- **2011-09-02**
+  - Beth apologizes for not making money despite hard work.
+  - Dustin Smith jokes about work hours and making more money.
+- **2011-09-02**
+  - Casual conversation about day activities and haircare.
+- **2011-08-31**
+  - Exchange about plans, birthdays, and strip clubs.
+  - Mention of work schedules and playful flirting.

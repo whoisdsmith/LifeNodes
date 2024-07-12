@@ -1,0 +1,809 @@
+# Tawnie and Dustin 2021_summary
+
+- **2021-01-01**
+  - Dustin expresses concern for Tawnie's safety while driving.
+  - Tawnie appreciates Dustin making it back safely.
+- **2021-01-02**
+  - Tawnie fixes her hot water heater with Steve-O's help.
+  - Dustin and Tawnie share affectionate messages and discuss activities.
+  - Dustin faces technical issues with music software but continues working.
+  - Tawnie plays Monopoly and deals with a spilled drink incident.
+  - The couple plans to spend time together, expressing mutual affection.
+  - Tawnie updates Dustin on her plans and appreciates his care.
+- **2021-01-27:**
+  - Tawnie finds Yoda labels for drinks cute, credits their dad's influence.
+  - Dustin reacts humorously to Tawnie's homemade Mac and cheese plans.
+  - Concerns about safety and teasing each other playfully before meeting up.
+- **2021-01-28:**
+  - Tawnie and Dustin exchange affectionate messages, discuss plans, and share light-hearted banter.
+  - Tension arises due to a family issue, causing stress and frustration.
+- **2021-01-29:**
+  - Dustin shares work troubles, and both discuss handling a difficult situation with humor.
+  - Tawnie deals with household tasks and expresses frustration towards a family member.
+  - Playful teasing and support continue amidst daily activities.
+- **2021-01-30 - 2021-02-01:**
+  - Brief, light-hearted exchanges and check-ins on daily activities.
+- **February 1, 2021**:
+  - Tawnie's son Kj injures his hand, needing medical attention.
+  - Dustin expresses concern and asks about Kj's condition.
+  - Tawnie updates Dustin on Kj's injury and treatment.
+  - Tawnie handles the situation with Kj's humor during the medical procedure.
+  - Dustin offers to support Tawnie as she deals with Kj's injury and her sick son Karter.
+  - Tawnie appreciates Dustin's concern and updates him on Karter's illness.
+- **February 2, 2021**:
+  - Dustin checks on Karter's health.
+  - Tawnie informs Dustin about Karter's recovery progress.
+  - Dustin and Tawnie discuss their respective family issues and stress.
+  - Tawnie jokes about having body aches and Dustin teases her about possibly having COVID-19.
+  - Dustin decides to stay with his mom to help her, allowing Tawnie to rest.
+  - Tawnie feels better after resting and shares a light-hearted moment with Dustin.
+- **February 3, 2021**:
+  - Tawnie updates Dustin on her daughter's quarantine due to a COVID-19 exposure at school.
+  - Dustin shares a similar situation at his workplace.
+  - Both express frustration over the challenges posed by COVID-19.
+  - Dustin recounts a stressful day and Tawnie offers comfort and support.
+  - They discuss the well-being of Kj, Karter, and Tawnie's health.
+  - Tawnie and Dustin exchange affectionate messages, expressing their longing to be together.
+  - Dustin mentions the girls saying hi to Tawnie and the kids.
+  - Plans for COVID-19 testing are made due to a potential exposure, reflecting the ongoing impact of the pandemic.
+- **2021-02-03**: Tawnie notices a concerning mark on Rayna's hip and urges immediate medical attention.
+- **2021-02-03**: Tawnie seeks advice from Tom's nurse mother and emphasizes the need for prompt medical evaluation due to possible serious conditions like cellulitis or MRSA.
+- **2021-02-03**: Concerned about Rayna's condition, Tawnie and Dustin discuss the urgency of the situation, suspecting a dangerous reaction like staph infection.
+- **2021-02-09**: Dustin faces a personal loss as his father passes away, and Tawnie offers support, including financial assistance and emotional comfort.
+- **2021-02-10**: Tawnie continues to show support and understanding towards Dustin during his difficult time, expressing sympathy and offering practical help, showcasing a caring and supportive relationship dynamic.
+- **February 10, 2021:**
+  - Dustin expresses gratitude towards Tawnie, missing her face and feeling thankful for her presence.
+  - Tawnie mentions buying Valentine's Day gifts for the kids and going to the vinyl store.
+  - Dustin shares emotional struggles, sorting through old photos of his dad and feeling the need to honor him.
+- **February 11, 2021:**
+  - Tawnie offers support to Dustin as he deals with his emotions and family matters, showing concern and being available to talk.
+- **February 12, 2021:**
+  - Dustin and Tawnie continue to support each other emotionally, discussing arrangements for Dustin's dad's funeral and expressing appreciation for each other.
+- **February 13, 2021:**
+  - Tawnie deals with a family issue, head lice, while Dustin provides light-hearted support.
+- **February 14, 2021:**
+  - Tawnie and Dustin exchange messages about dinner plans and safety.
+- **February 15, 2021:**
+  - Tawnie offers support to Dustin following a funeral service, showing concern for his well-being.
+- **February 17, 2021:**
+  - Dustin and Tawnie communicate about their day, expressing affection and concern for each other, with Tawnie taking time to clear her head in Battle Creek.
+- **February 17, 2021**:
+  - Dustin Smith deals with misunderstandings and blames.
+  - Tawnie Shelton offers support and assistance.
+- **February 18, 2021**:
+  - Dustin faces work challenges and expresses emotional struggles.
+  - Tawnie provides understanding and support for Dustin's difficult day.
+- **February 19, 2021**:
+  - Dustin and Tawnie discuss party preparations and show mutual appreciation.
+- **February 22, 2021**:
+  - Dustin worries about health issues, and Tawnie offers care and advice.
+- **February 23, 2021**:
+  - Tawnie shares updates on daily activities and interactions with Dustin.
+- **February 24, 2021**:
+  - Dustin updates Tawnie on his health, and they plan for childcare arrangements.
+- **2021-02-24**: Smith and Tawnie Nicole Reynolds start the conversation.
+- **2021-02-25**: Dustin Smith checks on Tawnie Shelton after a rough morning. Plans to visit later.
+- **2021-02-26**: Tawnie Shelton finds Dustin's wallet and leaves something on his car. They make plans to meet.
+- **2021-02-27**: Tawnie Shelton deals with a swollen eye, while Dustin mentions tax troubles. They communicate about plans.
+- **2021-02-28**: Dustin mentions hanging out with a friend, and Tawnie wishes him to drive safely.
+- **2021-03-01**: Dustin plans to work on music, and Tawnie encourages him. They discuss daily activities.
+- **2021-03-02**: Dustin asks Tawnie to put a bowl in the fridge and shares his day. Tawnie updates on her day and they plan to meet.
+- **2021-03-03**: Tawnie appreciates Dustin's talent, and they exchange affectionate messages. Plans to meet and discuss lyrics.
+The conversation mainly revolves around daily activities, emotional support, plans to meet, and appreciating each other's efforts and talents.
+- **2021-03-03**:
+  - Tawnie and Dustin tease each other about food preferences.
+  - Dustin complains about a tough job task.
+  - Tawnie offers to watch the girls for Dustin.
+- **2021-03-04**:
+  - Dustin and Tawnie discuss spending time together after work.
+  - They plan to go to Applebee's for dinner.
+- **2021-03-05**:
+  - Tawnie faces cold weather issues.
+  - Dustin shares music links with Tawnie.
+- **2021-03-08**:
+  - Dustin mentions dealing with taxes.
+- **2021-03-09**:
+  - Tawnie has interviews for the girls and deals with electronics.
+- **2021-03-10**:
+  - Dustin and Tawnie discuss daily activities and plans for the day.
+- **2021-03-10**:
+  - Tawnie offers to pick up Dustin's kids from school due to car issues.
+  - Dustin appreciates the help and updates Tawnie on the kids' classes.
+  - Tawnie confirms she'll pick up the kids and adds herself to the pickup list.
+- **2021-03-11**:
+  - Casual check-ins between Dustin and Tawnie about their day.
+  - Tawnie offers to help with errands while Dustin visits family.
+- **2021-03-12**:
+  - Tawnie paints while Dustin appreciates her talent.
+  - Dustin checks if Tawnie needs anything while she repaints the laundry area.
+- **2021-03-13**:
+  - Affectionate exchanges between Dustin and Tawnie, planning to meet up.
+  - Tawnie prepares food while Dustin heads her way, ensuring safe driving.
+- **2021-03-14**:
+  - Dustin and Tawnie chat about dinner plans and catching up with family.
+  - Tawnie forgets to take her car and discusses dinner options with Dustin.
+- **2021-03-15**:
+  - Dustin asks Tawnie to pick up the girls from school due to weather concerns.
+  - Tawnie agrees and wishes Dustin an awesome day, showing care for his safety.
+- **2021-03-16**:
+  - Dustin expresses frustration about work and personal struggles since his dad's passing.
+  - Tawnie offers support, reassurance, and understanding, emphasizing she's there to help.
+  - Dustin opens up about internal struggles and taking time off, appreciating Tawnie's support.
+- **2021-03-16**: Tawnie Shelton expresses care for Dustin, emphasizing safety.
+- **2021-03-17**: Tawnie offers support and suggests Dustin take time for himself.
+- **2021-03-24**: Conversation shifts to family health issues, with Dustin sharing his aunt's condition.
+- **2021-03-26**: Dustin & Tawnie discuss daily activities and share moments of affection.
+- **2021-03-29**: Dustin opens up about personal struggles, while Tawnie reassures and offers help.
+- **2021-03-30**: Humorous incident with a cop is shared, highlighting a light-hearted moment between them.
+- **2021-03-30:**
+  - Dustin Smith shares a video that Tawnie Shelton loves.
+  - Tawnie expresses love and misses Dustin.
+  - Dustin has to recover photos/videos of his dad from an old hard drive.
+- **2021-03-31:**
+  - Tawnie arranges transportation for the kids.
+- **2021-04-01:**
+  - Dustin and Tawnie exchange greetings and discuss their days.
+- **2021-04-02:**
+  - Tawnie's job location changes, affecting her commute.
+- **2021-04-03:**
+  - Dustin and Tawnie plan dinner and discuss daily activities.
+- **2021-04-05:**
+  - Dustin searches for a lost card, causing inconvenience.
+  - Tawnie helps Dustin out financially and with card replacement.
+- **2021-04-06:**
+  - Light-hearted conversation between Dustin and Tawnie.
+- **2021-01-02**: Tawnie Nicole Reynolds reminds Dustin Smith to drive safely after leaving Dollar General.
+- **2021-01-03**: Playful and supportive exchanges between Dustin Smith and Tawnie Shelton regarding work and homework.
+- **2021-01-04**: Affectionate messages exchanged about missing each other and Dustin expressing exhaustion from work.
+- **2021-01-05**: Tawnie shares having a tough day and Dustin offers support, leading to a comforting conversation.
+- **2021-01-05**: Dustin jokes about sleeping too much, and a playful dialogue about Valentine's Day gifts ensues.
+- **2021-01-05**: Dustin visits Tawnie's house after she invites him, and both check on each other's safety.
+- **2021-01-06**: Discussion about Dustin's mom's relationship, Tawnie provides support and humor.
+- **2021-01-06**: Expressions of gratitude and affection between Dustin and Tawnie before wishing each other goodnight.
+- 2021-04-06: Discussion about a potential trip to Kalahari water park and Dave and Busters.
+- 2021-04-07: Planning logistics involving picking up kids and running errands.
+- 2021-04-07: Request to use partner's card for shipping expenses.
+- 2021-04-07: Light-hearted interactions, expressing affection.
+- 2021-04-08: Tawnie's interactions with Lydia, discussing plans and helping out kids.
+- 2021-04-08: Discussion about Stevie's situation and a light-hearted comment about karma.
+- **April 8, 2021**:
+  - Dustin expresses concern over the girls going through a tough situation.
+  - Tawnie appreciates Dustin's support and calls him a kickass dad.
+  - Dustin decides to leave work early to spend time with the girls.
+- **April 9, 2021**:
+  - Dustin checks on Tawnie, and she updates him on the girls' activities.
+  - Tawnie handles Rayna's mischievous behavior.
+  - Dustin and Tawnie discuss Stevie's whereabouts and the girls' activities.
+- **April 12, 2021**:
+  - Tawnie faces a long wait for her work physical, and Dustin expresses boredom at work.
+  - Despite the wait, Tawnie completes her physical quickly.
+- **April 13, 2021**:
+  - Tawnie deals with mundane work tasks and orders gifts for Lydia's party.
+  - Dustin and Tawnie express missing each other and discuss their day.
+- **April 14, 2021**:
+  - Dustin anticipates a chaotic day ahead, while Tawnie juggles plans to see friends and watch the girls.
+  - Dustin encourages Tawnie to prioritize self-care and have a good time.
+- **April 14, 2021**:
+  - Shelton got out early, Cady made other plans, so Shelton went to Jackson.
+  - Conversations between Tawnie Shelton and Dustin Smith about their day and plans for the lodge stay.
+- **April 15, 2021**:
+  - Discussion about Karter feeling sick and plans for the day.
+  - Dustin expresses missing Tawnie and talks about their activities.
+- **April 16, 2021**:
+  - Morning messages and plans to meet up after finishing work.
+  - Dustin sends music links and notifications about their day.
+- **April 17, 2021**:
+  - Dustin shares personal information about friends, leading to a conversation about it with Tawnie.
+- **April 18, 2021**:
+  - Dustin sends more music links.
+- **April 19, 2021**:
+  - Tawnie receives cute images and Dustin discusses visiting his mom.
+- **April 20, 2021**:
+  - Dustin's work situation and plans to work at his mom's house.
+  - Tawnie and Dustin exchange messages about leaving Adderall and plans for the day.
+- **April 21, 2021**:
+  - No content provided.
+- **April 21, 2021**:
+  - Dustin expresses missing Tawnie and sends affectionate emojis.
+- **April 23, 2021**:
+  - Playful banter about Adderall and family.
+  - Expressions of love and appreciation.
+- **April 24, 2021**:
+  - Discussion about plans and tools for housework.
+  - Understanding between partners regarding family events.
+- **April 25, 2021**:
+  - Interaction about canceled plans and completing tasks.
+  - Care and concern shown for each other's well-being.
+- **April 26, 2021**:
+  - Details of daily activities shared.
+  - Light-hearted conversation and teasing.
+- **April 27, 2021**:
+  - Check-ins on daily schedules and activities.
+  - Affectionate exchanges and expressions of missing each other.
+- **2021-04-27:**
+  - Dustin Smith shares attachments.
+  - Tawnie Shelton expresses liking something.
+  - Dustin and Tawnie have casual conversations about daily activities and shopping.
+- **2021-04-28:**
+  - Dustin and Tawnie exchange affectionate messages.
+  - Tawnie talks about busy days.
+- **2021-04-29:**
+  - Dustin and Tawnie plan to meet up.
+  - Dustin offers to get items from the store for Tawnie.
+- **2021-04-30:**
+  - Dustin shares music links.
+  - Tawnie asks about AirPods.
+  - Plans are made to pick up the girls.
+- **2021-05-01:**
+  - Logistics regarding medication and children are discussed.
+  - Tawnie requests cigarettes from Dustin.
+- **2021-05-03:**
+  - Dustin tries on jeans, leading to humorous exchanges with Tawnie.
+  - Dustin offers to run errands for Tawnie.
+- **2021-05-03**:
+  - Tawnie Shelton reading about a lockdown caused by a person with weapons.
+  - Dustin Smith finds the situation interesting.
+- **2021-05-04**:
+  - Dustin enjoys a music link shared by Tawnie.
+  - Sweet exchanges and expressions of missing each other.
+  - Dustin requests deodorant while Tawnie is grocery shopping.
+  - Tawnie returns home safely.
+- **2021-05-05**:
+  - Affectionate emojis exchanged.
+  - Dustin asks to have girls stay over.
+  - Incident where Lydia injures her hand, causing concern.
+- **2021-05-06**:
+  - Dustin feels sorry for Lydia’s injury.
+  - Tawnie reassures Dustin and mentions Rayna's issue.
+  - Dustin faces challenges at work but manages to return on time.
+  - Plans for Dave and Busters outing discussed.
+- **2021-05-07**:
+  - Dustin offers to bring items for Tawnie.
+  - Tawnie requests energy drinks, and Dustin tries to find them.
+  - Playful exchanges and plans for Dave and Busters.
+- **2021-05-09**:
+  - Tawnie is occupied with house chores.
+  - Casual conversation and offers for assistance.
+- **2021-05-10 to 2021-05-11**:
+  - Dustin mentions a work trip to Missouri.
+  - Brief interactions expressing affection and missing each other.
+  - Humorous dialogue and updates on ongoing activities.
+- **May 11, 2021**
+  - Tawnie finds humor in someone still being blocked on a platform.
+  - Dustin expresses boredom and desire for smoking and food during a drive.
+  - Affectionate exchange highlighting Tawnie's motherly responsibilities and Dustin's admiration.
+  - Dustin shares location details for a drive.
+  - Discussion about a mutual acquaintance's behavior and plans for personal growth.
+  - Playful banter about sharing and relationship dynamics.
+- **May 12, 2021**
+  - Conversations about plans, current activities, and admiration for each other.
+  - Dustin mentions a sunburn, and Tawnie teases him affectionately.
+- **May 13, 2021**
+  - Worries expressed due to delayed responses.
+  - Interaction around daily activities, health issues, financial assistance, and busy schedules.
+  - Tawnie sends money to help and discusses difficulties with changing schedules at work.
+  - Dustin expresses anticipation to see Tawnie.
+- **May 14, 2021**
+  - No specific interaction noted.
+- **May 14, 2021**:
+  - Interaction between Dustin Smith and Tawnie Shelton regarding coparenting and apologies.
+- **May 15, 2021**:
+  - Dustin asks Tawnie to pick up cigarettes and Red Bull.
+- **May 17, 2021**:
+  - Affectionate exchanges between Dustin and Tawnie.
+- **May 18, 2021**:
+  - Planning to meet up and playful banter about license plates.
+- **May 19, 2021**:
+  - Concern for Tawnie's health and updates on feeling unwell.
+- **May 20, 2021**:
+  - Tawnie mentions being sent home and about to nap.
+- **May 22, 2021**:
+  - Playful conversation about activities in Jackson.
+- **May 23, 2021**:
+  - Discussion about phone issues and heading to see Tawnie.
+- **May 24, 2021**:
+  - Dustin offers to help move a couch and shares travel plans to Ohio.
+- **2021-05-24**:
+  - Dustin sent Tawnie an invite for an itinerary, but Tawnie didn't receive it.
+  - Dustin shared multiple attachments with Tawnie.
+  - Tawnie decided on 2 recliners instead of couches.
+- **2021-05-25**:
+  - Dustin expressed missing Tawnie and feeling tired.
+  - Tawnie reciprocated the affection and mentioned feeling tired too.
+  - Dustin encountered work issues which affected his day.
+  - Tawnie offered support and expressed missing Dustin.
+- **2021-05-26**:
+  - Affectionate messages exchanged between Dustin and Tawnie.
+  - Dustin gifted Tawnie an iPad Pro.
+  - Tawnie discussed co-parenting strategies with Dustin.
+  - Dustin and Tawnie shared playful banter and mutual admiration.
+These bullet points summarize the key events, emotions, interactions, and important notes from the provided content.
+- **May 26, 2021**
+   - Tawnie Shelton expresses excitement over pictures, using multiple heart-eye emojis.
+- **May 27, 2021**
+   - Dustin Smith shares a series of attachments.
+   - Tawnie Shelton and Dustin Smith express affectionate messages to each other.
+   - Tawnie mentions being busy but wanting to try out an iPad.
+- **May 28, 2021**
+   - Dustin Smith sends more attachments and expresses missing Tawnie.
+   - Tawnie and Dustin plan a casual dinner and show affection.
+- **May 29, 2021**
+   - Tawnie plans to eat at Hooters and Dave n Busters, while Dustin encourages her to have fun.
+   - Both express missing each other's company.
+- **May 31, 2021**
+   - Dustin requests plain cheeseburgers and expresses gratitude.
+- **June 1, 2021**
+   - Dustin and Tawnie discuss their day and plans for a music festival.
+   - They affirm their bond and share details about upcoming events.
+- **June 2, 2021**
+   - Dustin shares concerns about communication, and Tawnie reassures him, highlighting her stance on co-parenting dynamics.
+- **January 6, 2021**
+   - Dustin invites Tawnie for lunch, she declines due to being out with family.
+   - Tawnie offers to bring dinner for Dustin and the girls.
+   - Dustin appreciates Tawnie's gesture and misses her.
+   - Tawnie picks up pizza for Dustin and plans to meet after work.
+   - Discussion about political events and Tawnie getting items for Dustin.
+   - Dustin appreciates Tawnie's efforts and they plan to meet.
+- **January 7, 2021**
+   - Tawnie apologizes for potentially interrupting family time.
+   - Dustin reassures Tawnie that she enhances their time together.
+   - Light-hearted conversation and appreciation between the two.
+   - Dustin expresses his involvement in political discussions.
+   - Dustin decides to stay off Facebook due to intense political content.
+   - Discussion about political parties and missing each other.
+- **January 8, 2021**
+   - Tawnie checks in on Dustin's day at work.
+   - Dustin plans a relaxed day at work and they exchange pleasantries.
+   - Tawnie deals with returning items and they chat about work.
+   - Compliments and playful banter between Dustin and Tawnie.
+   - They discuss their days and the activities they've been involved in.
+- 2021-06-02: Dustin Smith has a doctor appointment, discusses plans with Tawnie Shelton regarding the girls and a possible MacBook purchase.
+- 2021-06-03: Tawnie Shelton apologizes for her behavior, Dustin Smith reassures her. Girls get sunburned, discussion about aloe.
+- 2021-06-04: Banter about potential marriage, a new caravan, and shopping locations.
+- 2021-06-05: Discussion about locations, children's stay, and MacBook purchase.
+- 2021-06-06: Plans to drop off kids, potential Tesla drive, and Best Buy visit.
+- 2021-06-07: Tawnie Shelton mentions a migraine, Dustin Smith shows concern and offers support.
+- 2021-06-08: Affectionate messages, planning for event preparations and shopping.
+- 2021-06-09: Dustin Smith requests items due to financial strain, Tawnie Shelton offers support.
+- 2021-06-10: Tawnie Shelton inquires about Lollapalooza self-testing regulations, Dustin Smith expresses enthusiasm.
+- **2021-06-10:**
+  - Dustin expresses reluctance towards getting the vaccination due to misinformation from his mother's friend in healthcare.
+  - Tawnie offers information about FDA-approved tests available at Walmart.
+- **2021-06-11:**
+  - Tawnie expresses feeling under pressure due to the wedding.
+  - Dustin reassures Tawnie and acknowledges the stress she is under.
+- **2021-06-12:**
+  - Dustin and Tawnie attend a wedding, share affectionate messages.
+- **2021-06-13:**
+  - Tawnie indicates needing a moment to compose herself.
+- **2021-06-16:**
+  - Dustin and Tawnie share playful banter and affectionate messages.
+- **2021-06-17:**
+  - Dustin jokes about falling into a "coma" and dreaming about going to work.
+- **2021-06-18:**
+  - Dustin discusses his workday, feeling tired, and humorous interactions with Tawnie.
+This summary captures the key emotional exchanges, interactions, and events from the provided content.
+- **June 18, 2021**:
+  - Dustin and Tawnie share casual conversations about various topics like being tired, watching movies, and family activities.
+  - Tawnie mentions shopping for cheer shoes, birthday presents, and dealing with family events.
+- **June 19, 2021**:
+  - Dustin and Tawnie express affection and discuss Father's Day gifts given by the children.
+- **June 20, 2021**:
+  - Tawnie faces car troubles while Dustin tries to help remotely with a motorcycle issue.
+- **June 21, 2021**:
+  - Dustin offers to get food for Tawnie but faces difficulties due to stores closing earlier than expected.
+- **June 22, 2021**:
+  - Dustin mentions feeling like staying in bed, indicating a continuation of previous casual and caring interactions between the couple.
+- **June 22, 2021**:
+  - Dustin Smith expresses thoughts of quitting due to feeling undervalued and underutilized.
+  - Tawnie Shelton suggests looking for new opportunities or discussing feelings with Kyle.
+- **June 24, 2021**:
+  - Tawnie Shelton informs about being off work due to stomach flu and dehydration.
+- **June 25, 2021**:
+  - Planning for Rayna's party with food ideas; Dustin asks Rayna for preferred meal (chicken nuggets and fries).
+- **June 28, 2021**:
+  - Dustin Smith faces a rough day and tire issue.
+- **June 30, 2021**:
+  - Tawnie wishes Dustin a good day while he's in New York; Dustin feels tired and declines socializing, preferring rest.
+- Tawnie discusses her busy and challenging day but notes it was better overall.
+- Dustin shares work difficulties with colleagues and finds the situation awkward.
+- General expressions of missing each other and affection throughout the interactions.
+- **2021-06-30**:
+  - Dustin expresses frustration about not getting paid for work on the 4th of July.
+  - Tawnie sympathizes and expresses concern about a missing girl.
+  - Dustin shares plans to use a drone and misses Tawnie.
+- **2021-07-01**:
+  - Dustin talks about using a drone and feeling underappreciated at work.
+  - Tawnie offers support and understanding, discussing family plans.
+  - Dustin vents about work frustrations and lack of recognition.
+  - Tawnie reassures Dustin of his worth and discusses family events.
+- **2021-07-02**:
+  - Tawnie updates on family and work, expresses concern about vaccines.
+  - Dustin shares sweet gestures for the kids and plans to ask about a dish for an event.
+- **July 2, 2021:**
+  - Dustin Smith and Tawnie Shelton express frustration with the day and long drive.
+  - Tawnie plans a winter vacation to Florida.
+- **July 5, 2021:**
+  - Dustin mentions a mosquito bite to Tawnie.
+  - Tawnie and Dustin discuss their day and career aspirations.
+- **July 6, 2021:**
+  - Dustin shares a raise and his work in welding.
+  - Tawnie advises against mentioning the raise to avoid child support implications.
+- **July 7, 2021:**
+  - Tawnie clarifies Covid test requirements for an event.
+  - Dustin heads to pick up Everett.
+- **July 8, 2021:**
+  - Dustin shares completion of the day's work.
+- **July 9, 2021:**
+  - Dustin takes a mental health day from work.
+- **July 10, 2021:**
+  - Dustin expresses concerns about family dynamics and Tawnie apologizes for her frustrations.
+  - Tawnie clarifies her feelings about the situation and expresses love for the girls.
+- **July 10, 2021**:
+  - Tawnie is concerned about dinner for the girls.
+  - Dustin and the girls want ramen for dinner.
+- **July 12, 2021**:
+  - Tawnie books a hotel for a concert.
+- **July 13, 2021**:
+  - Dustin expresses love and plans to cook tacos.
+  - Tawnie and Dustin discuss dinner plans.
+- **July 14, 2021**:
+  - Dustin gets items from the store.
+  - Tawnie offers to pick up more items.
+- **July 15, 2021**:
+  - Dustin mentions missing items.
+  - Tawnie offers to get more food.
+- **July 16, 2021**:
+  - Tawnie and Dustin express affection and discuss daily events.
+  - Dustin faces challenges at work.
+- **July 18, 2021**:
+  - Dustin forgets Tawnie's drink preference.
+  - Dustin goes to his mom's to retrieve paperwork.
+- **July 19, 2021**:
+  - Tawnie mentions Monday fatigue and breakfast.
+  - Dustin shares attachments and ticket tracking info.
+- **July 20, 2021**:
+  - Dustin discusses wristbands for an event.
+  - Dustin sends product links to Tawnie.
+- **July 20, 2021**
+  - Dustin shared various attachments with Tawnie.
+  - Tawnie expressed love and requested energy drinks.
+- **July 21, 2021**
+  - Dustin faced communication issues but resolved them for picking up the girls and bought energy drinks.
+  - Tawnie mentioned a specific parenting time order would help.
+- **July 22, 2021**
+  - Dustin thanked Tawnie for help and mentioned a financial request.
+  - Tawnie agreed to help and reminded him to drive safely.
+- **July 23, 2021**
+  - Dustin had a car accident but continued to work, sharing details with Tawnie.
+  - Tawnie expressed concern and advised on reporting for insurance.
+- **July 25, 2021**
+  - Dustin shared attachments related to an event.
+- **July 26, 2021**
+  - Tawnie inquired about plans, Dustin shared work stress.
+- **July 27, 2021**
+  - Tawnie sent affectionate messages, Dustin reciprocated.
+- **July 28, 2021**
+  - Plans were discussed for seeing the children and attending an event.
+  - Changes in COVID testing requirements were communicated, affecting travel plans.
+- **July 31, 2021**
+  - Dustin Smith shared a video: https://youtu.be/BmyYTvvjE34.
+- **August 2, 2021**
+  - Dustin Smith checked on Tawnie's well-being.
+  - Tawnie invited Dustin to Texas Roadhouse but went with someone else.
+  - Dustin apologized for being busy.
+  - Dustin realized he was locked out of the room.
+- **August 3, 2021**
+  - Tawnie shared drone shots from Lollapalooza.
+  - Dustin inquired about a Reddit post.
+  - Playful interactions between Dustin and Tawnie.
+  - Dustin asked about Tawnie's COVID test.
+- **August 4, 2021**
+  - Dustin shared content related to Lollapalooza.
+  - Discussion about plans for Cedar Point and work vacation.
+- **August 5, 2021**
+  - Concern about Dustin's health and suggestions for relief.
+- **August 6, 2021**
+  - Dustin shared a new album release.
+  - Tawnie set her profile as private accidentally.
+- **August 8, 2021**
+  - Dustin expressed frustration about discussions involving Stephen or Tom.
+- 2021-08-08: Tawnie expresses frustration about being compared to Stevie and feeling like she can't express her emotions without backlash.
+- 2021-08-08: Dustin and Tawnie argue about their respective roles and responsibilities in dealing with drama and the blended family dynamic.
+- 2021-08-08: The conversation escalates as Dustin expresses frustration about Tawnie mentioning Stevie and his struggles with managing his feelings towards her.
+- 2021-08-08: Tawnie feels like their relationship is being negatively affected by the ongoing conflict.
+- 2021-08-08: Dustin emphasizes his focus on maintaining peace within himself but struggles with the situation involving Stevie and Tawnie's reactions.
+- 2021-08-08: Tawnie and Dustin discuss their differing perspectives on handling issues related to the children and their respective exes.
+- 2021-08-08: Tawnie feels misunderstood and overwhelmed by the situation, leading to doubts about the future of their relationship.
+- **2021-01-08**:
+  - Dustin expresses concern over political censorship affecting Republican supporters.
+  - Tawnie assures Dustin she didn't fall asleep while driving.
+- **2021-01-09**:
+  - Tawnie vents about family issues and feeling disregarded.
+  - Dustin offers support and understanding.
+  - Tawnie discusses her frustrations with family and co-parenting challenges.
+- **2021-01-09 (Continued)**:
+  - Tawnie reflects on promises made and her emotional struggles.
+  - Dustin praises Tawnie for handling the situation well.
+  - Tawnie expresses her desire not to be the "bigger person."
+- **2021-01-09 (Continued)**:
+  - Tawnie and Dustin engage in political discussions and share differing opinions.
+  - They plan to spend time together and discuss dinner plans.
+- **2021-01-10**:
+  - Tawnie deals with a school chrome book issue.
+  - Tawnie and Dustin banter about the situation humorously.
+- **2021-01-11**:
+  - Tawnie inquires about Dustin coming over.
+  - Dustin declines due to household chores.
+This summary covers key emotional exchanges, family dynamics, political discussions, and casual interactions between Tawnie and Dustin, reflecting their daily challenges and concerns.
+- 2021-08-08: Tawnie expresses willingness to adjust for peace but feels unheard and misunderstood by Dustin regarding her feelings towards Stevie.
+- 2021-08-08: Dustin emphasizes the negative impact of Stevie on their relationship and the need to avoid her influence for the sake of peace.
+- 2021-08-08: Tawnie regrets involving their children in the conflict and acknowledges the need for better communication and anger management.
+- 2021-08-08: Both express love for each other despite the ongoing disagreement and emotional strain.
+- 2021-08-08: Dustin apologizes for comparing Tawnie to Stevie and emphasizes prioritizing peace and happiness over negativity.
+- 2021-08-08T22:21:00: - Emotional conversation about dealing with shutdowns, support from Dustin to Tawnie.
+- 2021-08-09: Casual exchanges between Dustin and Tawnie about their day, humor, and plans for the fair.
+- 2021-08-10: Affectionate messages between Dustin and Tawnie, discussing dreams, work, and love.
+- 2021-08-11: Complaining about work and heat, humorous exchanges about sweating, and dealing with power outage.
+- 2021-08-13: Expressions of love, discussions about restoration, and coordination for food pick-up.
+- 2021-08-14: Updates on power, family visits, and COVID concerns.
+- 2021-08-16: File sharing communication between Dustin and Tawnie.
+- **August 16, 2021**:
+  - Dustin Smith interacts about getting a new stereo and shopping at Walmart.
+- **August 17, 2021**:
+  - Tawnie Shelton asks about a song by Said the Sky.
+  - Dustin and Tawnie plan for fair stuff and coordinate meeting arrangements.
+  - Dustin expresses concern about Tawnie's single "K" response.
+  - They exchange love and reassurance messages.
+- **August 18, 2021**:
+  - Tawnie faces work issues due to a power outage, and Dustin sympathizes.
+  - They continue to exchange messages full of love and support.
+- **August 19, 2021**:
+  - Tawnie mentions a forgotten event, and Dustin expresses love and support despite being busy.
+- **August 20, 2021**:
+  - Dustin playfully checks in on Tawnie with multiple messages.
+  - They share a humorous interaction about music and food, ending with an exchange of love and assistance.
+- **August 23, 2021**:
+  - Dustin shares more attachments.
+- **August 23, 2021**:
+  - Dustin expresses frustration with his job.
+  - Tawnie offers to make Dustin's day better by getting him Redbull and cigarettes.
+  - Dustin appreciates Tawnie's gesture and calls her the best.
+  - Dustin shares about his friend Brian Mcisaac going viral.
+- **August 24, 2021**:
+  - Tawnie checks on Dustin's well-being playfully.
+  - They exchange humorous "dead" messages.
+- **August 25-26, 2021**:
+  - Affectionate exchanges of love between Tawnie and Dustin.
+- **August 26, 2021**:
+  - Discussion about getting a gift for someone's birthday.
+  - Tawnie expresses annoyance towards Andy's behavior.
+- **August 27, 2021**:
+  - Tawnie apologizes for being irritable.
+  - Dustin reassures Tawnie and attributes the mood to external factors.
+  - Tawnie appreciates Dustin's understanding.
+  - Tawnie compliments Dustin's talent.
+- **August 28, 2021**:
+  - Casual conversation between Tawnie and Dustin about their activities.
+  - Tawnie praises Dustin's mother.
+- **August 30, 2021**:
+  - Tawnie and Dustin express missing each other and share updates on their day.
+- **August 30, 2021**:
+  - Tawnie Shelton had a challenging day but remained nonchalant.
+  - Light-hearted banter between Tawnie and Dustin about misreading a message.
+- **August 31, 2021**:
+  - Tawnie had an intense day but remained positive.
+  - Dustin inquired about Tawnie's plans after work.
+- **September 1, 2021**:
+  - Dustin faced car troubles and sought help from Tawnie.
+  - Concerns raised about potential car tampering, leading to intense emotions from Dustin.
+- **September 2, 2021**:
+  - Tawnie reassured Dustin and offered support during his difficult mood.
+  - Discussion about attending Everett's game.
+  - Tawnie and Dustin shared moments during the game.
+- **September 3, 2021**:
+  - Dustin spent time at his mom's house while Tawnie planned for a delayed birthday party for Kar.
+  - Casual interactions about daily activities.
+- **September 4, 2021**:
+  - Tawnie updated Dustin on the girls while he checked in on their behavior.
+  - Dustin requested items from Tawnie while away.
+- **September 6, 2021**:
+  - Dustin expressed frustration over a situation, affecting his mood and appetite.
+  - Emotional turmoil and responsibilities discussed between Dustin and Tawnie.
+- **September 7, 2021**:
+  - Light-hearted interactions between Tawnie and Dustin, including a request for cigarettes and Red Bull.
+- **September 8, 2021**:
+  - Concerns about a sick child and a visit to the ER.
+  - Tawnie provided reassurance and information about the child's condition.
+- **2021-09-08**:
+  - Kk is heavily coughing, and it's suspected to be a lung infection.
+  - Concern about Karter potentially needing PICU due to contagion.
+- **2021-09-10**:
+  - Stevie diagnosed with pneumonia, receiving treatment.
+  - Everett sustains a minor fracture but still able to play in a game.
+- **2021-09-11**:
+  - Playful banter and miscommunication about locked doors.
+  - Frustration expressed about feeling sidelined in household responsibilities.
+- **2021-09-12**:
+  - Emotional exchange about perceived neglect and misunderstandings in the relationship.
+  - Dustin expressing feelings of being overlooked and not taking on expected responsibilities.
+- Overall, the exchanges reveal a mix of everyday interactions, concerns about health issues, playful teasing, and underlying tensions in the relationship.
+- **2021-09-12**:
+  - Tawnie expresses feeling unappreciated and unwanted by Dustin.
+  - Dustin reassures Tawnie of his love for her.
+- **2021-09-13**:
+  - Tawnie informs Dustin about having pneumonia.
+  - Dustin offers to get soup for Tawnie.
+- **2021-09-15**:
+  - Dustin apologizes for his behavior and expresses love for Tawnie.
+- **2021-09-17**:
+  - Tawnie and Dustin exchange tired but loving messages.
+- **2021-09-18**:
+  - Tawnie updates Dustin about a festival they attended.
+- **2021-09-19**:
+  - Tawnie and Dustin talk about late-night food plans.
+- **2021-09-20**:
+  - Tawnie suggests dinner plans to Dustin.
+This summary highlights emotional exchanges, health updates, expressions of love, and casual conversations between Tawnie and Dustin over a period of days.
+- 2021-09-20T19:17:00: Tawnie Shelton finds a baby face adorable.
+- 2021-09-20T19:27:00: Tawnie Shelton notices a resemblance to Rayna in someone.
+- 2021-09-21: Dustin Smith quits his job due to being moved back to the line without prior notice and a pay cut.
+- 2021-09-21: Tawnie supports Dustin after he quits and encourages him to find a better opportunity.
+- 2021-09-21: Dustin considers a job offer with a $10,000 sign-on bonus.
+- 2021-09-23: Dustin prepares for an interview in Jackson and receives support from Tawnie.
+- 2021-09-28: Dustin apologizes for using Tawnie's card to pay a bill and informs her he got the job with a weld test ahead.
+- 2021-09-30: Dustin plans to cook for the family and shares endearing moments with Tawnie.
+- 2021-10-04: Tensions arise between Tawnie and Dustin concerning coparenting and personal feelings towards others.
+- **10-04**:
+  - Dustin expresses confusion over the recipient's feelings, aiming to avoid conflict.
+- **10-19**:
+  - Tawnie informs Dustin about Lydia's situation and plans to visit her.
+- **10-21**:
+  - Loving messages exchanged between Dustin and Tawnie.
+- **10-26**:
+  - Dustin shares attachment links.
+- **10-27**:
+  - Dustin faces a family loss and communication is limited to FaceTime.
+- **10-29**:
+  - Dustin gets a new phone number and shares it.
+- **11-01**:
+  - Dustin experiences health issues, goes to the hospital, and receives limited care.
+- **11-01 (cont.)**:
+  - Tawnie expresses concern and frustration over medical procedures.
+- **11-01 (cont.)**:
+  - Dustin is discharged from the hospital, sharing concerning medical details with Tawnie.
+- **2021-11-02:**
+  - Dustin expresses love and missing Tawnie.
+  - Tawnie reciprocates the feelings and asks about Dustin's well-being.
+- **2021-11-08:**
+  - Dustin sends loving messages to Tawnie.
+- **2021-11-10:**
+  - Dustin shares family drama with Tawnie.
+  - A heated argument ensues, leading to Dustin abruptly ending the relationship over text.
+  - Tawnie expresses confusion and hurt over the breakup.
+  - Both mention past relationship issues and toxic behavior.
+  - Despite anger, both express love but struggle with communication.
+- **2021-11-12:**
+  - Tawnie and Dustin have a casual conversation about plans and responsibilities.
+- **2021-01-11**:
+  - Dustin and Tawnie discuss daily activities and express appreciation for each other.
+  - Dustin faces social media suspension due to a dispute with liberals.
+  - Tawnie supports Dustin during a frustrating day at work.
+- **2021-01-12**:
+  - Tawnie prepares for an interview and grocery shopping while Dustin works on plumbing.
+  - Dustin falls sick after cleaning steel and Tawnie offers support.
+- **2021-01-13**:
+  - Both express missing each other but Dustin feels unwell and has a conflict with Stevie.
+  - Dustin vents about the situation with Stevie and expresses frustration.
+  - Tawnie shows concern for Dustin's health and offers help and understanding.
+- **2021-11-15**:
+  - Tawnie Shelton had a faint positive test but then cleared as negative.
+  - Tawnie suspected having COVID due to mild viral load.
+- **2021-11-15**:
+  - Dustin Smith shared interview success with Tawnie, who congratulated him.
+- **2021-11-16**:
+  - Tawnie expressed exhaustion to Dustin.
+- **2021-11-17**:
+  - Dustin checked on Tawnie's health and FaceTime interview setup.
+- **2021-11-25**:
+  - Dustin apologized for miscommunication on meeting location.
+- **2021-11-29**:
+  - Tawnie expressed feelings of rage and numbness to Dustin.
+- **2021-12-01**:
+  - Discussion about paused mandate and shared support.
+- **2021-12-04**:
+  - Tawnie shared difficulties with guests in the house.
+- **2021-12-06**:
+  - Tawnie and Dustin bantered about the weather and ran errands for each other.
+- **2021-12-08**:
+  - Tawnie shared shopping details with Dustin.
+(Note: The summary is based on key interactions, emotions, and important notes from the provided content.)
+- **2021-12-09**:
+  - Dustin accuses Tawnie of taking his lighter, light-hearted banter ensues.
+  - Tawnie expresses concern about someone knocking on the door, Dustin reassures her.
+- **2021-12-10**:
+  - Dustin watches over Karter, shares updates with Tawnie.
+  - Tawnie requests cigarettes but later finds hers at home.
+  - Dustin and Tawnie share affectionate messages.
+- **2021-12-14**:
+  - Dustin shares file locations and passwords with Tawnie.
+  - Tawnie requests wipes, and loving exchanges occur between them.
+- **2021-12-17**:
+  - Tawnie lists meal preferences for ordering.
+- **2021-12-18**:
+  - Dustin seeks permission to lend money to Richard, Tawnie approves.
+  - Tawnie offers Subway; Dustin requests a specific order.
+- **2021-12-20**:
+  - Tawnie asks Dustin to keep kids out of their room due to Christmas gifts.
+- **2021-12-21**:
+  - Karter causes chaos with cologne, leading to humorous reactions.
+  - Plans for enjoying Christmas lights and shopping are discussed.
+- **2021-12-23**:
+  - Dustin deals with conflicts between Konner and KK.
+  - KJs friend shows up while KJ is asleep, and Steven's lost phone is found.
+- **2021-12-23:**
+  - KK and Konner had a heated argument, leading to physical altercation.
+  - Tawnie expressed frustration over the situation with KK and Konner.
+  - Dustin tried to handle the situation but felt challenged.
+  - KK was made to stay upstairs after the incident.
+- **2021-12-25:**
+  - The children had a chaotic Christmas morning with presents and cleaning up.
+  - Tawnie and Dustin shared a sweet moment about their children and relationship.
+  - Dustin expressed love for his new hat and a heartwarming interaction with Karter.
+  - Tawnie was asked to buy a Red Bull for Dustin on her way home.
+- **2021-01-13**:
+  - Dustin expresses relief at not being like someone else.
+  - Tawnie advises Dustin on dealing with child support issues.
+  - Dustin discusses concerns about potential conflicts if he keeps the kids overnight.
+- **2021-01-14**:
+  - Dustin and Tawnie exchange messages about their day and plans to meet.
+- **2021-01-15**:
+  - Dustin feels sick, and Tawnie offers support and plans to visit.
+- **2021-01-16**:
+  - Dustin feels better and plans to see Tawnie.
+- **2021-01-17**:
+  - Dustin informs Tawnie he fell asleep and plans to visit.
+- **2021-01-18**:
+  - Dustin and Tawnie exchange morning greetings and discuss their day.
+Note: The conversation includes discussions on personal health, relationship plans, and interactions related to child support matters.
+- **2021-01-18:**
+  - Dustin Smith expresses desire to visit Tawnie Shelton.
+  - Tawnie Shelton warmly welcomes Dustin and expresses concern for his safety.
+  - Dustin apologizes for causing worry due to medication exhaustion.
+- **2021-01-19:**
+  - Tawnie worried about Dustin's well-being and appreciates his communication.
+  - Dustin acknowledges Tawnie's concerns and promises to be more attentive.
+- **2021-01-20:**
+  - Dustin and Tawnie discuss difficult interactions with a third party.
+  - Tensions rise regarding co-parenting issues, leading to frustration and venting.
+- **2021-01-21:**
+  - Financial struggles are discussed, leading to shared experiences and support.
+  - Affection and encouragement are exchanged, providing emotional reassurance.
+- Interaction mainly revolves around maintaining communication, expressing care, dealing with external conflicts, and offering emotional support.
+- **2021-01-21**:
+  - Dustin Smith jokingly mentions smoking Newports, leading to a humorous exchange with Tawnie Shelton.
+  - Dustin shares YouTube links, expresses frustration at work, and plans to have dinner with Tawnie.
+- **2021-01-22**:
+  - Dustin and Tawnie exchange morning greetings and discuss dinner plans.
+  - Dustin contemplates KFC, and Tawnie offers her debit card.
+- **2021-01-25**:
+  - Daily exchanges of affection and updates on their day occur between Dustin and Tawnie.
+  - Tawnie goes to Detroit with Haley for shopping, leading to a delayed return home.
+  - A conversation about voting and family dynamics takes place.
+- **2021-01-26**:
+  - Tawnie deals with challenges related to her son, KJ, getting kicked out of school.
+  - Dustin empathizes and shares his own troubled past, offering support to Tawnie.
+- 2021-01-26:
+  - Tawnie shares about her struggles with her son's anger and behavior.
+  - Dustin acknowledges the challenges of parenting and the impact of lack of sleep on children's behavior.
+  - Tawnie and Dustin discuss the effects of technology on kids and parenting strategies.
+- 2021-01-26 (evening):
+  - Dustin and Tawnie exchange messages about their plans, grocery shopping, and road conditions.
+- 2021-01-26 (night):
+  - Tawnie invites Dustin over for the night, and they discuss plans for dinner and Tawnie's upcoming birthday.
+- 2021-01-27 (morning):
+  - Dustin and Tawnie exchange morning greetings and express missing each other.
+- 2021-01-27 (afternoon):
+  - Tawnie and Dustin discuss co-parenting challenges, visitation issues, and plans for Kks birthday.
+- 2021-01-27 (evening):
+  - Dustin updates Tawnie about spending time with the girls and Tawnie prepares for Kks birthday treats.

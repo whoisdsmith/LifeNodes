@@ -1,0 +1,668 @@
+# 2014 Facebook Summary
+
+- **2014-01-01**
+  - Son representing the band; positive emotions and pride.
+- **2014-01-13**
+  - Move into a new address at 1052 S. Kalamazoo, Marshall MI 49068.
+- **2014-03-16**
+  - Quality time building with father; bonding experience.
+- **2014-03-30**
+  - Excitement for potential baby arrival; mention of family and good things in life.
+- **2014-04-02**
+  - Hospital update on wife's labor; preparing for baby's arrival.
+- **2014-04-15**
+  - Daughter's birth, complications during labor, and the family's gratitude.
+- **2014-04-18**
+  - Happy moments with newborn daughter, family interactions, and reflections on life and relationships.
+- **2014-08-23**:
+  - Interaction about loading boxes at a location in Jackson.
+- **2014-08-24**:
+  - Moving into a new place with help from friends and family.
+- **2014-08-25**:
+  - Various conversations about moving, getting gas for a U-Haul, and setting up new home.
+- **2014-08-26**:
+  - Birthday celebrations and plans.
+- **2014-08-27**:
+  - Emotional conversations about love, insecurities, and misunderstandings.
+- **2014-08-27**:
+  - Appointment paperwork causing confusion.
+  - Struggles with handling tasks due to baby.
+  - Plans for dinner and errands discussed.
+  - Frustration over work opportunities.
+- **2014-08-28**:
+  - Discusses future plans for financial assistance.
+  - Applying for SSI for child's needs.
+  - Expresses the desire for support and involvement.
+- **2014-08-29**:
+  - A mix of personal messages and inquiries.
+  - Affectionate exchanges and dinner invitations.
+  - Frustrations with work and technology.
+- **2014-08-30**:
+  - Reflective posts on social media and personal experiences.
+  - Sentiments on happiness and struggles.
+  - Expresses love and gratitude in personal relationships.
+- **2014-08-30**:
+  - Individual expresses frustration with work and feeling overwhelmed.
+  - Conversation about prescription pick-up and stress management.
+- **2014-08-31**:
+  - Mention of a movie reminding individual of a loved one.
+- **2014-09-02**:
+  - Discussed taking a pregnancy test.
+  - Results of the pregnancy test.
+- Various dates:
+  - Moving to a new house and adjusting to a new routine.
+  - Expressing love and excitement for upcoming wedding.
+  - Technical achievement of installing Mac OS X and Windows 8.1 on a PC.
+  - Dealing with personal struggles related to mental health and motivation.
+- Some light-hearted interactions and humor within conversations.
+- **2014-09-03:**
+  - Received the house from a guy who left, mentioned Camryn and Dustin's dads.
+  - Emotions: Feeling overwhelmed with 16 people around.
+  - Interaction: Conversations about daily activities and relationships.
+  - Important note: Discussion about saving money and marriage proposals.
+- **2014-09-04:**
+  - Reflecting on past struggles and personal challenges.
+  - Emotions: Feeling regret and sadness, especially regarding a son's birthday.
+  - Interaction: Offers to buy groceries and food items.
+  - Important note: Intimate interactions and expressions of love and appreciation.
+- **2014-09-05:**
+  - Mention of a person named Ivanna and interest in intimacy.
+  - Interaction: Urgent calls and desires for physical intimacy.
+- **2014-09-06:**
+  - Reminder to retrieve a card from a car.
+  - Interaction: Conversational messages indicating a desire for assistance.
+- **2014-09-06**:
+  - Rushed start to the day, trying to reach out to Katie and heading to work.
+  - Quick stop at McDonald's before work.
+  - Arrives at work and queries about Lydia Smith's mealtime.
+- **2014-09-07**:
+  - Conversations about work schedules and plans with Eddie.
+  - Routine check-ins and coordination for the day's activities.
+- **2014-09-08**:
+  - Emotional exchange regarding relationship concerns and future plans.
+  - Updates about daily activities and challenges at home.
+  - Playful and intimate conversations amidst daily routines.
+- **2014-09-09**:
+  - Work-related updates and preparations to head to work.
+- **2014-09-10**:
+  - Expressions of love and support.
+  - Discussions about potential wedding plans and ideas for Lydia's room.
+  - Excitement and anticipation about planning a wedding together.
+- **2014-09-11**:
+  - Confirmation and preparation for an important event on the 15th.
+  - Work-related updates and breaks during the day.
+- **2014-09-11**
+  - Getting every Wednesday off starting next month
+  - Emotions of excitement and anticipation for upcoming schedule change
+- **2014-09-11**
+  - Discussion about coming back to work to earn extra money
+  - Financial concerns and decision-making
+- **2014-09-11**
+  - Compliment about being handsome
+  - Positive emotions and admiration expressed
+- **2014-09-11**
+  - Thoughts on announcing something on Facebook
+  - Contemplation about sharing personal news
+- **2014-09-11**
+  - Concerns about potential negativity from someone named Rebecca Rodriguez
+  - Wedding planning discussions and financial considerations
+- **2014-09-11**
+  - Expressing intention to pay someone off quickly
+  - Financial responsibilities and planning
+- **2014-09-12**
+  - Excitement and celebration after a successful meeting
+  - Positive mood and enthusiasm
+- **2014-09-12**
+  - Conversation about wedding planning and inviting friends
+  - Involving others in wedding preparations
+- **2014-09-12**
+  - Task reminder about getting money from the bank
+  - Financial obligations and household responsibilities
+- **2014-09-12**
+  - Mention of having a meeting
+  - Work-related updates
+- **2014-09-12**
+  - Completion of meetings and leaving
+  - Work-related updates and schedule
+- **2014-09-12**
+  - Reminder about cleaning the car
+  - Personal responsibilities and tasks
+- **2014-09-12**
+  - Humorous comment about cleaning
+  - Light-hearted interaction
+- **2014-09-12**
+  - Mention of needing water for someone named Lydia
+  - Household needs and responsibilities
+- **2014-09-12**
+  - Discussion about informing someone named Everett Smith about getting married
+  - Communication about personal news
+- **2014-09-12**
+  - Discussion about requesting time off
+  - Work-related communication and planning
+- **2014-09-12**
+  - Desire for a tattoo to be visible
+  - Personal preferences and appearance
+- **2014-09-12**
+  - Decision not to get something
+  - Personal choices and decisions
+- **2014-09-12**
+  - Positive response to a cool idea
+  - Engaging in wedding planning discussions
+- **2014-09-13**
+  - Plans to visit someone named Tara
+  - Social plans and engagements
+- **2014-09-13**
+  - Affectionate message about lunchtime
+  - Personal interactions and communication
+- **2014-09-13**
+  - Humorous exchange about eyes and food
+  - Light-hearted conversation
+- **2014-09-13**
+  - Playful banter and joking around
+  - Light-hearted interactions and humor
+- **2014-09-13**
+  - Mention of finding a flash drive
+  - Personal tasks and organization
+- **2014-09-13**
+  - Compliment about someone being perfect
+  - Expressions of admiration and love
+- **2014-09-13**
+  - Positive emoticon and message
+  - Expressing happiness and positivity
+- **2014-09-13**
+  - Interaction about deleting content
+  - Light-hearted communication
+- **2014-09-13**
+  - Playful conversation about flash drives and content
+  - Light-hearted exchanges
+- **2014-09-13**
+  - Scheduling plans and communication
+  - Planning and coordination
+- **2014-09-13**
+  - Interaction about a charger
+  - Personal requests and communication
+- **2014-09-13**
+  - Brief interaction indicating busyness
+  - Personal communication
+- **2014-09-13**
+  - Expression of anxiety and need for food
+  - Personal emotions and needs
+- **2014-09-13**
+  - Update about charger situation
+  - Personal communication and updates
+- **2014-09-13**
+  - Mention of finding cool ideas and feeling unwell
+  - Personal tasks and health status
+- **2014-09-13**
+  - Comment about rings and plans
+  - Wedding-related discussions and planning
+- **2014-09-13**
+  - Update about being out and not rushing
+  - Personal updates and communication
+- **2014-09-13**
+  - Plans to meet someone shortly
+  - Social plans and engagements
+- **2014-09-13**
+  - Interaction about location
+  - Communication and coordination
+- **2014-09-13**
+  - Concern about not responding to pictures
+  - Communication and social interactions
+- **2014-09-13**
+  - Request for opinion on something
+  - Seeking input and advice
+- **2014-09-13**
+  - Mention of not starting arguments
+  - Emotions and communication style
+- **2014-09-13**
+  - Consideration of canceling an appointment
+  - Decision-making and personal plans
+- **2014-09-13**
+  - Frustration and emotional outburst
+  - Relationship conflicts and personal feelings
+- **2014-09-13**
+  - Expressing disappointment and feeling like an idiot
+  - Emotional responses and relationship concerns
+- **2014-09-13**
+  - Mention of heartache and feeling let down
+  - Emotional distress and relationship issues
+- **2014-09-13**
+  - Defensiveness and blaming the other person
+  - Communication in a tense situation
+- **2014-09-13**
+  - Expressing expectations and disappointment
+  - Relationship dynamics and personal needs
+- **2014-09-13**
+  - Desire for quality time and communication
+  - Relationship expectations and needs
+- **2014-09-13**
+  - Discussion about priorities and time together
+  - Relationship dynamics and communication
+- **2014-09-13**
+  - Appeal for attention and quality time
+  - Relationship needs and expectations
+- **2014-09-13**
+  - Request for focus on the relationship
+  - Communication and emotional needs
+- **2014-09-13**
+  - Expression of feeling unappreciated and unhappy
+  - Emotional distress and relationship concerns
+- **2014-09-13**
+  - Reflecting on relationship challenges
+  - Emotional expression and self-reflection
+- **2014-09-13**
+  - Comparison to others and frustration
+  - Emotional expression and relationship comparisons
+- **2014-09-13**
+  - Desire for balance and understanding
+  - Emotional needs and expectations in a relationship
+- **2014-09-13**
+  - Expression of frustration and expectations
+  - Communication and emotional needs
+- **2014-09-13**
+  - Desire for quality time and understanding
+  - Emotional expression and relationship needs
+- **2014-09-13**:
+  - Emotional exchange on Facebook about feeling unappreciated and hurt in the relationship.
+  - Frustration expressed about not being like friends' spouses.
+  - Discussion about wanting to talk and the feeling of being at the bottom of priorities.
+- **2014-09-14**:
+  - Conversations about upcoming appointments and plans for dress shopping.
+  - Playful and suggestive messages exchanged between partners.
+  - Excitement and nervousness expressed about dress shopping.
+- **2014-09-15**:
+  - Yearning for intimacy and escape from work stress.
+  - Desire for a moment to be together intimately.
+  - Plans for a nap and being naked together shared.
+- **2014-09-16**:
+  - Affirmation of excitement about the upcoming marriage.
+  - Expressions of love and anticipation for the future.
+  - Playful and flirtatious messages exchanged between partners.
+- **2014-09-17**:
+  - Expressions of love and support in various messages throughout the day.
+  - Frustration and impatience during a lengthy registration process.
+  - Concerns about time, hunger, and delays.
+  - Tensions and discussions about canceling a wedding.
+  - Emotional exchanges regarding marriage, importance, and care for each other.
+  - Hurt feelings, misunderstandings, and regretful actions.
+  - Anxiety, chest pain, and relationship uncertainties.
+- **2014-09-18**:
+  - Planning for meals and interactions regarding being sick.
+  - Arrangements for transportation and household matters.
+  - Discussions about wedding planning and decorations.
+- **2014-09-19**:
+  - Conversations about wedding venues, guest lists, and alcohol arrangements.
+  - Inquiries about propane estimates and errands to run.
+  - Emotional exchanges related to self-esteem and relationship concerns.
+- 2014-09-19: Emotions of frustration and dislike expressed towards mandatory work on Saturdays and a dislike for a person named Rick.
+- 2014-09-19: Interactions about meeting schedules and the need to get cash.
+- 2014-09-19: Mention of being sleepy and experiencing period cramps.
+- 2014-09-20: Description of being busy with work, school, and wedding preparations, expressing excitement for the future chapter of life.
+- 2014-09-20: Problems with flies and fleas causing distress.
+- 2014-09-21: Expressions of being out of the social loop and plans to reconnect with friends.
+- 2014-09-21: Conversations about hunger and tiredness.
+- 2014-09-21: Expressing love and appreciation towards each other.
+- 2014-09-22: Discussion about a stressful day and plans to meet.
+- 2014-09-23: Concerns about a child's health, work-related frustrations, and feeling unimportant in a relationship.
+- **2014-09-23**
+  - Apologies and expressions of concern about feeling unwell and being cranky.
+  - Planning for someone to bring the speaker home due to feeling unwell.
+- **2014-09-24**
+  - Conversations about getting coffee, feeling sick, and work frustrations.
+  - Checking in on each other's well-being and plans for the day.
+- **2014-09-25**
+  - Intense emotional exchanges regarding trust, jealousy, and relationship struggles.
+  - Discussions about lying, insecurities, and concerns about the future together.
+  - Expressions of frustration, doubt, and considerations of breaking up.
+  - Mention of wedding plans being reconsidered and feelings of hurt and betrayal.
+- **2014-04-18**:
+  - Stevie Linnabary expresses gratitude to Rebecca Rodriguez and Everett Smith for monthly shirt decals.
+- **2014-04-19**:
+  - Stevie Linnabary misses Everett Smith on Easter.
+- **2014-04-20**:
+  - Family enjoys morning cuddles and celebrates Easter with Lydia.
+- **2014-04-20**:
+  - Family receives Easter gifts and visits Jensen's grave to honor him.
+- **2014-05-01**:
+  - Excitement over receiving a bonus check and spending time with family.
+- **2014-05-05**:
+  - User expresses anxiety and panic attacks.
+- **2014-05-14**:
+  - User vents frustration with people and doctor visits.
+- **2014-05-20**:
+  - User plans to prioritize time with Everett Smith over work during the summer.
+- **2014-05-23**:
+  - Everett Smith arrives and enjoys ice cream with family.
+- **2014-09-25**:
+  - Expresses hope for love and marriage.
+  - Frustration over a situation with a deposit.
+  - Describes a challenging parenting moment.
+- **2014-09-26**:
+  - Shares concerns about driving safety.
+  - Mentions watching TV shows.
+  - Expresses love and playful banter with significant other.
+- **2014-09-27**:
+  - Emotional messages about self-doubt and love.
+  - Apologies and regrets for past actions.
+  - Expresses love, admiration, and gratitude despite personal struggles.
+  - Reflects on the impact on partner's life and expresses desire for reconciliation.
+- 2014-09-29:
+  - Expressions of love and acceptance in a relationship.
+  - Light-hearted teasing and joking interactions.
+  - Playful banter and endearing terms used.
+- 2014-09-29:
+  - Misplaced feelings of harshness and subsequent reassurance.
+  - Moments of uncertainty and search for missing items.
+  - Expressions of longing and missing someone.
+- 2014-10-03:
+  - Escalation of emotions with feelings of frustration.
+  - Mention of wedding stress and relationship strain.
+  - Apology and reflection on personal growth and change.
+- 2014-10-04:
+  - Anticipation of a visit from someone named Everett.
+  - Discussion about work and venting about frustrations.
+  - Financial concerns and reflections on the relationship's state.
+- **2014-10-04**:
+  - Discussion about someone not paying their lawyer and guilt-tripping for money.
+  - Excitement about a pregnancy and plans for a reception.
+  - Concern about someone being pregnant and wanting to take them out.
+- **2014-10-05**:
+  - Request for orange soda and taking care of a baby.
+  - Discussion about plans and picking someone up.
+  - Conversations about various topics and interactions regarding a pacifier.
+- **2014-10-06**:
+  - Anxious messages about leaving and job prospects.
+  - Conversations about a kitten and affectionate messages exchanged.
+  - Expressing disappointment and concerns about lying.
+- **2014-10-07**:
+  - Frustration over work and communication issues.
+  - Consideration of renting a house and financial concerns.
+  - Personal messages and discussions about various topics.
+- **2014-10-08**:
+  - Apology and appreciation for understanding.
+  - Mention of informing someone about something and positive wishes.
+- **2014-10-08**:
+  - Excitement over passing an appointment.
+  - Expressions of love and commitment.
+  - Frustration over communication issues.
+  - Concerns about legal matters and child support.
+  - Emotional turmoil and seeking support from a partner.
+- **2014-10-09**:
+  - Apologies and reflections on personal growth.
+  - Discussion about therapy and managing emotions.
+  - Playful interactions and misunderstandings.
+  - Tension and inappropriate threats in a conversation.
+  - Privacy concerns regarding online activity.
+- **2014-10-09T22:30:39**
+  - A person questions why someone is searching for girls on Facebook, pointing out the odd behavior of searching for unknown girls.
+- **2014-10-09T22:31:44**
+  - Mention of Darby and other girls in a conversation, suggesting multiple girls are being discussed.
+- **2014-10-10**
+  - Various posts show a mix of emotions:
+    - Frustration and tiredness expressed by individuals.
+    - Concerns about relationship issues and fidelity.
+    - Desires for a happy life but feeling stressed and irritable.
+    - Questioning the future of the relationship.
+- **2014-10-11**
+  - Expressions of love and affection between individuals.
+  - Discussions about family activities like trick-or-treating and interactions with children.
+- **2014-10-12**
+  - A mixture of playful and intimate messages exchanged between individuals.
+- **2014-10-13**
+  - Conversations range from intimate to mundane topics like shopping and family activities.
+  - Expressions of love and affection continue alongside day-to-day interactions.
+- **2014-10-14**
+  - Mention of renting a house and negative interactions with others, leading to a desire for medication due to stress.
+  - Complaints about people talking negatively behind one's back, expressing a need for medication to cope with stress.
+- **2014-10-14**:
+  - Expresses frustration about someone being two-faced and playing BFF with Heather.
+  - Feeling overwhelmed with responsibilities and lack of time.
+  - Offers support and love to partner, planning to handle financial matters.
+  - Emphasizes the importance of happiness and gratitude.
+  - Anxious to leave a meeting.
+- **2014-10-15**:
+  - Discusses family and relationship issues.
+  - Shows affection and concern for partner's well-being.
+  - Plans for the day and shares personal struggles.
+- **2014-10-16**:
+  - Humorous interaction about misplaced items.
+- **2014-10-17**:
+  - Conversations about job opportunities and interviews.
+  - Humorous remark about passing pregnancy tests.
+  - Coordination regarding schedules and showering arrangements.
+- **2014-10-18**
+  - User expresses frustration with their current situation.
+  - User contemplates a change in work shift.
+  - User appreciates their partner for being a good parent and spouse.
+  - User mentions missing receiving gifts on Sweetest Day.
+  - User engages in a playful yet inappropriate conversation with their partner.
+  - User expresses sadness over lack of shared activities.
+  - User apologizes for not being fun and feeling depressed.
+- **2014-10-19**
+  - User apologizes for being cranky.
+  - User discusses potential work shift changes with their partner.
+  - User explores job opportunities at a credit union.
+  - User shares feelings of crankiness and mentions Ebola.
+  - User discusses work shift preferences and interactions with management.
+- **2014-10-20**
+  - User expresses love for their partner.
+  - User shows concern for partner feeling unwell.
+  - User apologizes for behavior and expresses self-doubt.
+  - User questions the future of their relationship.
+  - User mentions ongoing personal struggles and regrets.
+  - User seeks reassurance about their relationship status.
+- **2014-10-21**
+  - User discusses work-related issues and stresses.
+  - User expresses frustrations with a fast-food order.
+  - User engages in casual conversation with partner.
+  - User mentions being busy and expresses missing their partner.
+- **2014-10-22**
+  - User discusses potential activities and asks partner's opinion.
+  - User updates partner on their schedule and expresses love.
+  - User shares a photo of a child.
+  - User expresses feeling sick and seeks partner's support.
+  - User discusses communication with a mutual acquaintance.
+- **2014-10-22**:
+  - Intense argument between individuals named **Rebecca Rodriguez** and the poster about defensiveness and questioning behavior.
+- **2014-10-22**:
+  - Continued heated exchange with accusations of being defensive and annoying.
+- **2014-10-22**:
+  - Apology for causing distress, mentioning a rough day in therapy.
+- **2014-10-23**:
+  - Frantic messages about picking up a sick child named **Everett Smith** from school.
+- **2014-10-23**:
+  - Expressing frustration about delays in response and urgency to pick up the child.
+- **2014-10-23**:
+  - Concern about the child's well-being and temperature.
+- **2014-10-23**:
+  - Emotional reflection on love and family pictures.
+- **2014-10-23**:
+  - Mention of making late-night plans with **Rebecca Rodriguez**, causing tension.
+- **2014-10-23**:
+  - Request for medication for **Lydia Smith** and accusations of being psycho.
+- **2014-10-24**:
+  - Inquiry about contacting the school regarding a sick child.
+- **2014-10-25**:
+  - Humorous comment about morning moods.
+- **2014-10-25**:
+  - **Everett Smith** feeling scared in the house.
+- **2014-10-25**:
+  - Light-hearted exchange about snacks and shopping.
+- **2014-10-25**:
+  - Reference to a shared page and self-doubt about parenting.
+- **2014-10-25**:
+  - Gratitude for child-watching assistance.
+- **2014-10-26**:
+  - Question about a Halloween costume for **Everett Smith**.
+- **2014-10-26**:
+  - Expressions of love and need for coffee.
+- **2014-10-26**:
+  - Discussion about relationship insecurities and reassurances.
+- **2014-10-26**:
+  - Coordination of errands and plans.
+- **2014-10-27**:
+  - Intense argument about jealousy, trust, and relationship issues.
+- **2014-10-27**:
+  - Emotional turmoil and relationship issues escalate.
+  - **Main points**:
+    - Partner expressing dissatisfaction and mental abuse.
+    - Concerns about living arrangements and accusations of jealousy.
+- **2014-11-03**:
+  - Tension and insecurity in the relationship.
+  - **Main points**:
+    - Partner questioning trust and expressing fear of losing love.
+    - Password issue causing distress and apology for negative thoughts.
+- **2014-11-15**:
+  - Financial struggles and moving to a new location.
+  - **Main points**:
+    - Extreme poverty leading to the need to take light bulbs.
+    - Address change to 8820 Verona Road, Battle Creek, MI.
+- **2014-11-30**:
+  - Concerns about medical expenses and frustrations.
+  - **Main points**:
+    - High cost for Adderall prescription testing.
+    - Venting about financial burden and unpleasant day.
+- **2014-12-12**:
+  - Coordinating responsibilities regarding child care.
+  - **Main points**:
+    - Requesting assistance in picking up child due to school commitments.
+- **2014-12-13**:
+  - Clarification on child pickup arrangements.
+  - **Main points**:
+    - Confirmation of who is picking up the child.
+This summary captures the emotional turmoil, financial struggles, relationship issues, and practical arrangements documented in the provided content.
+- **2014-12-28T12:00:00**
+  - Discussion about picking up Everett Smith for wrestling event.
+- **2014-12-30T00:00:00**
+  - Reflection on turning 30 and career aspirations.
+  - Interaction about favorite TV show "Sons of Anarchy."
+  - Mention of making fuel injection parts for GM on weekends.
+  - Gratitude towards Stevie Linnabary.
+  - Discussion about software tools for iPhone data.
+  - Amazement at Minecraft sale to Microsoft.
+  - Challenges with OS installation on separate hard drives.
+  - Amazement at Minecraft sale to Microsoft for $2.5 billion.
+  - Seeking guidance for Yosemite install.
+  - Shock and disbelief at Minecraft's sale price.
+- **2014-05-24**:
+  - Becca informed about Everett Smith wanting to return.
+  - Sanding the coffee table, followed by ice cream.
+  - Cam's croup led to an emergency room visit at 2:30 am.
+- **2014-05-25**:
+  - More sanding with Everett Smith, then a walk with Stevie around Marshall.
+  - Pictures taken with Lydia and Evelynn.
+  - Evening spent watching Xmen.
+- **2014-05-26**:
+  - Attended the Tekonsha parade with Everett Smith, who got wild later.
+  - Tension arose, and Stevie forgot to take her medication.
+  - Evening ended with grilling and watching Xmen.
+- **2014-05-27**:
+  - Shared frustrations about hot home temperatures and internet trolls.
+- **2014-05-30**:
+  - Expressed anger and need for therapy.
+  - Family members falling ill, except Everett Smith.
+  - Humorous golf club incident with Everett.
+- **2014-05-31**:
+  - Stevie went back to work, leaving the narrator with the kids.
+  - Managed the day alone successfully.
+- **2014-06-01**:
+  - Emotional reflections on father-son movies and personal growth.
+- **2014-06-06**:
+  - Stressful period with bad news and health concerns.
+  - Shared emotional struggles and desire for a better life for Everett Smith.
+- **2014-06-07**:
+  - Stressful times, trying to figure things out, feeling like a failure.
+  - Son expressing love and support, wants to be with the family for the summer.
+- **2014-06-12**:
+  - Excitement about meeting the upcoming baby girl.
+- **2014-06-15**:
+  - Reflecting on overcoming depression with the support of family and music.
+  - Family moments with children, humorous anecdotes.
+- **2014-06-18**:
+  - Violent outburst, breaking a door due to anger towards partner's discipline of son.
+- **2014-06-25**:
+  - Reflecting on past incidents, feeling remorse, striving for improvement.
+- **2014-06-26**:
+  - Celebrating relationship milestone with Stevie Linnabary.
+  - Remembering a loved one on their birthday.
+- **2014-07-01**:
+  - Tornado warning experience.
+- **2014-07-04**:
+  - Planning to watch a movie with family for the 4th of July celebrations.
+- **2014-07-13T12:12:24**
+  - Daughter insists on listening/watching @amityaffliction to sleep.
+- **2014-07-18T00:00:00**
+  - Conversation with Everett about finding a video on YouTube.
+- **2014-07-22T00:00:00**
+  - Everett asks for a charger.
+- **2014-07-23T00:00:00**
+  - Everett expresses fear of thundering noise.
+- **2014-07-26T00:00:00**
+  - Everett reacts with "Omg."
+- **2014-07-26T12:21:11**
+  - Reflects on spending time with Everett on his 9th birthday.
+- **2014-08-01T04:00:00**
+  - Expresses indifference to social media complaints.
+- **2014-08-02T12:18:35**
+  - Quotes about finding happiness despite challenges.
+- **2014-08-08T12:00:00**
+  - $100 sent for lessons for Everett.
+- **2014-08-13T06:59:48**
+  - Expresses love.
+- **2014-08-13T07:01:35**
+  - Concerns about job loss and relationship.
+- **2014-08-13T09:39:28**
+  - Expresses love.
+- **2014-08-13T10:34:57**
+  - Spending time with Lydia and Kennady.
+- **2014-08-13T12:35:31**
+  - Shock and sadness about a friend's loss.
+- **2014-08-13T16:12:54**
+  - Dealing with identity guard on the phone.
+- **2014-08-13T16:26:47:** Eddie expected home at 4:30.
+- **2014-08-14T06:37:37:** Positive interaction, compliment exchanged.
+- **2014-08-14T08:25:48:** Mention of a check received after a week.
+- **2014-08-14T11:41:38 to 2014-08-14T12:02:24:** Conversation about work breaks, ordering food, expressing love.
+- **2014-08-14T16:12:00 to 2014-08-14T16:30:** Intense emotional exchange about relationship struggles, suicidal ideation, work jealousy, and love.
+- **2014-08-14T19:37:33 to 2014-08-14T20:40:40:** Decisions about living arrangements, custody, and relationship issues.
+- **2014-08-14T21:10:34 to 2014-08-15T15:29:20:** Stress and frustration expressed, plans mentioned, potential breakup discussed.
+- **2014-08-15T10:59:00:** Urgent message about seeking help for mental health.
+- **2014-08-15**
+  - User jokingly asks about Ink 60 or 61.
+- **2014-08-16**
+  - Conversation about turning on the oven to reheat wings.
+  - Interaction regarding posting a picture on Facebook for humor.
+  - Expressions of love and reassurance between individuals.
+- **2014-08-17**
+  - Morning greetings and expressions of missing each other.
+  - Conversations about relationship concerns, future plans, and feelings of anxiety.
+  - Interaction about credit activation and financial discussions.
+  - Various daily life updates and interactions.
+- **2014-08-18**
+  - Affectionate messages and playful banter.
+  - Discussion about motivation and energy levels.
+- **2014-08-19**
+  - Plans for a movie outing and discussions about work schedules.
+  - Affectionate reassurances and expressions of love.
+- **2014-08-19**
+  - Conversation about picking up Lydia Smith after work.
+  - Mention of a meeting and a humorous comment.
+- **2014-08-20**
+  - Anxious feelings, difficulty breathing, and suggestions to relax.
+  - Expressing love and support during a tough day.
+- **2014-08-21**
+  - Conversations about moving, child support, and frustrations.
+  - Plans to see Everett Smith more often and the need for a lawyer.
+- Various expressions of love and affection throughout the interactions.
+- **2014-08-22**:
+  - Lydia Smith is expressing love and intimacy.
+  - Lydia is dealing with work-related stress and feeling angry towards a colleague.
+  - Lydia is nervous about an interview and potentially getting fired.
+  - Lydia expresses anxiety and nervousness about job-related issues.
+  - Lydia faces disappointment about not getting a job.
+  - Lydia is dealing with relationship issues and emotional turmoil.
+- **2014-08-23**:
+  - Lydia is reflecting on past behavior due to anxiety and seeking medical help.
+  - Lydia is busy with packing and financial transactions.
+  - Lydia expresses affection and humor amidst moving to a new place.
+  - Discussion about moving furniture and interactions with acquaintances on social media.

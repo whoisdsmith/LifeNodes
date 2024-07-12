@@ -1,0 +1,142 @@
+# Kristin Ruffner_summary
+
+- **2011-09-16**
+  - Dustin Smith expresses joy that both his girls loved something.
+  - Kristin Ruffner and her daughter enjoy something together, bringing a smile to their faces.
+- **2011-08-30**
+  - Kristin Ruffner empathizes with Dustin Smith's struggles with his son moving away and expresses understanding of his situation.
+  - Dustin Smith expresses deep emotional pain and frustration at missing out on crucial time with his son and the impact it has on him.
+- **2011-08-29**
+  - Kristin Ruffner offers support and encouragement to Dustin Smith during a difficult time.
+- **2011-08-28**
+  - Kristin Ruffner corrects a music-related detail and expresses affection for a song and a band.
+  - Dustin Smith shares lyrics expressing regret and longing, reflecting on past decisions.
+- **2011-08-25**
+  - Kristin Ruffner discovers songs are about her, expresses gratitude for their friendship over the years.
+- **2011-08-21**
+  - Kristin Ruffner expresses a desire to help make things better for Dustin Smith during a tough time.
+  - Dustin Smith shares feelings of desperation and sadness due to missing his son.
+- **2011-07-10**
+  - Kristin Ruffner expresses happiness for Dustin Smith and inquires about his well-being after his son's departure.
+- **2011-06-26**
+  - Dustin Smith discusses future plans related to a new company venture with a friend.
+- **2011-06-25**
+  - Dustin Smith reflects on a dark period in his life and the impact of his struggles on those around him.
+- **2011-06-19T11:02:00**
+  - User expresses appreciation for a piece of writing and its origin.
+- **2011-06-19T02:49:00**
+  - User mentions creating a remix inspired by a Matt Damon movie and Eminem, seeking feedback on the work in progress.
+- **2011-05-29T12:21:00**
+  - User shares a YouTube link.
+- **2011-05-28T12:41:00**
+  - User inquires about the well-being of the recipient.
+- **2011-05-28T10:46:00**
+  - Discussion about going for a walk and jesting about having a baby in the future.
+- **2011-05-27T22:12:00**
+  - User suggests going for a walk and teases about having a baby together.
+- **2011-05-27T12:37:00**
+  - User shares a link to music and expresses admiration for it.
+- **2011-05-27T09:29:00**
+  - User humorously mentions needing guidance on a matter.
+- **2011-05-27T02:48:00**
+  - Light-hearted conversation about taking care of a baby.
+- **2011-05-26T23:44:00**
+  - User expresses affection for small babies.
+- **2011-05-26T12:05:00**
+  - User explains a shift in their work schedule.
+- **2011-05-26T07:57:00**
+  - User questions the other user about their time off.
+- **2011-05-26T07:14:00**
+  - User expresses excitement about planning to spend time together.
+- **2011-05-26T00:52:00**
+  - User conveys emotional growth and commitment to staying clean.
+- **2011-05-26T00:35:00**
+  - User expresses feelings of fondness and hope for the future with the recipient.
+- **2011-05-25T23:00:00**
+  - User shares heartfelt reflections on past experiences and longing for a better future.
+- **2011-05-22T23:21:00**
+  - User expresses dissatisfaction with life circumstances.
+- **2011-05-22T22:34:00**
+  - Brief good night message.
+- **2011-05-22T02:30:00**
+  - User hints at a story behind a song.
+- **2011-05-20T23:29:00**
+  - User expresses love and concern while driving.
+- **2011-05-20T02:45:00**
+  - User discusses upcoming plans and availability.
+- **2011-05-20T01:56:00**
+  - User inquires about the other user's life and plans to meet up.
+- **2011-05-18T00:46:00**
+  - User sends a sweet goodnight message.
+- **2011-05-17T15:15:00**
+  - User shares a link to a song and acknowledges an error in the last line.
+- **2011-05-17**
+  - Dustin Smith expresses determination and passion for music through his lyrics, highlighting his journey from facing criticism to finding his voice.
+- **2011-05-11**
+  - Dustin Smith reflects on past mistakes, apologizes, and reaffirms the importance of friendship and love in a heartfelt message to a close acquaintance.
+- **2011-05-09**
+  - Conversations between Dustin Smith and 210900473 revolve around daily activities, with touches of humor and casual camaraderie.
+- **2011-05-07**
+  - Dustin Smith shares anxieties about dreams of the end of the world and seeks solace in interactions with others.
+- **2011-05-06**
+  - A heartfelt message from 210900473 reveals past feelings and current reflections on relationships, while expressing love and appreciation for Dustin Smith.
+- **2011-05-05**
+  - Dustin Smith opens up about his feelings towards a friend, expressing a desire for a good life and family, while acknowledging complexities and risks involved.
+- **2011-05-04**
+  - Light-hearted exchanges between Dustin Smith and 210900473 showcase their friendly banter and shared moments.
+The markdown content includes personal reflections, heartfelt messages, and casual conversations between individuals, spanning various emotions and interactions.
+- **2011-05-04:**
+  - Conversation about missing independence and being a stay-at-home mom.
+  - Mention of watching TV and drinking beer.
+- **2011-05-03:**
+  - Emotional messages about past relationships and parenthood.
+- **2011-05-02:**
+  - Dustin expresses feelings of impatience and sends song clips.
+  - Plans to meet up for dinner and conversation.
+- **2011-04-28:**
+  - Dustin working on recording songs for the other person.
+- **2011-04-27:**
+  - Discussion about songwriting and perfectionism.
+- **2011-04-26:**
+  - Excitement about rewriting a song for the other person.
+  - Request to hear the other person's voice.
+- **2011-04-25:**
+  - Scarlett is teething, causing distress to 210900473 who is busy caring for her.
+  - Dustin Smith expresses concern and excitement to meet Scarlett and 210900473 soon.
+- **2011-04-22:**
+  - 210900473 reminisces about past feelings for Dustin Smith.
+  - Dustin Smith seeks advice on balancing feelings for 210900473 while being with someone else.
+- **2011-04-19:**
+  - Dustin Smith and 210900473 plan to meet for lunch in Marshall.
+  - Warm goodnight exchanges between Dustin Smith and 210900473.
+- **2011-04-17:**
+  - Dustin Smith reflects on past struggles and the impact of music and friendship with 210900473.
+- **2011-04-16:**
+  - Discussion about watching "Toy Story 3" and casual conversation between Dustin Smith and 210900473.
+- **2011-04-16**
+  - Dustin Smith inquires about Miss Scarlet's plans for the evening.
+  - Light-hearted exchanges between Dustin Smith and 210900473 regarding various topics.
+- **2011-04-15**
+  - Dustin Smith expresses struggles and emotions through lengthy text about relationships and personal challenges.
+  - Conversations hint at personal connections and past events.
+- **2011-04-13**
+  - Dustin Smith talks about his struggles and inspirations with music and personal relationships.
+- **2011-04-10**
+  - Discussion between Dustin Smith and 210900473 about shared feelings, music, and past relationships.
+  - Positive feedback received on a song dedicated to 210900473.
+- **2011-04-10T05:14:00**:
+  - Deep sadness expressed over missed opportunities and unresolved feelings with a person named Kristin.
+- **2011-04-10T04:19:00**:
+  - Apology and regret for mistakes made in a relationship with Kristin, acknowledging hurt and longing for what once was.
+- **2011-04-08T00:14:00**:
+  - Encouragement to maintain communication with Everett, expressing the importance of staying connected and offering support.
+- **2011-04-08T00:10:00**:
+  - A message of hope and encouragement for Dustin, urging him to find happiness, let go of regrets, and look towards a brighter future.
+- **2011-04-07T23:20:00**:
+  - Reflection on missed opportunities and regrets in past relationships, expressing remorse for not valuing a friendship with Kristin and seeking forgiveness.
+- **2010-02-13T02:57:00**:
+  - Expression of loneliness, struggle with self-control, and desire for connection amidst feelings of sadness and disconnect from others.
+- **2010-01-30T15:22:00**:
+  - Mention of personal matters and requests for music-related items, along with expressions of love and missing the recipient.
+- **2010-01-30T14:24:00**:
+  - Poetic reflection on lost identity and love, questioning reality and expressing a sense of being lost and isolated.

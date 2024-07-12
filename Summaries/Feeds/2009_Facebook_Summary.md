@@ -1,0 +1,307 @@
+# 2009_Facebook_Summary
+
+- **2009-01-01T12:15:12**
+  - Feeling upbeat and energized, engaging in physical activity.
+- **2009-01-05T12:09:51**
+  - Expressing a desire for indulgence and adventure.
+- **2009-01-09T12:07:45**
+  - Contemplating risky and daring experiences.
+- **2009-01-19T12:11:03**
+  - Displaying negativity towards Mondays.
+- **2009-01-29T12:20:26**
+  - Expressing deep longing and sadness for missing a loved one.
+- **2009-02-05T12:09:35**
+  - Feeling inadequate and frustrated.
+- **2009-03-08T12:15:33**
+  - Finding hope and positivity gradually.
+- **2009-03-17T12:17:15**
+  - Sharing a humorous and light-hearted comment.
+- **2009-03-21T12:11:14**
+  - Reflecting on a memorable and eventful birthday celebration.
+- **2009-03-24T04:09:25**
+  - Anticipating positive changes and new beginnings.
+- **2009-03-30T12:13:22**
+  - Expressing distress and a desire to escape from current feelings.
+- **2009-03-31**:
+  - Expressions of affection and admiration through song lyrics.
+- **2009-04-03**:
+  - Excitement about moving into a new house and socializing with friends.
+- **2009-04-04**:
+  - Settling into the new house and anticipation of meeting a loved one.
+- **2009-04-07**:
+  - Balancing work commitments with the comfort of having someone to come home to.
+- **2009-04-09**:
+  - Playful and affectionate messages.
+- **2009-04-12**:
+  - Eager anticipation to see the son and showcase the new house.
+- **2009-04-27**:
+  - Concern and support for Emily after a serious incident.
+- **2009-04-28**:
+  - Expressing love and hope for Emily's recovery.
+- **2009-05-01**:
+  - Providing updates on Emily's condition and expressing love and support.
+- **2009-05-06**:
+  - Preparing emotionally for Emily's back surgery and expressing love and faith in her recovery.
+- **2009-05-07**:
+  - Emotion: Concern and love for Emily at the hospital.
+  - Interaction: Visiting Emily at the hospital.
+- **2009-05-08**:
+  - Emotion: Joy and relief at Emily waking up.
+  - Interaction: Expressing love and being with Emily at the hospital.
+- **2009-05-10**:
+  - Emotion: Deep love and gratitude towards Emily.
+  - Interaction: Expressing love and appreciation for Emily.
+- **2009-05-12**:
+  - Emotion: Reflective and self-doubtful.
+  - Interaction: Contemplating actions and expressing uncertainty.
+- **2009-05-19**:
+  - Emotion: Adoration and happiness.
+  - Interaction: Feeling grateful for Emily.
+- **2009-06-20**:
+  - Emotion: Excitement and love.
+  - Interaction: Getting engaged to Emily.
+- **2009-06-28**:
+  - Emotion: Thankfulness and love for family and Emily.
+  - Interaction: Expressing gratitude for loved ones.
+- **2009-06-28** (Second Entry):
+  - Interaction: Sharing personal updates with family.
+- **2009-06-28** (Third Entry):
+  - Emotion: Sentimental and appreciative towards family and Emily.
+  - Interaction: Detailed communication with family about life updates.
+- **2009-06-28** (Fourth Entry):
+  - Interaction: Sent a heartfelt message to family about personal progress and plans.
+- **2009-06-30**:
+  - Emotion: Reassurance and love towards Emily.
+  - Interaction: Expressing love and support for Emily.
+- **2009-07-11**:
+  - Emotion: Frustration and love for Emily.
+  - Interaction: Writing a blog post expressing feelings for Emily.
+- **2009-07-17**:
+  - Interaction: Spending time with Emily in Grand Rapids.
+- **2009-07-17** (Second Entry):
+  - Interaction: Enjoying time with Emily watching movies.
+- **2009-07-20**:
+  - Emotion: Struggling with insomnia.
+  - Interaction: Sharing personal struggle with insomnia.
+- **2009-07-21**:
+  - Emotion: Achievement and humor.
+  - Interaction: Excitement about becoming a full-time college student.
+- **2009-07-25**:
+  - Emotion: Anticipation and love.
+  - Interaction: Excited about seeing son and expressing love for Emily.
+- **2009-07-26**:
+  - Excitement for seeing Emily and celebrating the 4th birthday of the user's baby boy.
+- **2009-07-29**:
+  - Anticipation and happiness about seeing "Wifey" and spending time with the kiddo.
+- **2009-07-30**:
+  - Joy and relief at the son being back home, expressing love and eagerness to see Emily.
+- **2009-07-31**:
+  - Plans for dinner, movie, and spending time with Em.
+- **2009-08-02**:
+  - Missing Emily, expressing determination to be a better person, and preparing for Everett Smith's birthday party.
+- **2009-08-04**:
+  - Shaved heads for cancer, preparing a roast, and dealing with stress.
+- **2009-08-06**:
+  - Visiting a casino with a friend and spending time with Em in Grand Rapids.
+- **2009-08-10**:
+  - Feeling tired after work and getting ready to spend time with Everett Smith.
+- **2009-08-11**:
+  - Expressing exhaustion, sickness, and stress, along with a desire for a fresh start.
+- **2009-08-12**:
+  - Reflecting on feelings and possibly dealing with challenging situations.
+Note: The posts cover a range of emotions from excitement and love to stress and exhaustion, along with interactions with family and friends, particularly focusing on preparations for events and expressing affection towards loved ones.
+- **2009-08-14**: Feeling overwhelmed, portraying a painted smile.
+- **2009-08-16**: Expressing love for Emily on her birthday.
+- **2009-08-19**: Reflecting on self-identity as an artist.
+- **2009-08-24**: Determined to make the year count and avoid feeling stuck.
+- **2009-08-29**: Acknowledging the struggle between happiness and destructive tendencies.
+- **2009-09-05**: Deciding to take control of life and happiness.
+- **2009-09-11**: Enjoying a thoughtful gesture from mom.
+- **2009-09-18**: Wrestling with inner conflicts and self-destructive behaviors.
+- **2009-09-21**: Excited about upcoming plans with friends.
+- **2009-09-23**: Contemplating destiny and staying on the right path.
+- **2009-10-25**: Grateful for family, friends, and a fresh start, looking forward to the future.
+- **2009-10-26**: Anticipating a Dangerous Summer concert with friends.
+- **2009-10-27**:
+  - Expresses gratitude for supportive family and condemns negligent parents.
+  - Shares emotional lyrics reflecting internal struggles and feeling at war with the mind.
+- **2009-10-28**:
+  - Continues to express longing and emotional turmoil through poetic and melancholic posts.
+  - Expresses desire for connection and acknowledgment of personal struggles.
+- **2009-10-29**:
+  - Expresses upset over a band breaking up and shares plans to meet with someone.
+- **2009-11-03**:
+  - Enjoys watching a TV show and feeling the sun on the face.
+- **2009-11-04**:
+  - Shares lyrics expressing emotional depth and states activities for the day.
+- **2009-11-05**:
+  - Enjoys a particular beer and shares emotionally charged lyrics.
+- **2009-11-06**:
+  - Expresses desire for companionship and shares lyrical expressions of complicated emotions.
+- **2009-11-07**:
+  - Engages in watching a game and expresses a carefree attitude.
+- **2009-11-08**:
+  - Reflects on feelings of loneliness but anticipates a visit from a family member.
+- **2009-11-09**:
+  - Shares conflicting emotions and expresses optimism.
+- **2009-11-10**:
+  - Enjoys a great night and shares plans for Nashville trip.
+- **2009-11-11**:
+  - Shows excitement for the upcoming trip and expresses happiness.
+- **2009-11-12**:
+  - Updates on the journey to Nashville with stops for food and drinks.
+- **2009-11-13**:
+  - Enjoys nightlife in Nashville and expresses excitement for the experience.
+- **2009-11-14**:
+  - Excited for a night out with a burning dance floor and taxi cab magic.
+  - Eager to tear up the dance floor and watch a hockey game.
+  - Ready to party and enjoy the night.
+- **2009-11-15**:
+  - Recalls a funny moment involving Jake ramping a pothole.
+  - Enjoys the warm weather.
+  - Heads back home with plans to party with friends.
+- **2009-11-16**:
+  - Returns to the mitten state and reconnects with old ways and friends.
+  - Expresses love for dance music and its effect.
+- **2009-11-17**:
+  - Reflects on things not making sense and rewriting life.
+- **2009-11-18**:
+  - Shares a detailed review of the band "The Dangerous Summer" and their music.
+- **2009-11-19**:
+  - Expresses love for beer, boobs, and buttermilk biscuits.
+  - Frustrated by insomnia and disinterest in seeing Twilight.
+  - Watches movies and contemplates deep thoughts about relationships.
+- **2009-11-20**:
+  - Has a depressing movie experience.
+  - Reflects on memories of a past relationship.
+  - Pre-games before a night out and ends up in a tipsy state.
+- **2009-11-21**:
+  - Experiences the aftermath of a night of drinking.
+  - Considers various options for the evening's plans.
+  - Questions the idea of continuous happiness and enjoys being carefree.
+- **2009-11-22**:
+  - Considers movie options and enjoys "The Blind Side."
+  - Expresses feelings about someone in their life.
+- **2009-11-23**:
+  - Plans a day involving a haircut, class, and watching a movie.
+  - Enjoys watching UFC with friends.
+- **2009-11-25**:
+  - Reflects on personal changes and priorities during the Thanksgiving season.
+- **2009-11-26**:
+  - Struggles with sleep deprivation and nostalgia.
+  - Spends time napping with a friend.
+- **2009-11-27**:
+  - Shares reflections on life, intentions, and desires.
+  - Admits to being drunk by accident.
+- **2009-11-28**:
+  - Expresses the need to move on from the past.
+- **2009-11-29**:
+  - Shares reflective thoughts about personal struggles.
+- **2009-11-30**:
+  - Plans future trips to Alaska and Paris.
+- **2009-12-01**:
+  - References favorite bands and songs.
+- **2009-12-03**:
+  - Faces a challenging day but looks forward to drinking and partying.
+- **2009-12-04T12:16:54**
+  - Emphasized fleeting connections between individuals.
+- **2009-12-05T12:06:13**
+  - Mentioned a Jedi mind trick with texting.
+- **2009-12-05T12:19:58**
+  - Expressed excitement or support for Alabama.
+- **2009-12-07T12:12:49**
+  - Shared feelings of pain and letting go.
+- **2009-12-07T12:13:56**
+  - Described sorrow and love leading to drowning.
+- **2009-12-07T12:20:02**
+  - Resolved to rise from difficulties.
+- **2009-12-07T12:23:48**
+  - Reflecting on second chances through goodbyes.
+- **2009-12-08T12:20:51**
+  - Noted a positive change in circumstances for Christmas.
+- **2009-12-09T12:12:29**
+  - Shared a raw and visceral self-description.
+- **2009-12-09T12:18:34**
+  - Juxtaposed staying intact with falling apart.
+- **2009-12-09T12:23:00**
+  - Expressed a negative sentiment towards winter.
+- **2009-12-09T12:23:49**
+  - Reiterated the idea of passing through lives like ships.
+- **2009-12-10T12:21:20**
+  - Expressed a need for change and activity.
+- **2009-12-10T12:22:11**
+  - Shared a sentiment about loneliness and defeat.
+- **2009-12-11T12:17:08**
+  - Expressed a desire for a reason to stay.
+- **2009-12-13T12:01:45**
+  - Acknowledged love even in potential loss.
+- **2009-12-13T12:16:28**
+  - Described a shift from past pride to current isolation.
+- **2009-12-13T12:20:57**
+  - Referenced seeking a surgeon to mend emotional wounds.
+- **2009-12-14T12:19:03**
+  - Highlighted the importance of adapting to change.
+- **2009-12-14T12:20:39**
+  - Expressed a desire for indulgence and intimacy.
+- **2009-12-15T12:18:10**
+  - Reflected on feeling disconnected from oneself.
+- **2009-12-16T12:07:53**
+  - Contemplated difficult decisions and consequences.
+- **2009-12-16T12:15:44**
+  - Shared physical discomfort and distress.
+- **2009-12-16T12:17:44**
+  - Expressed exhaustion and frustration.
+- **2009-12-16T12:20:33**
+  - Questioned past choices and current blindness.
+- **2009-12-16T12:23:31**
+  - Criticized a character from a TV show.
+- **2009-12-17T12:17:44**
+  - Encouraged perseverance and moving forward.
+- **2009-12-18T12:19:06**
+  - Mentioned feeling lost in a quarter-life crisis.
+- **2009-12-18T12:20:18**
+  - Compared a situation to purgatory.
+- **2009-12-20T12:12:42**
+  - Acknowledged a feeling of being off-track in life.
+- **2009-12-20T12:18:16**
+  - Expressed commitment to someone even in darkness.
+- **2009-12-21T12:00:24**
+  - Reflected on missed opportunities and self-awareness.
+- **2009-12-23T12:15:42**
+  - Nostalgically remembered a past self through someone else.
+- **2009-12-24T12:02:53**
+  - Anticipated a positive Christmas with loved ones.
+- **2009-12-25T12:01:58**
+  - Shared gratitude for family and friends during Christmas.
+- **2009-12-26T12:00:47**
+  - Enjoyed being together during the holiday season.
+- **2009-12-26T12:14:03**
+  - Planned a movie outing with a friend.
+- **2009-12-26T12:14:48**
+  - Expressed passionate feelings for someone.
+- **2009-12-26T12:22:36**
+  - Mentioned a descent, possibly reflecting a mood or situation.
+- **2009-12-27T12:17:38**
+  - Enjoyed a movie and food, indicating a good weekend.
+- **2009-12-28T12:01:45**
+  - Reflected on self-improvement and self-awareness.
+- **2009-12-28T12:16:17**
+  - Acknowledged someone's role in finding their voice again.
+- **2009-12-28T12:17:03**
+  - Shared a light-hearted comment about a movie character.
+- **2009-12-29T12:00:37**
+  - Looked forward to a busy day and restarting.
+- **2009-12-29T12:15:18**
+  - Expressed optimism in an imperfect world.
+- **2009-12-29T12:18:30**
+  - Referred to a relationship dynamic.
+- **2009-12-30T12:02:14**
+  - Hinted at self-improvement or progress.
+- **2009-12-30T12:03:36**
+  - Described a desire to be taken away from a difficult situation.
+- **2009-12-31T12:03:05**
+  - Declared intentions for a fresh start in the new year.
+- **2009-12-31T12:16:57**
+  - Contemplated personal change at midnight.
+- **2009-12-31T12:20:26**
+  - Planned a casino visit with friends for New Year's Eve.

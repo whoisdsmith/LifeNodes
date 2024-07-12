@@ -1,0 +1,454 @@
+# 2017_Facebook_Summary
+
+- **2017-01-07T12:00:00**:
+  - Took girls to mom's, had dinner and movie with Stevie Linnabary, ended in a bad night.
+  - Emotional struggle and decision-making regarding relationship.
+- **2017-04-20T12:00:00**:
+  - Chapter of relationship with Stevie Linnabary ended.
+- **2017-05-02T00:01:05**:
+  - Discovery of wife's infidelity, emotional turmoil.
+- **2017-05-02T00:10:27**:
+  - Feeling betrayed and left out of the loop.
+- **2017-05-02T00:12:17**:
+  - Resentment and closure towards wife, desire to move on.
+- **2017-05-02T00:15:26**:
+  - Reflecting on controlling emotions in tough situations.
+- **2017-05-02T00:23:13**:
+  - Comparing self to historical figure for humor.
+- **2017-05-14T12:19:00**:
+  - Kristin Ruffner-Kasserman shares excitement about a song on a playlist.
+- **2017-05-15T10:20:00**:
+  - Good night message to Dustin M Smith and his wife.
+- **2017-05-16T00:00:00**:
+  - Mixed feelings towards someone, updating cover photo.
+- **2017-05-17T00:00:00**:
+  - Reflecting on a positive day, son's baseball game, connecting with old friends.
+- **2017-05-17T11:26:00**:
+  - Making new friends and sharing content.
+- **2017-05-18T00:00:00**:
+  - Reflecting on personal growth, self-love, and relationships.
+- **2017-05-18T06:59:00**:
+  - Expressing reluctance towards early work hours.
+- **2017-05-18T09:28:00**:
+  - Sharing life goals and reflections on self-improvement.
+- **2017-05-19T12:44:00**:
+  - Expressing deep emotions and encouragement towards self-discovery and self-worth.
+- **2017-05-19T13:18:00**:
+  - Making new friends on social media.
+- **2017-05-19:**
+  - Nick Thompson writes songs for the user during major life events.
+  - User enjoys time with favorite girls and receives a shared link from Byron VanWagner.
+  - User reflects on past struggles but expresses growth and determination.
+  - User shares moments with their daughters and appreciates their presence.
+- **2017-05-20:**
+  - User acknowledges personal growth and progress after challenging experiences.
+  - User reflects on love, self-improvement, and the importance of patience.
+  - User struggles with inner demons and memories but later feels better after venting.
+  - User emphasizes the need to stay positive and move forward despite challenges.
+- **2017-05-21:**
+  - User shares excitement for new music and reflects on personal development.
+  - User enjoys a dance party with their daughters and emphasizes self-worth and empowerment.
+  - User explores different music genres and shares moments with family.
+  - User expresses feelings of boredom and shares memories with friends.
+  - User expresses gratitude for regaining mobility and visits a cemetery to honor their son.
+- **2017-05-22:**
+  - User rediscovers hidden songs and expresses joy at being mobile again, visiting their son's grave.
+  - User recalls past memories and appreciates the support received from friends.
+- **2017-05-22T00:08:39**: Individual finds closure and inspiration from an album to start a new chapter in life.
+- **2017-05-22T00:09:02**: Assertive post about overcoming challenges and emerging stronger.
+- **2017-05-22T00:16:35**: Emotional visit to son’s grave, expressing love and gratitude.
+- **2017-05-22T11:54:00**: Appreciation for James Hetfield.
+- **2017-05-24T12:31:00**: New friendship formed.
+- **2017-05-25T00:00:00**: Intense emotional turmoil regarding a past relationship, struggle to move on and find closure.
+- **2017-06-08T1:47**: Reflection on personal growth post-breakup, acknowledging progress and inner strength gained.
+- **May 25, 2017**:
+  - Feeling intense negativity towards someone, reminiscent of past pain.
+- **June 1, 2017**:
+  - Reflecting on deep hurt caused by ex-partner, feeling poisoned by memories.
+- **June 3, 2017**:
+  - Encouragement to turn pain into motivation for personal growth.
+- **June 5, 2017**:
+  - Expressing emotional message to a specific person from the past.
+- **June 9, 2017**:
+  - Marking 50 days of personal growth and progress after heartbreak.
+- **June 13, 2017**:
+  - Feeling incredibly sad and depressed, struggling with self-identity and past relationship pain.
+- **June 27, 2017**:
+  - Experiencing deep sadness and self-doubt, questioning self-worth.
+- **July 6, 2017**:
+  - Reflecting on past experiences and struggles with love and vulnerability.
+- **August 26, 2017**:
+  - No content provided.
+- **June 21, 2017**
+  - Feeling emotional, dislikes thinking about someone.
+- **June 23, 2017**
+- **June 27, 2017**
+  - Rayna's first birthday, upset about lack of communication from Stevie.
+- **July 3, 2017**
+- **July 6, 2017**
+  - Reflecting on personal growth since being hurt by Stevie.
+- **August 26, 2017**
+- **May 26, 2017**
+  - Expresses frustration and desire to forget past marriage.
+- **May 27, 2017**
+  - Shares about mundane evenings, avoiding alcohol, and valuing time with kids.
+  - Deals with emotional struggles and late nights.
+  - Reflects on past experiences and late-night habits.
+  - Asserts independence and self-worth in relationships.
+- **2017-05-28**:
+  - A Facebook post expresses feelings of worthlessness and betrayal from a past relationship.
+  - Various freestyle posts and a shared post show introspection on relationships and self-worth.
+  - A declaration of independence and contentment in living the dream alone is made.
+  - The day ends with a positive outlook despite emotional struggles.
+- **2017-05-29**:
+  - Reflective posts on past hurt, growth, and moving forward are shared.
+  - Supportive comments are received from friends.
+- **2017-05-30**:
+  - Transition from devastation to finding humor in a heartbreak situation is highlighted.
+  - Posts reveal anger and resentment towards a former partner, along with musical interests.
+  - A sense of contentment and moving on is expressed, acknowledging past sacrifices.
+- **2017-05-30**
+  - Made a commitment to prioritize important relationships over a single person.
+  - Updated friendships on Facebook.
+  - Shared positive vibes and a new dance move.
+  - Contemplated on personal growth and decision-making.
+- **2017-05-31**
+  - Expressed mixed emotions and desire for a fresh start.
+  - Reflected on past experiences and relationships.
+  - Shared personal thoughts and feelings through posts.
+  - Interacted with friends and shared music interests.
+  - Showed appreciation for supportive individuals.
+  - Experienced difficulty sleeping due to a troubled mind.
+  - Encouraged living life fully and overcoming heartache.
+  - Engaged socially on Facebook and expressed feelings of loneliness.
+- **2017-05-31**
+  - Found old music, started remaking a song for Jensen in 2013.
+  - Considered it the best song ever written.
+- **2017-06-01**
+  - Expressed deep negativity towards ex-wife and past struggles.
+  - Reflected on positive moments with kids.
+  - Shared emotional thoughts and music creations.
+  - Expressed desire for a positive change and overcoming negativity.
+  - Discussed struggle with emotions, seeking inspiration, and self-worth.
+  - Expressed determination to move past darkness and thrive.
+  - Declared disconnection from ex-wife for new project inspiration.
+- **2017-06-02**
+  - Shared proud moment of cousin's book publication.
+  - Expressed mixed emotions, desire to overcome pain, and appreciation for loved ones.
+  - Acknowledged progress despite challenges.
+- **2017-06-03**
+  - Embraced potential for change, self-improvement, and growth after heartbreak.
+  - Apologized in advance for potential behavior due to alcohol, but expressed a need to reclaim identity and not apologize for being oneself.
+- **2017-06-03**:
+  - Begins with a message to move on and focus on personal growth.
+  - Dustin Smith and Alicia Inman become friends on Facebook.
+- **2017-06-03 - 2017-06-05**:
+  - Posts reflect emotional turmoil, introspection, and rebuilding self-worth.
+  - Expresses feelings about past relationships and personal struggles.
+  - Mentions positive moments with family and children.
+  - Shares weight loss journey due to personal challenges.
+- **2017-06-04 - 2017-06-07**:
+  - Engages in social media activities like making new friends, sharing music projects, and expressing frustrations.
+  - Seeks positivity and progress in life despite setbacks.
+  - Reflects on personal growth and self-love journey.
+  - Expresses desire to overcome social anxiety and loneliness.
+- **2017-06-06 - 2017-06-07**:
+  - Reflects on Father's Day experience and gratitude for family support.
+  - Shows progress in self-love and overcoming personal demons.
+  - Expresses willingness to help others while emphasizing the need for self-driven change.
+  - Acknowledges struggle with social anxiety and desire for personal growth.
+- **2017-06-07**:
+  - Expresses eagerness for life and personal excitement.
+  - Acknowledges social anxiety and desire to overcome loneliness.
+  - Shares frustrations and rebellious attitude towards societal norms.
+- **2017-06-07T23:39:00**
+  - Feeling like should have stayed in a cave.
+- **2017-06-08T02:00:00**
+  - Expressing a desire to end abstinence from being sober.
+- **2017-06-08T05:31:00**
+  - Mentioning 48 days later.
+- **2017-06-08T10:39:00**
+  - Struggling with hate in the heart and feelings towards others.
+- **2017-06-09T00:25:00**
+  - Reflecting on personal growth after 50 days, dealing with heartbreak.
+- **2017-06-09T01:48:00**
+  - Handling negative emotions by addressing them promptly.
+- **2017-06-09T16:17:00**
+  - Anticipating time with children as the best part of the day.
+- **2017-06-09T18:54:00**
+  - Reflecting on thoughts about a lost son and filling life with positive things.
+- **2017-06-10T12:41:00**
+  - Expressing gratitude for being oneself.
+- **2017-06-10T22:41:00**
+  - Reflecting on moving forward from past memories and feelings.
+- **2017-06-11T03:34:00**
+  - Expressing a need for a punching bag, preferably a human one.
+- **2017-05-02:**
+  - Dustin Smith feeling savage.
+  - Made new friends and mentioned weight loss.
+  - Connected with Taryn Miller and Shawn Ryan.
+  - Various status updates and interactions with friends.
+- **2017-05-03:**
+  - Posts about struggles in dating and social interactions.
+  - Updates on activities, sharing events, and photos.
+  - Time spent writing and self-realization about past relationships.
+- **2017-05-04:**
+  - Continues to share personal thoughts and experiences.
+  - Reflects on weight loss and social interactions.
+  - Expresses desire for better relationships and emotional struggles.
+- **2017-05-05:**
+  - Offers to buy drinks for others.
+  - Interactions with friends, sharing photos, and words of wisdom.
+  - Reflects on writing and personal growth.
+- **2017-05-06:**
+  - Further connections with friends.
+  - Reflects on inspiration and personal development through writing.
+  - Acknowledges past mistakes and aims for a positive future.
+- **2017-05-07:**
+  - New friendships formed.
+  - Lengthy conversation involving co-parenting issues and emotional outbursts.
+  - Eventually, a message of forgiveness, letting go of hate, and prioritizing the well-being of their children.
+- **2017-06-11T14:54:00**
+  - The fear of incompatibility in relationships is discussed, emphasizing the importance of not compromising on fundamental values.
+- **2017-06-11T17:06:00**
+  - Dustin Smith shares an album titled "My Life Through Music."
+- **2017-06-11T18:04:00**
+  - Dustin Smith shares a video by Jay Shetty.
+- **2017-06-11T22:11:00**
+  - A message about achieving full potential without someone else present is posted.
+- **2017-06-11T23:58:00**
+  - A reflection on life, love, and vulnerability is shared, advocating for opening up to the possibility of being hurt to truly love.
+- **2017-06-12T00:45:00**
+  - Reflecting on personal growth post-marriage, focusing on rebuilding oneself positively.
+- **2017-06-12T01:10:00**
+  - A post about how walls built for protection can hinder love from reaching you.
+- **2017-06-12T01:34:00**
+  - Dustin Smith admires a drummer and expresses determination to reach a new level.
+- **2017-06-12T02:05:00**
+  - A post expressing excitement over finding something amusing.
+- **2017-06-12T02:53:00**
+  - A poetic piece titled "Cemetery Weather" reflecting on endings and moving on.
+- **2017-06-12T07:16:00**
+  - Dustin Smith becomes friends with Arch Sanders Sr.
+- **2017-06-12T22:35:00**
+  - Encouragement to enjoy the beauty of the night sky with loved ones and a personal reflection on self-love and acceptance.
+- **2017-06-12**:
+  - Reflecting on newfound freedom and positivity in life.
+- **2017-06-13**:
+  - Expressing hurt and love towards someone who caused pain.
+- **2017-06-14**:
+  - Regretting missing a concert but excited for a future opportunity.
+  - Feeling great about personal achievements and making new connections.
+- **2017-06-16**:
+  - Mixed emotions, feeling content but also experiencing deep sadness.
+- **2017-06-18**:
+  - Nostalgia for past moments and acknowledgment of significant life events.
+  - Reflecting on fatherhood and missing family members.
+- **2017-06-18**:
+   - Documented relationship in a journal on iPhone, surprised by its length.
+   - Recalled being Keith Stone, Kristin's blanket fort party, and a work injury.
+   - Obtained a degree in white trash engineering, shared memories, and a Father's Day wish.
+- **2017-06-19**:
+   - Wished a favorite person a happy birthday, connected with new friends.
+- **2017-06-20**:
+   - Celebrated cousin's book, expressed joy at regaining fitness.
+   - Shared admiration for Miles Teller and reflected on living dreams.
+- **2017-06-21**:
+   - Shared support against cancer and acknowledged a musician's success.
+   - Contemplated life's pace, love, and the desire to sing.
+- **2017-06-22**:
+   - Expressed gratitude towards friends, shared nostalgia for music.
+   - Reflected on past mistakes and expressed hope for the future.
+   - Joked about getting drunk and serenaded, shared music live, and personal struggles.
+- **2017-06-23**:
+   - Shared poignant thoughts on suicide, family, and life's challenges.
+- **2017-06-24**:
+   - Connected with new friend, showcased guitar skills, and expressed an emotional life goal.
+- **2017-06-24:**
+  - Shared memories with Lori Herman Smith from 32 years ago.
+  - Expressing emotions with lyrics about feeling mean and impatient.
+  - Reflecting on burning bridges and moving on from past relationships.
+- **2017-06-25:**
+  - Connecting with friends and family on social media.
+  - Expressing desire for love and positive change in life.
+  - Reflecting on past actions and relationships with ex-partner.
+- **2017-06-26:**
+  - Remembering music collaborations with family.
+  - Sharing interests in movies and future bucket list plans.
+  - Emotional visit to sing at a birthday and graveside.
+- **2017-06-27:**
+  - Reflecting on life struggles and relationships with meaningful lyrics.
+  - Sharing family moments and thoughts on social media filters.
+- **2017-06-28:**
+  - Mentioning significant past dates and enjoying music.
+  - Expressing emotions through music references.
+- **2017-06-29:**
+  - Sharing personal reflections on life changes and positivity.
+  - Expressing gratitude for family moments and music discoveries.
+- **2017-07-01:**
+  - Engaging in activities like bowling and spending time with family.
+  - Sharing thoughts on relationships and personal growth through lyrics.
+- **2017-07-01**:
+  - Dustin enjoys a day out with his son, including mini putt and go-karts.
+  - Posts about his cocky attitude and emotional lyrics from a song.
+  - Shares photos of mini-golf with his son and expresses his enjoyment.
+  - Engages in laser tag and enjoys the experience.
+  - Reflects on life and music, highlighting personal emotions and experiences.
+  - Shares photos with family and talks about his musical preferences.
+- **2017-07-02**:
+  - Shares a meme and posts about his daughter's birthday party.
+- **2017-07-04**:
+  - Enjoys watching TV with his daughters.
+  - Attends a concert, expressing gratitude for the experience.
+- **2017-07-05**:
+  - Reflects on personal growth and struggles, offering advice and encouragement.
+  - Shares his thoughts on life and work-life balance.
+  - Expresses feelings of exhaustion and personal reflections.
+  - Works on a music remix and shares photos of past experiences.
+  - Seeks information about a phone situation.
+- **2017-07-06**:
+  - Plans to watch a favorite band with friends.
+  - Shares thoughts on self-worth and makeup, encouraging self-love.
+- **2017-07-06**
+  - Contemplative mood, reflecting on life and conversations with fire.
+  - Dustin Smith shares a new photo.
+  - Musings on the demand for love being seen as arrogance and lyrics expressing care for others.
+- **2017-07-07**
+  - Emotional reflections on innocence, relationships, and personal growth.
+  - Frustrations and tiredness expressed, seeking emotional stability.
+  - Musical interests and phone issues mentioned.
+  - Introspective thoughts on life's uncertainties and potential.
+- **2017-07-08**
+  - Making new friends, enjoying music, and expressing disdain for suicide.
+  - Reminiscing about the past and plans with friends.
+  - Challenges in relationships and frustrations with certain individuals.
+- **2017-07-09**
+  - Engagement with social media content, self-reflection on dating, and acceptance of being alone.
+  - Following new accounts and updating profile details.
+  - Connecting with new friends and sharing relatable content.
+- **2017-07-09T19:48:00**:
+  - Individual struggling with confusion and disorientation, questioning reality and mental state.
+- **2017-07-10T03:42:00**:
+  - Looking forward to spending time with friends and enjoying music.
+- **2017-07-10T04:26:00**:
+  - Describes the day as a roller coaster of emotions.
+- **2017-07-11T08:29:00**:
+  - Reflecting on newfound appreciation for life and personal growth.
+- **2017-07-11T15:10:00**:
+  - Expressing a sense of empowerment or achievement.
+- **2017-07-14T22:51:00**:
+  - Feeling overwhelmed by challenges and a sense of added difficulty to an already complex situation.
+- **2017-07-15T16:44:00**:
+  - Reflecting on personal growth post-breakup, embracing change, and looking positively towards the future.
+- **2017-07-15T19:12:00**:
+  - Spending quality time with loved ones.
+- **2017-07-16T01:03:00**:
+  - Enduring a challenging period but maintaining hope and resilience.
+These entries highlight a range of emotions including confusion, anticipation, reflection, empowerment, overwhelm, growth, positivity, and resilience during a tumultuous time.
+- **2017-07-16**: Feeling optimistic about upcoming events.
+- **2017-07-17**: Expressing gratitude for a good night out and reflecting on life's unpredictability.
+- **2017-07-17**: Struggling with exhaustion from long hours but maintaining a positive outlook.
+- **2017-07-17**: Mentioning feeling hurt by someone named Stevie.
+- **2017-07-19**: Sharing emotional sentiments about heartache and a desire to move forward.
+- **2017-07-20**: Expressing feelings of being dead to someone and struggles with sleep.
+- **2017-07-24**: Finding solace in positive aspects of life.
+- **2017-07-26**: Celebrating son's birthday and positive family moments.
+- **2017-07-28**: Expressing self-blame.
+- **2017-10-04**: Reflecting on heartbreak, struggles with sleep, and difficulty moving on after a breakup.
+- **2017-10-04**:
+  - User expresses difficulty in moving on emotionally from a past relationship.
+  - User shares a positive weight loss update.
+  - Emotional post about facing a challenging situation with a replacement involved.
+  - User expresses frustration with dating apps.
+  - Gratitude post towards supportive friends.
+  - User fluctuates between positive and negative emotions.
+  - User reflects on personal growth and self-improvement.
+  - User hints at personal struggles and negativity impacting mood.
+  - User shares excitement about spending time with their children.
+  - User shows determination to maintain positivity despite challenges.
+- **2017-05-08**
+  - Emotional plea for peace and forgiveness between parties, expressing regret and a desire to move on.
+  - Discussion about arranging a civil meeting involving the ex-wife, Tyler, and the speaker.
+  - Negotiations regarding childcare and divorce logistics with a focus on cooperation.
+- **2017-05-09**
+  - Speaker expresses willingness to reconcile and cooperate, offering financial support for divorce.
+  - Social media posts reflect mixed emotions, coping mechanisms, and a desire for a casual relationship without emotional attachment.
+  - Change in phone number and profile name on social media.
+  - Concerns raised about childcare arrangements due to moving plans.
+- **Overall**
+  - Emotional turmoil, attempts at reconciliation, negotiations for peaceful separation, and expressions of love for children and friends.
+- **2017-05-09**:
+  - Dustin Smith expresses winning at life and humor on Facebook.
+  - Interactions with various friends, including adding new friends and updates.
+  - Dustin Smith shares personal reflections and photos on Facebook.
+- **2017-05-10**:
+  - Dustin Smith shares thoughts about a past relationship and current life.
+  - Conversations about shared belongings and potential house rental.
+  - Tense exchange regarding phone payments and allegations of calling Child Protective Services (CPS).
+  - Emotional outbursts and accusations between Dustin and Stevie regarding CPS involvement.
+  - Dustin expresses dedication to his children and frustration with the situation.
+- **2017-05-11**:
+  - A heated exchange on Facebook between Dustin Smith and Stevie Linnabary regarding the children and CPS involvement.
+  - Dustin expresses disappointment and frustration towards Stevie's behavior and decisions.
+  - Threats and accusations are made, with implications for custody.
+- **2017-05-11**:
+  - Dustin Smith expresses newfound freedom and a positive outlook after a relationship issue.
+  - He reflects on personal growth and past struggles, indicating a sense of liberation.
+- **2017-05-10**:
+  - Dustin Smith shares various posts on Facebook, including attending a therapy session tour and reflecting on weight loss.
+  - Interactions with friends and sharing of photos are noted.
+- **2017-05-11**:
+  - Dustin Smith contemplates moving forward with his life and expresses a desire for authenticity and self-acceptance.
+  - He shares a message about being true to oneself and not changing for others.
+- **2017-05-11T12:24:00**:
+  - Expresses gratitude and emotional turmoil, reflecting on past mistakes and personal growth.
+  - Realization of self-worth and importance of positive relationships.
+- **2017-05-11T13:09:00**:
+  - Dustin Smith forms new friendships with Ryan Mercer and Autumn Palik Strang.
+- **2017-05-12T00:06:04**:
+  - Positive outlook for the upcoming weekend.
+- **2017-05-12T10:42:00**:
+  - Struggle to rediscover one's true self and importance of staying true to oneself in relationships.
+- **2017-05-12T12:00:00**:
+  - Addressing past issues and setting boundaries in a personal relationship for the well-being of children involved.
+- **Date: 08:37:29**: Emotionally charged interaction about seeing a counselor for the kids.
+- **Date: 08:44:26**: Warning about entering the house to see the children.
+- **Date: 08:46:51**: Mention of proof against the partner in court.
+- **Date: 09:01:53**: Firm statement about getting the children after work.
+- **Date: 12:40:43**: Request to be left alone.
+- **Date: 14:24:25**: Emotional exchange regarding Mother's Day plans.
+- **Date: 14:51:49**: Concern raised about safety and mental state.
+- **Date: 14:55:26**: Mention of potential custody issues.
+- **Date: 14:59:25**: Determination to get the children back.
+- **Date: 15:02:18**: Strong words towards partner and her actions.
+- **Date: 15:17:37**: Request for children back on Mother's Day.
+- **Date: 15:22:07**: Confusion over the situation and urgency to return home.
+- **Date: 15:24:10**: Agreement to bring the children home after a series of exchanges.
+- **2017-05-13**
+  - Intense emotional exchange about parenting and custody issues between two individuals.
+  - Accusations of neglect and questioning of parenting capabilities.
+  - Tensions escalate with one party expressing disappointment and lack of trust in the other's parenting.
+  - Discussion about visitation rights and upcoming plans for Mother's Day.
+  - Resentment and past relationship issues resurface, leading to heated arguments.
+- **2017-05-13**
+  - Decision made to allow the other party to have the children on Mother's Day.
+  - Reflection on past relationship, expressing a mix of hurt, desire for change, and closure.
+  - Mention of maintaining civility for the sake of the children despite the relationship breakdown.
+  - Personal reflections on emotional growth and letting go of past grievances.
+  - Emotional music and thought-provoking quotes shared along with personal revelations.
+- **2017-05-13T12:00:00**:
+  - A post reflects the author's desire for a better ending in a relationship, emphasizing forgiveness and closure.
+- **2017-05-13T12:11:54**:
+  - A message about love finding you naturally is shared.
+- **2017-05-13T12:22:52**:
+  - A humorous post is made about a past reputation as a rockstar.
+- **2017-05-13T12:23:24**:
+  - Frustration is expressed over lost memories and music due to a past relationship.
+- **2017-05-13T12:48:00**:
+  - A light-hearted comment is made about trying yoga.
+- **2017-05-14T00:11:54**:
+  - Wisdom about self-acceptance and love is shared.
+- **2017-05-14T11:54:00**:
+  - A controversial post regarding helping someone with rent is made.
+- **2017-05-14T12:00:00**:
+  - Tension and accusations are evident in a post about retrieving personal belongings and relationship issues.
