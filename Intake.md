@@ -237,3 +237,7 @@ I was never around drugs or violence or any kind of anger or abuse. I never saw 
 
   - February: Left Ctrl-Alt-Backspace and ended relationship with Tawnie Shelton.
   - April: Started working at Knauf Insulation in Albion, MI.
+
+# Side Notes
+
+In the past I tended to fall back to my last relationship as a coping mechanism to get over the current one. I don't mean that I got back with the person in my last relationship, I'm talking about in my mind fantasizing and reminiscing on past times. It seemed to always help the ache in my stomach when dealing with the present heartbreak. 
