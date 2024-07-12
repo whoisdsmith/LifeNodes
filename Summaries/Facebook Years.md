@@ -1,4 +1,4 @@
-# Dustin's 2023: Embracing AI and Finding Peace with the Past
+# Facebook 2023 Summary
 
 Dustin's 2023 Facebook posts showcase a continued evolution in his personality and approach to life. He's deeply immersed in the world of AI, particularly image generation and language models, and utilizes these tools to explore his creative passions and process his emotions. While his divorce and the loss of his son remain a presence in his life, he expresses a greater sense of acceptance and focus on the positive.
 
@@ -25,7 +25,7 @@ Dustin's 2023 Facebook posts showcase a continued evolution in his personality a
 
 In conclusion, Dustin's 2023 Facebook posts paint a picture of a man who has found a path to healing and happiness. He's using his experiences to inform his creative pursuits, exploring new technologies, and forging a positive future for himself and those he loves.
 
-# Dustin's 2022: A Year of Tech, Nostalgia, and Embracing Life
+# Facebook 2022 Summary
 
 Dustin's Facebook posts from 2022 demonstrate a continued evolution in his personality and approach to life. While he still reflects on his past and the impact of his divorce, his focus has shifted toward personal growth, exploring new passions, and appreciating the good in his life.
 
@@ -53,7 +53,7 @@ Dustin's Facebook posts from 2022 demonstrate a continued evolution in his perso
 
 In conclusion, 2022 paints a picture of Dustin as a man who has navigated through hardship and emerged with newfound clarity and self-awareness. He seems more comfortable in his own skin, focused on his passions, and genuinely happy for his children and those he loves. His journey demonstrates the potential for growth and resilience, even in the face of significant setbacks.
 
-# Dustin's 2021: Embracing Self-Awareness and Finding Peace
+# Facebook 2021 Summary
 
 Dustin's Facebook posts from 2021 reveal a significant shift in his outlook and behavior. He seems to have reached a point of self-awareness and acceptance, focusing on personal growth and prioritizing his family and wellbeing.
 
@@ -75,7 +75,7 @@ Dustin's Facebook posts from 2021 reveal a significant shift in his outlook and 
 
 **Overall, 2021 marks a significant year of progress for Dustin.** He shows a profound shift in his emotional maturity and a genuine desire to live a more fulfilling life. His journey serves as a reminder that healing and personal growth can be a long and challenging process, but it's possible to find peace and purpose after significant heartbreak and loss.
 
-# Dustin's 2020: A Year of Healing, Growth, and Finding His Voice
+# Facebook 2020 Summary
 
 Dustin's 2020 Facebook posts reveal a man on a journey of profound transformation. While the year is marked by external chaos and a global pandemic, Dustin seems to have found a sense of inner peace and direction, focusing on personal growth, celebrating his family, and using his creative voice to express his evolving worldview.
 
@@ -97,7 +97,7 @@ Dustin's 2020 Facebook posts reveal a man on a journey of profound transformatio
 
 **Overall, 2020 showcases a significant turning point for Dustin.** He demonstrates a shift away from the anger and bitterness that characterized his previous posts, embracing a more positive and hopeful outlook. He focuses on personal growth, prioritizes his family, and uses his creative talents to express himself and connect with others. His journey highlights the transformative power of self-awareness, forgiveness, and the importance of finding meaning and purpose, even amidst challenging circumstances.
 
-# Dustin's 2019: A Year of Darkness, Self-Discovery, and Creative Expression
+# Facebook 2019 Summary
 
 Dustin's 2019 Facebook posts depict a year of significant emotional turmoil, as he grapples with the aftermath of his separation from Stevie and navigates feelings of betrayal, hurt, and anger. Amidst the darkness, however, his posts also reveal a growing awareness of his own shortcomings, a renewed focus on personal growth, and a deepening commitment to his children.
 
@@ -118,7 +118,7 @@ Dustin's 2019 Facebook posts depict a year of significant emotional turmoil, as 
 
 **Overall, 2019 is a year of transition and transformation for Dustin.** While he faces immense pain and challenges, he also begins to confront his demons, seek healing, and find solace in creative expression. His journey highlights the power of self-awareness, forgiveness, and the importance of finding purpose and meaning in the face of adversity.
 
-# Dustin's 2018: A Year of Profound Loss, Reflection, and Reckoning
+# Facebook 2018 Summary
 
 Dustin's 2018 Facebook posts paint a picture of a man struggling to navigate immense emotional turmoil stemming from his divorce and a series of personal losses. His entries are raw, honest, and often punctuated with anger and bitterness, but they also reveal a growing self-awareness and a conscious effort to break free from destructive patterns.
 
@@ -163,7 +163,7 @@ Dustin's 2018 Facebook posts paint a picture of a man struggling to navigate imm
 
 **Overall, 2018 is a year of profound introspection and reckoning for Dustin.** He confronts the fallout of his divorce, processes grief over multiple losses, and grapples with the consequences of his actions. While his journey is marked by pain and setbacks, it also demonstrates a growing sense of self-awareness, a commitment to healing, and a renewed focus on his role as a father.
 
-# Dustin's 2017: A Year of Heartbreak, Healing, and Finding Himself
+# Facebook 2017 Summary
 
 Dustin's Facebook posts in 2017 chronicle a tumultuous period of his life, dominated by the breakdown of his marriage and the subsequent journey of healing and rediscovering himself. His posts oscillate between raw emotional outpourings, cynical humor, and moments of profound introspection, showcasing a complex internal landscape.
 
@@ -206,7 +206,7 @@ Dustin's Facebook posts in 2017 chronicle a tumultuous period of his life, domin
 
 **Overall, 2017 is a year of profound transformation for Dustin.** While he endures heartbreak and faces immense challenges, he also demonstrates resilience, self-awareness, and a dedication to personal growth. The year ends with a sense of cautious optimism, suggesting that he's slowly finding his footing and embracing a future filled with possibility.
 
-# Dustin's 2016: A Balancing Act of Joy, Frustration, and Resignation
+# Facebook 2016 Summary
 
 Dustin's 2016 Facebook posts present a complex portrait of a man navigating the demands of family life, wrestling with feelings of inadequacy, and grappling with a sense of disillusionment towards the world. While he finds solace in his love for Stevie and their children, his inner turmoil and recurring negative patterns continue to cast a shadow over his experiences.
 
@@ -248,7 +248,7 @@ Dustin's 2016 Facebook posts present a complex portrait of a man navigating the 
 
 **Overall, Dustin's 2016 Facebook posts depict a year marked by a dichotomy of joy and despair.** While he experiences moments of genuine happiness and gratitude for his family, his inner turmoil and destructive patterns create a sense of unease and leave his future trajectory uncertain. He appears trapped in a cycle of seeking validation, battling inner demons, and struggling to find a path to lasting peace and fulfillment.
 
-# Dustin's 2015: A Struggle for Balance and Inner Peace
+# Facebook 2015 Summary
 
 Dustin's 2015 Facebook posts depict a man wrestling with internal struggles and searching for a sense of purpose. While he clearly loves his children and Stevie, a shadow of restlessness, self-doubt, and a lingering dependence on Adderall color his experiences.
 
@@ -289,7 +289,7 @@ Dustin's 2015 Facebook posts depict a man wrestling with internal struggles and 
 
 **Overall, Dustin's 2015 Facebook posts depict a man on a journey of self-discovery and personal growth.** He faces significant challenges, including addiction, heartbreak, and a sense of aimlessness. While he finds solace in the love of his family, his posts reveal a longing for inner peace and a persistent struggle to overcome his inner demons.
 
-# Dustin's 2014: Love, Loss, and Mounting Pressure
+# Facebook 2014 Summary
 
 Dustin's Facebook posts in 2014 paint a picture of a man grappling with the weight of responsibilities and struggling to find equilibrium in his personal life. His deep love for his family and a desire to be a good father are evident, yet financial strain, recurring anger issues, and Stevie's anxieties take a toll on their relationship.
 
@@ -325,7 +325,7 @@ Dustin's Facebook posts in 2014 paint a picture of a man grappling with the weig
 
 **Overall, 2014 is a turbulent year for Dustin, marked by personal challenges and relationship turmoil.** The joyous arrival of Lydia Smith is contrasted by the weight of responsibility, financial strain, and the reemergence of his inner demons. While he finds strength in his love for his children and demonstrates a desire for change, the year ends with a sense of unease, leaving the question of whether he can break free from his destructive patterns and build a truly fulfilling future for himself and his family.
 
-# Dustin's 2013: A Year of Love, Loss, and Finding his Path
+# Facebook 2013 Summary
 
 Dustin's Facebook posts in 2013 portray a man striving for stability and growth amidst life's inherent chaos. While he basks in the joys of his relationship with Stevie and Everett Smith, he also grapples with grief, financial instability, and occasional bouts of anger.
 
@@ -360,7 +360,7 @@ Dustin's Facebook posts in 2013 portray a man striving for stability and growth 
 
 **Overall, Dustin's 2013 Facebook posts depict a year of significant personal growth and resilience.** Despite experiencing heartbreak and facing various challenges, he emerges stronger, more focused, and deeply committed to building a happy and meaningful life with his loved ones.
 
-# Dustin's 2012: Navigating Love, Loss, and a Search for Stability
+# Facebook 2012 Summary
 
 Dustin's Facebook posts in 2012 reveal a complex journey marked by the joy of finding deep love and starting a family, the devastating loss of his newborn son, and ongoing struggles with financial insecurity and emotional stability.
 
@@ -401,7 +401,7 @@ Dustin's Facebook posts in 2012 reveal a complex journey marked by the joy of fi
 
 **Overall, 2012 is a year of immense highs and lows for Dustin.** While he finds profound love and happiness with Stevie, the loss of Jensen creates a deep wound. He demonstrates resilience in the face of adversity, drawing strength from his family and music, and continuing to search for a sense of purpose and stability.
 
-# Dustin's 2011: A Transformative Year of Growth and Love
+# Facebook 2011 Summary
 
 Dustin's 2011 Facebook posts reveal a significant shift in his patterns and behaviors, marking a year of personal growth, newfound happiness, and a deepened connection with his son, Everett Smith.
 
@@ -443,7 +443,7 @@ Dustin's 2011 Facebook posts reveal a significant shift in his patterns and beha
 
 **Overall, Dustin's 2011 Facebook posts paint a picture of a man transformed.** Through overcoming personal challenges and embracing his role as a father, he finds a path to healing, self-acceptance, and genuine happiness. His journey exemplifies the power of love, forgiveness, and personal growth.
 
-# Dustin's 2010: A Rollercoaster of Recovery and Relapse
+# Facebook 2010 Summary
 
 Dustin's Facebook posts in 2010 reveal a turbulent year marked by continued struggles with heartbreak, self-destructive behaviors, and a yearning for connection. He oscillates between moments of clarity and self-awareness, punctuated by periods of heavy drinking, anger, and a cynical outlook on life.
 
@@ -478,7 +478,7 @@ Dustin's Facebook posts in 2010 reveal a turbulent year marked by continued stru
 
 **Overall, 2010 is a year of both progress and regression for Dustin.** He demonstrates a desire for change and a capacity for self-reflection, but his emotional wounds and addictive tendencies continue to hold him back. The year ends with a sense of uncertainty, leaving his future path open to both positive transformation and continued self-destruction.
 
-# Dustin's 2009: A Year of Highs, Lows, and Transformation
+# Facebook 2009 Summary
 
 Based on Dustin's Facebook posts from 2009, we can glean insights into his personality, relationships, and personal growth throughout the year.
 

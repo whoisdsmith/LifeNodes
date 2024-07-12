@@ -8,31 +8,18 @@
         "type": "tabs",
         "children": [
           {
-            "id": "5606f325abc99937",
+            "id": "310d086d26a32882",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Notes.md",
+                "file": "DO Years/2012.md",
                 "mode": "source",
                 "source": false
               }
             }
-          },
-          {
-            "id": "3d73aa1c2840cf19",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Intake.md",
-                "mode": "preview",
-                "source": false
-              }
-            }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -98,7 +85,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Intake.md",
+                "file": "DO Years/2012.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -115,7 +102,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Intake.md",
+                "file": "DO Years/2012.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -127,7 +114,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Intake.md"
+                "file": "DO Years/2012.md"
               }
             }
           },
@@ -191,43 +178,43 @@
       "bulk-exporter:Bulk Exporter Preview": false
     }
   },
-  "active": "3d73aa1c2840cf19",
+  "active": "7e202dd12cfbc8f0",
   "lastOpenFiles": [
-    "Notes.md",
+    "DO Years/2011.md",
+    "DO Years/2010.md",
+    "DO Years/2009.md",
+    "DO Years/2008.md",
+    "DO Years/2016.md",
+    "DO Years/2015.md",
+    "DO Years/2014.md",
+    "DO Years/2013.md",
+    "DO Years/2012.md",
+    "DO Years/2023.md",
+    "DO Years/2022.md",
+    "DO Years/2019.md",
+    "Untitled 1.md",
+    "DO Years/2021.md",
+    "DO Years/2020.md",
+    "DO Years/2018.md",
+    "DO Years/2017.md",
+    "DO Years",
+    "Untitled.md",
+    "Summaries/Blog Years.md",
+    "Summaries/DO.md",
+    "Summaries/Facebook Years.md",
     "Intake.md",
-    "Core Relationships.md",
-    "cmd.md",
-    "core.json",
-    "Childhood.md",
+    "Cores/Core Relationships.md",
+    "Cores/Notes.md",
+    "Cores/cmd.md",
+    "Cores/core.json",
     "Childhood.md.crdownload",
     "cmd.md.crdownload",
     "Core Relationships.md.crdownload",
-    "README.md",
-    "Cores/Building A Solid Foundation.md",
-    "Cause and Effect/Relationship Trauma Outline Definitions.md",
-    "Cause and Effect/Untitled.md",
-    "Cause and Effect/Relationship Trauma.md",
-    "Cause and Effect/CauseEffect.md",
-    "Notes/Comprehensive Life Nodes.md",
-    "Notes/Life Nodes-OAI.md",
-    "Notes/Life Nodes-Claude.md",
-    "Notes/Life Nodes Questionnaire.md",
-    "Notes/Psychology/A Process for Finding & Achieving Your Unique Purpose.md",
-    "Cause and Effect/Charts.md",
-    "Cores/Cores.md",
-    "Cores/Core Examples.md",
-    "Blog/2022-08-20-Internal Error.md",
-    "Blog/Blogs.md",
-    "Cores/Blueprints To A Better Future.md",
-    "Midnight Thoughts.md",
-    "Blueprints/Blueprints For A Better Future.md",
-    "Blueprints/The Truth Is.md",
     "trauma-healing-website.html",
     "trauma-healing-website.html.crdownload",
     "Cause and Effect",
     "Blog/State of Address.md.crdownload",
     "Cores",
-    "Blueprints",
     "Attachments/wisdombanner.jpg",
     "Attachments/URWhatUThinkAbout.jpg",
     "Attachments/themirrorprinciplecontd.jpg",

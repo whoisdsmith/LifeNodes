@@ -27,13 +27,64 @@ __export(main_exports, {
   default: () => LinkerPlugin
 });
 module.exports = __toCommonJS(main_exports);
-var import_obsidian3 = require("obsidian");
+var import_obsidian5 = require("obsidian");
 
 // linker/readModeLinker.ts
-var import_obsidian2 = require("obsidian");
+var import_obsidian3 = require("obsidian");
 
 // linker/linkerCache.ts
+var import_obsidian2 = require("obsidian");
+
+// linker/linkerInfo.ts
 var import_obsidian = require("obsidian");
+var LinkerFileMetaInfo = class {
+  constructor(fetcher, file) {
+    this.fetcher = fetcher;
+    var _a;
+    this.fetcher = fetcher;
+    this.file = file instanceof import_obsidian.TFile ? file : this.fetcher.app.vault.getFileByPath(file.path);
+    const settings = this.fetcher.settings;
+    this.tags = ((_a = (0, import_obsidian.getAllTags)(this.fetcher.app.metadataCache.getFileCache(this.file))) != null ? _a : []).filter((tag) => tag.trim().length > 0).map((tag) => tag.startsWith("#") ? tag.slice(1) : tag);
+    this.includeFile = this.tags.includes(settings.tagToIncludeFile);
+    this.excludeFile = this.tags.includes(settings.tagToExcludeFile);
+    this.includeAllFiles = fetcher.includeAllFiles;
+    this.isInIncludedDir = fetcher.includeDirPattern.test(this.file.path);
+    this.isInExcludedDir = fetcher.excludeDirPattern.test(this.file.path);
+  }
+};
+var LinkerMetaInfoFetcher = class {
+  constructor(app, settings) {
+    this.app = app;
+    this.settings = settings;
+    this.refreshSettings();
+  }
+  refreshSettings(settings) {
+    this.settings = settings != null ? settings : this.settings;
+    this.includeAllFiles = this.settings.includeAllFiles;
+    this.includeDirPattern = new RegExp(`(^|/)(${this.settings.linkerDirectories.join("|")})/`);
+    this.excludeDirPattern = new RegExp(`(^|/)(${this.settings.excludedDirectories.join("|")})/`);
+  }
+  getMetaInfo(file) {
+    return new LinkerFileMetaInfo(this, file);
+  }
+};
+
+// linker/linkerCache.ts
+var ExternalUpdateManager = class {
+  constructor() {
+    this.registeredCallbacks = /* @__PURE__ */ new Set();
+  }
+  registerCallback(callback) {
+    this.registeredCallbacks.add(callback);
+  }
+  update() {
+    setTimeout(() => {
+      for (const callback of this.registeredCallbacks) {
+        callback();
+      }
+    }, 50);
+  }
+};
 var PrefixNode = class {
   constructor() {
     this.children = /* @__PURE__ */ new Map();
@@ -61,8 +112,11 @@ var PrefixTree = class {
     this._currentNodes = [];
     this.updateTree();
   }
-  getCurrentMatchNodes(index) {
+  getCurrentMatchNodes(index, excludedNote) {
     const matchNodes = [];
+    if (excludedNote === void 0 && this.settings.excludeLinksToOwnNote) {
+      excludedNote = this.app.workspace.getActiveFile();
+    }
     for (const node of this._currentNodes) {
       if (node.files.size === 0) {
         continue;
@@ -70,9 +124,11 @@ var PrefixTree = class {
       const matchNode = new MatchNode();
       matchNode.length = node.value.length;
       matchNode.start = index - matchNode.length;
-      matchNode.files = node.files;
+      matchNode.files = new Set(Array.from(node.files).filter((file) => !excludedNote || file.path !== excludedNote.path));
       matchNode.value = node.value;
-      matchNodes.push(matchNode);
+      if (matchNode.files.size > 0) {
+        matchNodes.push(matchNode);
+      }
     }
     matchNodes.sort((a, b) => b.length - a.length);
     return matchNodes;
@@ -95,16 +151,18 @@ var PrefixTree = class {
   updateTree() {
     var _a, _b, _c;
     this.root = new PrefixNode();
-    const includeAllFiles = this.settings.includeAllFiles || this.settings.linkerDirectories.length === 0;
-    const includeDirPattern = new RegExp(`(^|/)(${this.settings.linkerDirectories.join("|")})/`);
+    const fetcher = new LinkerMetaInfoFetcher(this.app, this.settings);
     for (const file of this.app.vault.getMarkdownFiles()) {
-      const tags = ((_a = (0, import_obsidian.getAllTags)(this.app.metadataCache.getFileCache(file))) != null ? _a : []).filter((tag) => tag.trim().length > 0).map((tag) => tag.startsWith("#") ? tag.slice(1) : tag);
-      const includeFile = tags.includes(this.settings.tagToIncludeFile);
-      const excludeFile = tags.includes(this.settings.tagToExcludeFile);
-      if (excludeFile) {
+      const metaInfo = fetcher.getMetaInfo(file);
+      const tags = ((_a = (0, import_obsidian2.getAllTags)(this.app.metadataCache.getFileCache(file))) != null ? _a : []).filter((tag) => tag.trim().length > 0).map((tag) => tag.startsWith("#") ? tag.slice(1) : tag);
+      const includeFile = metaInfo.includeFile;
+      const excludeFile = metaInfo.excludeFile;
+      const isInIncludedDir = metaInfo.isInIncludedDir;
+      const isInExcludedDir = metaInfo.isInExcludedDir;
+      if (excludeFile || isInExcludedDir && !includeFile) {
         continue;
       }
-      if (!includeFile && !includeAllFiles && !includeDirPattern.test(file.path)) {
+      if (!includeFile && !isInIncludedDir && !metaInfo.includeAllFiles) {
         continue;
       }
       const metadata = this.app.metadataCache.getFileCache(file);
@@ -196,7 +254,7 @@ var LinkerCache = class {
 };
 
 // linker/readModeLinker.ts
-var GlossaryLinker = class extends import_obsidian2.MarkdownRenderChild {
+var GlossaryLinker = class extends import_obsidian3.MarkdownRenderChild {
   constructor(app, settings, context, containerEl) {
     super(containerEl);
     this.settings = settings;
@@ -209,15 +267,14 @@ var GlossaryLinker = class extends import_obsidian2.MarkdownRenderChild {
     var _a, _b;
     const destName = this.ctx.sourcePath.replace(/(.*).md/, "$1");
     let currentDestName = destName;
-    let currentPath = this.app.metadataCache.getFirstLinkpathDest((0, import_obsidian2.getLinkpath)(glossaryName), currentDestName);
+    let currentPath = this.app.metadataCache.getFirstLinkpathDest((0, import_obsidian3.getLinkpath)(glossaryName), currentDestName);
     if (currentPath == null)
       return null;
     while (currentDestName.includes("/")) {
       currentDestName = currentDestName.replace(/\/[^\/]*?$/, "");
-      const newPath = this.app.metadataCache.getFirstLinkpathDest((0, import_obsidian2.getLinkpath)(glossaryName), currentDestName);
+      const newPath = this.app.metadataCache.getFirstLinkpathDest((0, import_obsidian3.getLinkpath)(glossaryName), currentDestName);
       if ((((_a = newPath == null ? void 0 : newPath.path) == null ? void 0 : _a.length) || 0) > ((_b = currentPath == null ? void 0 : currentPath.path) == null ? void 0 : _b.length)) {
         currentPath = newPath;
-        console.log("Break at New path: ", currentPath);
         break;
       }
     }
@@ -225,10 +282,15 @@ var GlossaryLinker = class extends import_obsidian2.MarkdownRenderChild {
   }
   onload() {
     var _a, _b, _c, _d;
+    if (!this.settings.linkerActivated) {
+      return;
+    }
     const tags = ["p", "li", "td", "th", "span", "em", "strong"];
     if (this.settings.includeHeaders) {
       tags.push("h1", "h2", "h3", "h4", "h5", "h6");
     }
+    const linkedFiles = /* @__PURE__ */ new Set();
+    const explicitlyLinkedFiles = /* @__PURE__ */ new Set();
     for (const tag of tags) {
       const nodeList = this.containerEl.getElementsByTagName(tag);
       const children = this.containerEl.children;
@@ -276,14 +338,42 @@ var GlossaryLinker = class extends import_obsidian2.MarkdownRenderChild {
             });
             const filteredAdditions = [];
             const additionsToDelete = /* @__PURE__ */ new Map();
+            if (this.settings.excludeLinksToRealLinkedFiles) {
+              for (const addition of additions) {
+                if (explicitlyLinkedFiles.has(addition.file)) {
+                  additionsToDelete.set(addition.id, true);
+                }
+              }
+            }
+            if (this.settings.onlyLinkOnce) {
+              for (const addition of additions) {
+                if (linkedFiles.has(addition.file)) {
+                  additionsToDelete.set(addition.id, true);
+                }
+              }
+            }
             for (let i = 0; i < additions.length; i++) {
               const addition = additions[i];
+              if (additionsToDelete.has(addition.id)) {
+                continue;
+              }
               for (let j = i + 1; j < additions.length; j++) {
                 const otherAddition = additions[j];
                 if (otherAddition.from >= addition.to) {
                   break;
                 }
                 additionsToDelete.set(otherAddition.id, true);
+              }
+              if (this.settings.onlyLinkOnce) {
+                for (let j = i + 1; j < additions.length; j++) {
+                  const otherAddition = additions[j];
+                  if (additionsToDelete.has(otherAddition.id)) {
+                    continue;
+                  }
+                  if (otherAddition.file.path === addition.file.path) {
+                    additionsToDelete.set(otherAddition.id, true);
+                  }
+                }
               }
             }
             for (const addition of additions) {
@@ -294,6 +384,7 @@ var GlossaryLinker = class extends import_obsidian2.MarkdownRenderChild {
             const parent = childNode.parentElement;
             let lastTo = 0;
             for (let addition of filteredAdditions) {
+              linkedFiles.add(addition.file);
               const destName = this.ctx.sourcePath.replace(/(.*).md/, "$1");
               const linkpath = addition.file.path;
               const replacementText = addition.text;
@@ -344,6 +435,7 @@ var GlossaryLinker = class extends import_obsidian2.MarkdownRenderChild {
 var import_language = require("@codemirror/language");
 var import_state = require("@codemirror/state");
 var import_view = require("@codemirror/view");
+var import_obsidian4 = require("obsidian");
 
 // node_modules/@flatten-js/interval-tree/dist/main.mjs
 var Interval = class Interval2 {
@@ -884,6 +976,18 @@ var IntervalTree = class {
 };
 
 // linker/liveLinker.ts
+function isDescendant(parent, child, maxDepth = 10) {
+  let node = child.parentNode;
+  let depth = 0;
+  while (node != null && depth < maxDepth) {
+    if (node === parent) {
+      return true;
+    }
+    node = node.parentNode;
+    depth++;
+  }
+  return false;
+}
 var LiveLinkWidget = class extends import_view.WidgetType {
   constructor(text, linkFile, from, to, isSubWord, app, settings) {
     super();
@@ -936,32 +1040,56 @@ var LiveLinkWidget = class extends import_view.WidgetType {
   }
 };
 var AutoLinkerPlugin = class {
-  constructor(view, app, settings) {
+  constructor(view, app, settings, updateManager) {
     this.lastCursorPos = 0;
     this.lastActiveFile = "";
+    this.lastViewUpdate = null;
+    this.viewUpdateDomToFileMap = /* @__PURE__ */ new Map();
     this.app = app;
     this.settings = settings;
     const { vault } = this.app;
     this.vault = vault;
     this.linkerCache = new LinkerCache(app, this.settings);
     this.decorations = this.buildDecorations(view);
+    updateManager.registerCallback(() => {
+      if (this.lastViewUpdate) {
+        this.update(this.lastViewUpdate, true);
+      }
+    });
   }
-  update(update) {
+  update(update, force = false) {
     var _a;
+    const activeView = this.app.workspace.getActiveViewOfType(import_obsidian4.MarkdownView);
+    activeView == null ? void 0 : activeView.file;
+    let updateIsOnActiveView = false;
+    if (this.settings.excludeLinksInCurrentLine || this.settings.excludeLinksToOwnNote) {
+      const domFromUpdate = update.view.dom;
+      const domFromWorkspace = activeView == null ? void 0 : activeView.contentEl;
+      updateIsOnActiveView = domFromWorkspace ? isDescendant(domFromWorkspace, domFromUpdate, 3) : false;
+      if (updateIsOnActiveView) {
+        this.viewUpdateDomToFileMap.set(domFromUpdate, activeView == null ? void 0 : activeView.file);
+      }
+    }
     const cursorPos = update.view.state.selection.main.from;
     const activeFile = (_a = this.app.workspace.getActiveFile()) == null ? void 0 : _a.path;
     const fileChanged = activeFile != this.lastActiveFile;
-    if (this.lastCursorPos != cursorPos || update.docChanged || fileChanged || update.viewportChanged) {
+    if (force || this.lastCursorPos != cursorPos || update.docChanged || fileChanged || update.viewportChanged) {
       this.lastCursorPos = cursorPos;
-      this.linkerCache.updateCache();
-      this.decorations = this.buildDecorations(update.view);
+      this.linkerCache.updateCache(force);
+      this.decorations = this.buildDecorations(update.view, updateIsOnActiveView);
       this.lastActiveFile = activeFile != null ? activeFile : "";
     }
+    this.lastViewUpdate = update;
   }
   destroy() {
   }
-  buildDecorations(view) {
+  buildDecorations(view, viewIsActive = true) {
     const builder = new import_state.RangeSetBuilder();
+    if (!this.settings.linkerActivated) {
+      return builder.finish();
+    }
+    const dom = view.dom;
+    const mappedFile = this.viewUpdateDomToFileMap.get(dom);
     for (let { from, to } of view.visibleRanges) {
       this.linkerCache.reset();
       const text = view.state.doc.sliceString(from, to);
@@ -972,22 +1100,24 @@ var AutoLinkerPlugin = class {
         const char = i < text.length ? String.fromCodePoint(codePoint) : "\n";
         const isWordBoundary = PrefixTree.checkWordBoundary(char);
         if (!this.settings.matchOnlyWholeWords || isWordBoundary) {
-          const currentNodes = this.linkerCache.cache.getCurrentMatchNodes(i);
+          const currentNodes = this.linkerCache.cache.getCurrentMatchNodes(i, this.settings.excludeLinksToOwnNote ? mappedFile : null);
           if (currentNodes.length > 0) {
-            const node = currentNodes[0];
-            const nFrom = node.start;
-            const nTo = node.end;
-            const name = text.slice(nFrom, nTo);
-            const file = node.files.values().next().value;
-            const aFrom = from + nFrom;
-            const aTo = from + nTo;
-            console.log(currentNodes, node.files);
-            additions.push({
-              id: id++,
-              from: aFrom,
-              to: aTo,
-              widget: new LiveLinkWidget(name, file, aFrom, aTo, !isWordBoundary, this.app, this.settings)
-            });
+            for (const node of currentNodes) {
+              const nFrom = node.start;
+              const nTo = node.end;
+              const name = text.slice(nFrom, nTo);
+              const aFrom = from + nFrom;
+              const aTo = from + nTo;
+              node.files.forEach((file) => {
+                additions.push({
+                  id: id++,
+                  from: aFrom,
+                  to: aTo,
+                  file,
+                  widget: new LiveLinkWidget(name, file, aFrom, aTo, !isWordBoundary, this.app, this.settings)
+                });
+              });
+            }
           }
         }
         this.linkerCache.cache.pushChar(char);
@@ -999,23 +1129,6 @@ var AutoLinkerPlugin = class {
         }
         return a.from - b.from;
       });
-      const filteredAdditions = [];
-      const additionsToDelete = /* @__PURE__ */ new Map();
-      for (let i = 0; i < additions.length; i++) {
-        const addition = additions[i];
-        for (let j = i + 1; j < additions.length; j++) {
-          const otherAddition = additions[j];
-          if (otherAddition.from >= addition.to) {
-            break;
-          }
-          additionsToDelete.set(otherAddition.id, true);
-        }
-      }
-      for (const addition of additions) {
-        if (!additionsToDelete.has(addition.id)) {
-          filteredAdditions.push(addition);
-        }
-      }
       const excludedIntervalTree = new IntervalTree();
       const excludedTypes = [
         "codeblock",
@@ -1026,24 +1139,80 @@ var AutoLinkerPlugin = class {
       if (!this.settings.includeHeaders) {
         excludedTypes.push("header-");
       }
+      const explicitlyLinkedFiles = /* @__PURE__ */ new Set();
+      const app = this.app;
       (0, import_language.syntaxTree)(view.state).iterate({
         from,
         to,
         enter(node) {
+          var _a;
           const type = node.type.name;
           for (const excludedType of excludedTypes) {
             if (type.contains(excludedType)) {
               excludedIntervalTree.insert([node.from, node.to]);
+              if (type.contains("internal-link_link-has-alias") || type.endsWith("internal-link")) {
+                const text2 = view.state.doc.sliceString(node.from, node.to);
+                const linkedFile = app.metadataCache.getFirstLinkpathDest(text2, (_a = mappedFile == null ? void 0 : mappedFile.path) != null ? _a : "");
+                if (linkedFile) {
+                  explicitlyLinkedFiles.add(linkedFile);
+                }
+              }
             }
           }
         }
       });
+      const filteredAdditions = [];
+      const additionsToDelete = /* @__PURE__ */ new Map();
+      if (this.settings.excludeLinksToRealLinkedFiles) {
+        for (const addition of additions) {
+          if (explicitlyLinkedFiles.has(addition.file)) {
+            additionsToDelete.set(addition.id, true);
+          }
+        }
+      }
+      for (let i = 0; i < additions.length; i++) {
+        const addition = additions[i];
+        if (additionsToDelete.has(addition.id)) {
+          continue;
+        }
+        const overlaps = excludedIntervalTree.search([addition.from, addition.to]);
+        if (overlaps.length > 0) {
+          additionsToDelete.set(addition.id, true);
+          continue;
+        }
+        for (let j = i + 1; j < additions.length; j++) {
+          const otherAddition = additions[j];
+          if (otherAddition.from >= addition.to) {
+            break;
+          }
+          additionsToDelete.set(otherAddition.id, true);
+        }
+        if (this.settings.onlyLinkOnce) {
+          for (let j = i + 1; j < additions.length; j++) {
+            const otherAddition = additions[j];
+            if (additionsToDelete.has(otherAddition.id)) {
+              continue;
+            }
+            if (otherAddition.file === addition.file) {
+              additionsToDelete.set(otherAddition.id, true);
+            }
+          }
+        }
+      }
+      for (const addition of additions) {
+        if (!additionsToDelete.has(addition.id)) {
+          filteredAdditions.push(addition);
+        }
+      }
       const cursorPos = view.state.selection.main.from;
+      const excludeLine = viewIsActive && this.settings.excludeLinksInCurrentLine;
+      const lineStart = view.state.doc.lineAt(cursorPos).from;
+      const lineEnd = view.state.doc.lineAt(cursorPos).to;
       filteredAdditions.forEach((addition) => {
         const [from2, to2] = [addition.from, addition.to];
-        const overlaps = excludedIntervalTree.search([from2, to2]);
         const cursorNearby = cursorPos >= from2 - 0 && cursorPos <= to2 + 0;
-        if (overlaps.length === 0 && !cursorNearby) {
+        const additionIsInCurrentLine = from2 >= lineStart && to2 <= lineEnd;
+        if (!cursorNearby && (!excludeLine || !additionIsInCurrentLine)) {
           builder.add(from2, to2, import_view.Decoration.replace({
             widget: addition.widget
           }));
@@ -1056,18 +1225,20 @@ var AutoLinkerPlugin = class {
 var pluginSpec = {
   decorations: (value) => value.decorations
 };
-var liveLinkerPlugin = (app, settings) => {
+var liveLinkerPlugin = (app, settings, updateManager) => {
   return import_view.ViewPlugin.define((editorView) => {
-    return new AutoLinkerPlugin(editorView, app, settings);
+    return new AutoLinkerPlugin(editorView, app, settings, updateManager);
   }, pluginSpec);
 };
 
 // main.ts
 var DEFAULT_SETTINGS = {
+  linkerActivated: true,
   matchOnlyWholeWords: false,
   suppressSuffixForSubWords: false,
   includeAllFiles: true,
   linkerDirectories: ["Glossary"],
+  excludedDirectories: [],
   glossarySuffix: "\u{1F517}",
   useMarkdownLinks: false,
   applyDefaultLinkStyling: true,
@@ -1076,58 +1247,214 @@ var DEFAULT_SETTINGS = {
   tagToIgnoreCase: "linker-ignore-case",
   tagToMatchCase: "linker-match-case",
   tagToExcludeFile: "linker-exclude",
-  tagToIncludeFile: "linker-include"
+  tagToIncludeFile: "linker-include",
+  excludeLinksToOwnNote: true,
+  excludeLinksInCurrentLine: false,
+  onlyLinkOnce: true,
+  excludeLinksToRealLinkedFiles: true
 };
-var LinkerPlugin = class extends import_obsidian3.Plugin {
+var LinkerPlugin = class extends import_obsidian5.Plugin {
+  constructor() {
+    super(...arguments);
+    this.updateManager = new ExternalUpdateManager();
+  }
   async onload() {
     await this.loadSettings();
     this.registerMarkdownPostProcessor((element, context) => {
       context.addChild(new GlossaryLinker(this.app, this.settings, context, element));
     });
-    this.registerEditorExtension(liveLinkerPlugin(this.app, this.settings));
+    this.registerEditorExtension(liveLinkerPlugin(this.app, this.settings, this.updateManager));
     this.addSettingTab(new LinkerSettingTab(this.app, this));
     this.registerEvent(this.app.workspace.on("file-menu", (menu, file, source) => this.addContextMenuItem(menu, file, source)));
+    this.addCommand({
+      id: "activate-virtual-linker",
+      name: "Activate Virtual Linker",
+      checkCallback: (checking) => {
+        if (!this.settings.linkerActivated) {
+          if (!checking) {
+            this.updateSettings({ linkerActivated: true });
+            this.updateManager.update();
+          }
+          return true;
+        }
+        return false;
+      }
+    });
+    this.addCommand({
+      id: "deactivate-virtual-linker",
+      name: "Deactivate Virtual Linker",
+      checkCallback: (checking) => {
+        if (this.settings.linkerActivated) {
+          if (!checking) {
+            this.updateSettings({ linkerActivated: false });
+            this.updateManager.update();
+          }
+          return true;
+        }
+        return false;
+      }
+    });
   }
   addContextMenuItem(menu, file, source) {
+    if (!file) {
+      return;
+    }
     const that = this;
     const app = this.app;
+    const updateManager = this.updateManager;
     const settings = this.settings;
-    function contextMenuHandler(event) {
-      const targetElement = event.target;
-      if (targetElement instanceof HTMLElement && targetElement.classList.contains("virtual-link-a")) {
+    const fetcher = new LinkerMetaInfoFetcher(app, settings);
+    const isDirectory = app.vault.getAbstractFileByPath(file.path) instanceof import_obsidian5.TFolder;
+    if (!isDirectory) {
+      let contextMenuHandler = function(event) {
+        const targetElement = event.target;
+        if (!targetElement || !(targetElement instanceof HTMLElement)) {
+          console.error("No target element");
+          return;
+        }
+        const isVirtualLink = targetElement.classList.contains("virtual-link-a");
+        if (isVirtualLink) {
+          menu.addItem((item) => {
+            item.setTitle("[Virtual Linker] Convert to real link").setIcon("link").onClick(() => {
+              var _a;
+              const from = parseInt(targetElement.getAttribute("from") || "-1");
+              const to = parseInt(targetElement.getAttribute("to") || "-1");
+              const text = targetElement.getAttribute("origin-text") || "";
+              const target = file;
+              const activeFile = app.workspace.getActiveFile();
+              const activeFilePath = activeFile == null ? void 0 : activeFile.path;
+              let replacement = "";
+              if (settings.useMarkdownLinks) {
+                replacement = `[${text}](${target.path})`;
+              } else {
+                replacement = `[[${target.path}|${text}]]`;
+              }
+              if (!activeFile) {
+                console.error("No active file");
+                return;
+              }
+              const editor = (_a = app.workspace.getActiveViewOfType(import_obsidian5.MarkdownView)) == null ? void 0 : _a.editor;
+              const fromEditorPos = editor == null ? void 0 : editor.offsetToPos(from);
+              const toEditorPos = editor == null ? void 0 : editor.offsetToPos(to);
+              if (!fromEditorPos || !toEditorPos) {
+                console.warn("No editor positions");
+                return;
+              }
+              editor == null ? void 0 : editor.replaceRange(replacement, fromEditorPos, toEditorPos);
+            });
+          });
+        }
+        document.removeEventListener("contextmenu", contextMenuHandler);
+      };
+      const metaInfo = fetcher.getMetaInfo(file);
+      if (!metaInfo.excludeFile && (metaInfo.includeAllFiles || metaInfo.includeFile || metaInfo.isInIncludedDir)) {
         menu.addItem((item) => {
-          item.setTitle("[Virtual Linker] Convert to real link").setIcon("link").onClick(() => {
-            var _a;
-            const from = parseInt(targetElement.getAttribute("from") || "-1");
-            const to = parseInt(targetElement.getAttribute("to") || "-1");
-            const text = targetElement.getAttribute("origin-text") || "";
+          item.setTitle("[Virtual Linker] Exclude this file").setIcon("trash").onClick(async () => {
             const target = file;
-            const activeFile = app.workspace.getActiveFile();
-            const activeFilePath = activeFile == null ? void 0 : activeFile.path;
-            let replacement = "";
-            if (settings.useMarkdownLinks) {
-              replacement = `[${text}](${target.path})`;
-            } else {
-              replacement = `[[${target.path}|${text}]]`;
-            }
-            if (!activeFile) {
-              console.error("No active file");
+            const targetFile = app.vault.getFileByPath(target.path);
+            if (!targetFile) {
+              console.error("No target file");
               return;
             }
-            const editor = (_a = app.workspace.getActiveViewOfType(import_obsidian3.MarkdownView)) == null ? void 0 : _a.editor;
-            const fromEditorPos = editor == null ? void 0 : editor.offsetToPos(from);
-            const toEditorPos = editor == null ? void 0 : editor.offsetToPos(to);
-            if (!fromEditorPos || !toEditorPos) {
-              console.warn("No editor positions");
+            const fileCache = app.metadataCache.getFileCache(targetFile);
+            const frontmatter = (fileCache == null ? void 0 : fileCache.frontmatter) || {};
+            const tag = settings.tagToExcludeFile;
+            let tags = frontmatter["tags"];
+            if (typeof tags === "string") {
+              tags = [tags];
+            }
+            if (!Array.isArray(tags)) {
+              tags = [];
+            }
+            if (!tags.includes(tag)) {
+              await app.fileManager.processFrontMatter(targetFile, (frontMatter) => {
+                if (!frontMatter.tags) {
+                  frontMatter.tags = /* @__PURE__ */ new Set();
+                }
+                const currentTags = [...frontMatter.tags];
+                frontMatter.tags = /* @__PURE__ */ new Set([...currentTags, tag]);
+                const includeTag = settings.tagToIncludeFile;
+                if (frontMatter.tags.has(includeTag)) {
+                  frontMatter.tags.delete(includeTag);
+                }
+              });
+              updateManager.update();
+            }
+          });
+        });
+      } else if (!metaInfo.includeFile && (!metaInfo.includeAllFiles || metaInfo.excludeFile || metaInfo.isInExcludedDir)) {
+        menu.addItem((item) => {
+          item.setTitle("[Virtual Linker] Include this file").setIcon("plus").onClick(async () => {
+            const target = file;
+            const targetFile = app.vault.getFileByPath(target.path);
+            if (!targetFile) {
+              console.error("No target file");
               return;
             }
-            editor == null ? void 0 : editor.replaceRange(replacement, fromEditorPos, toEditorPos);
+            const fileCache = app.metadataCache.getFileCache(targetFile);
+            const frontmatter = (fileCache == null ? void 0 : fileCache.frontmatter) || {};
+            const tag = settings.tagToIncludeFile;
+            let tags = frontmatter["tags"];
+            if (typeof tags === "string") {
+              tags = [tags];
+            }
+            if (!Array.isArray(tags)) {
+              tags = [];
+            }
+            if (!tags.includes(tag)) {
+              await app.fileManager.processFrontMatter(targetFile, (frontMatter) => {
+                if (!frontMatter.tags) {
+                  frontMatter.tags = /* @__PURE__ */ new Set();
+                }
+                const currentTags = [...frontMatter.tags];
+                frontMatter.tags = /* @__PURE__ */ new Set([...currentTags, tag]);
+                const excludeTag = settings.tagToExcludeFile;
+                if (frontMatter.tags.has(excludeTag)) {
+                  frontMatter.tags.delete(excludeTag);
+                }
+              });
+              updateManager.update();
+            }
           });
         });
       }
-      document.removeEventListener("contextmenu", contextMenuHandler);
+      document.addEventListener("contextmenu", contextMenuHandler, { once: true });
+    } else {
+      const path = file.path + "/";
+      const isInIncludedDir = fetcher.includeDirPattern.test(path);
+      const isInExcludedDir = fetcher.excludeDirPattern.test(path);
+      if (fetcher.includeAllFiles && !isInExcludedDir || isInIncludedDir) {
+        menu.addItem((item) => {
+          item.setTitle("[Virtual Linker] Exclude this directory").setIcon("trash").onClick(async () => {
+            const target = file;
+            const targetFolder = app.vault.getAbstractFileByPath(target.path);
+            if (!targetFolder) {
+              console.error("No target folder");
+              return;
+            }
+            const newExcludedDirs = Array.from(/* @__PURE__ */ new Set([...settings.excludedDirectories, targetFolder.name]));
+            const newIncludedDirs = settings.linkerDirectories.filter((dir) => dir !== targetFolder.name);
+            await this.updateSettings({ linkerDirectories: newIncludedDirs, excludedDirectories: newExcludedDirs });
+            updateManager.update();
+          });
+        });
+      } else if (!fetcher.includeAllFiles && !isInIncludedDir || isInExcludedDir) {
+        menu.addItem((item) => {
+          item.setTitle("[Virtual Linker] Include this directory").setIcon("plus").onClick(async () => {
+            const target = file;
+            const targetFolder = app.vault.getAbstractFileByPath(target.path);
+            if (!targetFolder) {
+              console.error("No target folder");
+              return;
+            }
+            const newExcludedDirs = settings.excludedDirectories.filter((dir) => dir !== targetFolder.name);
+            const newIncludedDirs = Array.from(/* @__PURE__ */ new Set([...settings.linkerDirectories, targetFolder.name]));
+            await this.updateSettings({ linkerDirectories: newIncludedDirs, excludedDirectories: newExcludedDirs });
+            updateManager.update();
+          });
+        });
+      }
     }
-    document.addEventListener("contextmenu", contextMenuHandler, { once: true });
   }
   onunload() {
   }
@@ -1142,7 +1469,7 @@ var LinkerPlugin = class extends import_obsidian3.Plugin {
     await this.saveData(this.settings);
   }
 };
-var LinkerSettingTab = class extends import_obsidian3.PluginSettingTab {
+var LinkerSettingTab = class extends import_obsidian5.PluginSettingTab {
   constructor(app, plugin) {
     super(app, plugin);
     this.plugin = plugin;
@@ -1150,42 +1477,51 @@ var LinkerSettingTab = class extends import_obsidian3.PluginSettingTab {
   display() {
     const { containerEl } = this;
     containerEl.empty();
-    new import_obsidian3.Setting(containerEl).setName("Matching behavior").setHeading();
-    new import_obsidian3.Setting(containerEl).setName("Virtual link suffix").setDesc("The suffix to add to auto generated virtual links.").addText((text) => text.setValue(this.plugin.settings.glossarySuffix).onChange(async (value) => {
-      await this.plugin.updateSettings({ glossarySuffix: value });
+    new import_obsidian5.Setting(containerEl).setName("Matching behavior").setHeading();
+    new import_obsidian5.Setting(containerEl).setName("Activate Virtual Linker").addToggle((toggle) => toggle.setValue(this.plugin.settings.linkerActivated).onChange(async (value) => {
+      await this.plugin.updateSettings({ linkerActivated: value });
     }));
-    new import_obsidian3.Setting(containerEl).setName("Case sensitive").setDesc("If activated, the matching is case sensitive.").addToggle((toggle) => toggle.setValue(this.plugin.settings.matchCaseSensitive).onChange(async (value) => {
+    new import_obsidian5.Setting(containerEl).setName("Only link once").setDesc("If activated, there will not be several identical virtual links in the same note (Wikipedia style).").addToggle((toggle) => toggle.setValue(this.plugin.settings.onlyLinkOnce).onChange(async (value) => {
+      await this.plugin.updateSettings({ onlyLinkOnce: value });
+    }));
+    new import_obsidian5.Setting(containerEl).setName("Exclude links to real linked files").setDesc("If activated, there will be no links to files that are already linked in the note by real links.").addToggle((toggle) => toggle.setValue(this.plugin.settings.excludeLinksToRealLinkedFiles).onChange(async (value) => {
+      await this.plugin.updateSettings({ excludeLinksToRealLinkedFiles: value });
+    }));
+    new import_obsidian5.Setting(containerEl).setName("Case sensitive").setDesc("If activated, the matching is case sensitive.").addToggle((toggle) => toggle.setValue(this.plugin.settings.matchCaseSensitive).onChange(async (value) => {
       await this.plugin.updateSettings({ matchCaseSensitive: value });
       this.display();
     }));
     if (this.plugin.settings.matchCaseSensitive) {
-      new import_obsidian3.Setting(containerEl).setName("Tag to ignore case").setDesc("By adding this tag to a file, the linker will ignore the case for the file.").addText((text) => text.setValue(this.plugin.settings.tagToIgnoreCase).onChange(async (value) => {
+      new import_obsidian5.Setting(containerEl).setName("Tag to ignore case").setDesc("By adding this tag to a file, the linker will ignore the case for the file.").addText((text) => text.setValue(this.plugin.settings.tagToIgnoreCase).onChange(async (value) => {
         await this.plugin.updateSettings({ tagToIgnoreCase: value });
       }));
     } else {
-      new import_obsidian3.Setting(containerEl).setName("Tag to match case").setDesc("By adding this tag to a file, the linker will match the case for the file.").addText((text) => text.setValue(this.plugin.settings.tagToMatchCase).onChange(async (value) => {
+      new import_obsidian5.Setting(containerEl).setName("Tag to match case").setDesc("By adding this tag to a file, the linker will match the case for the file.").addText((text) => text.setValue(this.plugin.settings.tagToMatchCase).onChange(async (value) => {
         await this.plugin.updateSettings({ tagToMatchCase: value });
       }));
     }
-    new import_obsidian3.Setting(containerEl).setName("Include headers").setDesc("If activated, headers (so your lines beginning with at least one `#`) are included for virtual links.").addToggle((toggle) => toggle.setValue(this.plugin.settings.includeHeaders).onChange(async (value) => {
+    new import_obsidian5.Setting(containerEl).setName("Include headers").setDesc("If activated, headers (so your lines beginning with at least one `#`) are included for virtual links.").addToggle((toggle) => toggle.setValue(this.plugin.settings.includeHeaders).onChange(async (value) => {
       await this.plugin.updateSettings({ includeHeaders: value });
     }));
-    new import_obsidian3.Setting(containerEl).setName("Match only whole words").setDesc("If activated, only whole words are matched. Otherwise, every part of a word is found.").addToggle((toggle) => toggle.setValue(this.plugin.settings.matchOnlyWholeWords).onChange(async (value) => {
+    new import_obsidian5.Setting(containerEl).setName("Match only whole words").setDesc("If activated, only whole words are matched. Otherwise, every part of a word is found.").addToggle((toggle) => toggle.setValue(this.plugin.settings.matchOnlyWholeWords).onChange(async (value) => {
       await this.plugin.updateSettings({ matchOnlyWholeWords: value });
       this.display();
     }));
     if (!this.plugin.settings.matchOnlyWholeWords) {
-      new import_obsidian3.Setting(containerEl).setName("Suppress suffix for sub words").setDesc("If activated, the suffix is not added to links for subwords, but only for complete matches.").addToggle((toggle) => toggle.setValue(this.plugin.settings.suppressSuffixForSubWords).onChange(async (value) => {
+      new import_obsidian5.Setting(containerEl).setName("Suppress suffix for sub words").setDesc("If activated, the suffix is not added to links for subwords, but only for complete matches.").addToggle((toggle) => toggle.setValue(this.plugin.settings.suppressSuffixForSubWords).onChange(async (value) => {
         await this.plugin.updateSettings({ suppressSuffixForSubWords: value });
       }));
     }
-    new import_obsidian3.Setting(containerEl).setName("Matched files").setHeading();
-    new import_obsidian3.Setting(containerEl).setName("Include all files").setDesc("Include all files for the virtual linker.").addToggle((toggle) => toggle.setValue(this.plugin.settings.includeAllFiles).onChange(async (value) => {
+    new import_obsidian5.Setting(containerEl).setName("Avoid linking in current line").setDesc("If activated, there will be no links in the current line. This is the recommended setting if you are using IME (input method editor) for typing, e.g. for chinese characters, because instant linking might interfere with IME.").addToggle((toggle) => toggle.setValue(this.plugin.settings.excludeLinksInCurrentLine).onChange(async (value) => {
+      await this.plugin.updateSettings({ excludeLinksInCurrentLine: value });
+    }));
+    new import_obsidian5.Setting(containerEl).setName("Matched files").setHeading();
+    new import_obsidian5.Setting(containerEl).setName("Include all files").setDesc("Include all files for the virtual linker.").addToggle((toggle) => toggle.setValue(this.plugin.settings.includeAllFiles).onChange(async (value) => {
       await this.plugin.updateSettings({ includeAllFiles: value });
       this.display();
     }));
     if (!this.plugin.settings.includeAllFiles) {
-      new import_obsidian3.Setting(containerEl).setName("Glossary linker directories").setDesc("Directories to include for the virtual linker (separated by new lines).").addTextArea((text) => {
+      new import_obsidian5.Setting(containerEl).setName("Glossary linker directories").setDesc("Directories to include for the virtual linker (separated by new lines).").addTextArea((text) => {
         let setValue = "";
         try {
           setValue = this.plugin.settings.linkerDirectories.join("\n");
@@ -1198,17 +1534,35 @@ var LinkerSettingTab = class extends import_obsidian3.PluginSettingTab {
         });
         text.inputEl.addClass("linker-settings-text-box");
       });
+    } else {
+      new import_obsidian5.Setting(containerEl).setName("Excluded directories").setDesc("Directories to exclude for the virtual linker (separated by new lines).").addTextArea((text) => {
+        let setValue = "";
+        try {
+          setValue = this.plugin.settings.excludedDirectories.join("\n");
+        } catch (e) {
+          console.warn(e);
+        }
+        text.setPlaceholder("List of directory names (separated by new line)").setValue(setValue).onChange(async (value) => {
+          this.plugin.settings.excludedDirectories = value.split("\n").map((x) => x.trim()).filter((x) => x.length > 0);
+          await this.plugin.updateSettings();
+        });
+        text.inputEl.addClass("linker-settings-text-box");
+      });
     }
-    if (!this.plugin.settings.includeAllFiles) {
-      new import_obsidian3.Setting(containerEl).setName("Tag to include file").setDesc("Tag to explicitly include the file for the linker.").addText((text) => text.setValue(this.plugin.settings.tagToIncludeFile).onChange(async (value) => {
-        await this.plugin.updateSettings({ tagToIncludeFile: value });
-      }));
-    }
-    new import_obsidian3.Setting(containerEl).setName("Tag to ignore file").setDesc("Tag to ignore the file for the linker.").addText((text) => text.setValue(this.plugin.settings.tagToExcludeFile).onChange(async (value) => {
+    new import_obsidian5.Setting(containerEl).setName("Tag to include file").setDesc("Tag to explicitly include the file for the linker.").addText((text) => text.setValue(this.plugin.settings.tagToIncludeFile).onChange(async (value) => {
+      await this.plugin.updateSettings({ tagToIncludeFile: value });
+    }));
+    new import_obsidian5.Setting(containerEl).setName("Tag to ignore file").setDesc("Tag to ignore the file for the linker.").addText((text) => text.setValue(this.plugin.settings.tagToExcludeFile).onChange(async (value) => {
       await this.plugin.updateSettings({ tagToExcludeFile: value });
     }));
-    new import_obsidian3.Setting(containerEl).setName("Link style").setHeading();
-    new import_obsidian3.Setting(containerEl).setName("Apply default link styling").setDesc("If toggled, the default link styling will be applied to virtual links. Furthermore, you can style the links yourself with a CSS-snippet affecting the class `virtual-link`. (Find the CSS snippet directory at Appearance -> CSS Snippets -> Open snippets folder)").addToggle((toggle) => toggle.setValue(this.plugin.settings.applyDefaultLinkStyling).onChange(async (value) => {
+    new import_obsidian5.Setting(containerEl).setName("Exclude self-links to the current note").setDesc("If toggled, links to the note itself are excluded from the linker. (This might not work in preview windows.)").addToggle((toggle) => toggle.setValue(this.plugin.settings.excludeLinksToOwnNote).onChange(async (value) => {
+      await this.plugin.updateSettings({ excludeLinksToOwnNote: value });
+    }));
+    new import_obsidian5.Setting(containerEl).setName("Link style").setHeading();
+    new import_obsidian5.Setting(containerEl).setName("Virtual link suffix").setDesc("The suffix to add to auto generated virtual links.").addText((text) => text.setValue(this.plugin.settings.glossarySuffix).onChange(async (value) => {
+      await this.plugin.updateSettings({ glossarySuffix: value });
+    }));
+    new import_obsidian5.Setting(containerEl).setName("Apply default link styling").setDesc("If toggled, the default link styling will be applied to virtual links. Furthermore, you can style the links yourself with a CSS-snippet affecting the class `virtual-link`. (Find the CSS snippet directory at Appearance -> CSS Snippets -> Open snippets folder)").addToggle((toggle) => toggle.setValue(this.plugin.settings.applyDefaultLinkStyling).onChange(async (value) => {
       await this.plugin.updateSettings({ applyDefaultLinkStyling: value });
     }));
   }
