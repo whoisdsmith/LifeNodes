@@ -1,6 +1,7 @@
 # Core Relationships
 
-Core Relationship
+## Core Relationship
+
 - Rebecca Rewa
 	- Core Memories
 		- 10-31-2001 - First met at the B.E Henry Building
@@ -11,7 +12,8 @@ Core Relationship
 		- 2008 - Rebecca marries Jason Rodriguez
 		- 08-2010 - Son Everett moves to Washington State with Rebecca and Husband Jason.
 
-Core Relationship
+## Core Relationship
+
 - Emily Duty
 	- Core Memories
 		- 03-20-2009 - Had our first real connection on my 24th Birthday and when we began our relationship.
@@ -19,7 +21,8 @@ Core Relationship
 		- 06-2009 - Emily was in rehabilitation center at Mary Free Bed in Grand Rapids, MI. I proposed to her here. She said yes and her family said no.
 		- 09-2009 - Broke up with Emily due to conflict with her family not wanting us to be together.
 
-Core Relationship
+## Core Relationship
+
 - Stevie Linnabary
 	- Core Memories
 		- 11-03-2011 - Met Stevie Linnabary in the Barnes & Noble parking lot. She was wearing a black dress coat, a gray Yellowcard shirt, jeans and black winter boots.
@@ -30,3 +33,11 @@ Core Relationship
 		- 06-27-2016 - Daughter Rayna Smith was born at 5:59 am, weighing 6 lbs 10 oz.
 		- 03-11-2017 - Married Stevie Marie Linnabary.
 		- 04-19-2017 - Discovered Stevie's affair with Tyler Long, leading to their separation and eventual divorce.
+		- 04-20-2017 - Had to move back into my moms
+		- 08-19-2017 - Stevie and Tyler broke up and her and the kids moved in with me and my mom. 
+		- 09-08-2017 - Stevie said she was going to her brother Ryan’s and ended up with Tyler, moved back in with him
+		- 01-18-2018 - Stevie and Tyler broke up again and her and the girls moved back to my moms
+		- 02-01-2018 - Me, Stevie and the kids moved into an apartment in Marshall, MI
+		- 03-20-2018 - Stevie and I started a band called Strangers Again
+		- 06-01-2018 - Our lease was up had to move back to my moms, looked at buying a house but she chose to go back to Tyler instead.
+		- 

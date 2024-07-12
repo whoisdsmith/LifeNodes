@@ -52,7 +52,7 @@ I was never around drugs or violence or any kind of anger or abuse. I never saw 
 
 ---
 
-### Childhood and Teen Years
+# Childhood and Teen Years
 
 I had a really good childhood overall, marked by stability and strong familial bonds. My mom raised me by herself and with my grandparents until I was five, when she met my stepfather, Johnnie B. Smith. Moving in with Johnnie in 1990 was a significant turning point. He adopted me in 1992, becoming the coolest and best man in my life, teaching me valuable life skills and treating me as his own. Despite being a chaotic and challenging child, my family always supported me, attending all my games and shows and fostering a nurturing environment that shaped my core values and beliefs.
 
@@ -83,10 +83,6 @@ The aftermath of the divorce was challenging. I moved through various jobs, from
 #### 2021-2024
 
 The loss of my father in 2021 was a significant blow. I navigated through job changes, working in AI and Machine Learning, and continued to build my relationship with Tawnie. Despite these efforts, our relationship ended in February 2024. I began working at Knauf Insulation in April 2024, showing my resilience and commitment to moving forward despite personal setbacks.
-
-### Summary
-
-My life is a testament to resilience and capacity for growth. From a supportive and nurturing childhood to navigating the complexities of adulthood, I have consistently demonstrated strength and adaptability. Despite facing significant personal and professional challenges, I continue to strive for stability and personal growth, making the best of each situation while cherishing my role as a father and partner.
 
 # Timeline
 
@@ -308,3 +304,10 @@ Core Relationship
 		- 06-27-2016 - Daughter Rayna Smith was born at 5:59 am, weighing 6 lbs 10 oz.
 		- 03-11-2017 - Married Stevie Marie Linnabary.
 		- 04-19-2017 - Discovered Stevie's affair with Tyler Long, leading to their separation and eventual divorce.
+		- 04-20-2017 - Had to move back into my moms
+		- 08-19-2017 - Stevie and Tyler broke up and her and the kids moved in with me and my mom. 
+		- 09-08-2017 - Stevie said she was going to her brother Ryan’s and ended up with Tyler, moved back in with him
+		- 01-18-2018 - Stevie and Tyler broke up again and her and the girls moved back to my moms
+		- 02-01-2018 - Me, Stevie and the kids moved into an apartment in Marshall, MI
+		- 03-20-2018 - Stevie and I started a band called Strangers Again
+		- 06-01-2018 - Our lease was up had to move back to my moms, looked at buying a house but she chose to go back to Tyler instead.

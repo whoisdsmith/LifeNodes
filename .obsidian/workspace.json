@@ -26,7 +26,7 @@
               "type": "markdown",
               "state": {
                 "file": "Intake.md",
-                "mode": "source",
+                "mode": "preview",
                 "source": false
               }
             }
@@ -194,8 +194,8 @@
   "active": "3d73aa1c2840cf19",
   "lastOpenFiles": [
     "Notes.md",
-    "Core Relationships.md",
     "Intake.md",
+    "Core Relationships.md",
     "cmd.md",
     "core.json",
     "Childhood.md",
