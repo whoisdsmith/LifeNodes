@@ -4,35 +4,22 @@
     "type": "split",
     "children": [
       {
-        "id": "9b3e8640360efe86",
+        "id": "92619732eab4f9e2",
         "type": "tabs",
         "children": [
           {
-            "id": "e867013699be84d4",
+            "id": "7e7010041442c696",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Sums.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "e9024f950dc98607",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Notes.md",
+                "file": "Summaries/Social Media 2008-2023.md",
                 "mode": "source",
                 "source": false
               }
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -82,7 +69,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 302.5
+    "width": 494.5
   },
   "right": {
     "id": "0357a26238033be5",
@@ -98,7 +85,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Notes.md",
+                "file": "Summaries/Social Media 2008-2023.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -115,7 +102,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Notes.md",
+                "file": "Summaries/Social Media 2008-2023.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -127,7 +114,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Notes.md"
+                "file": "Summaries/Social Media 2008-2023.md"
               }
             }
           },
@@ -191,11 +178,35 @@
       "bulk-exporter:Bulk Exporter Preview": false
     }
   },
-  "active": "e9024f950dc98607",
+  "active": "7e202dd12cfbc8f0",
   "lastOpenFiles": [
-    "Untitled.md",
-    "Sums.md",
-    "Notes.md",
+    "Untitled",
+    "Summaries/Journals and Writing.md",
+    "Summaries/Dustin Smith Friends and Love Interests 2008-2014.md",
+    "Summaries/Blog Years.md",
+    "Summaries/Dustin Smith's Journal 2011-2022.md",
+    "Summaries/DO Summaries.md",
+    "Summaries/Stevie Linnabary and Dustin Messages 2009-2023 Summary.md",
+    "Summaries/Summarizers.md",
+    "Summaries/Social Media 2008-2023.md",
+    "Summaries/Social Extract.md",
+    "Summaries/Facebook Years.md",
+    "Summaries/Facebook Posts from 2019 to 2024.md",
+    "Summaries/Dustin Social Media 2020.md",
+    "Summaries/Dustin Smiths Writing Summarized.md",
+    "Summaries/Dustin Smith-2007-2010.md",
+    "Summaries/Dustin Smith Friends and Love Interests 2011-2012.md",
+    "Summaries/Chronological Outline of Events 2008-2023.md",
+    "Summaries/Tawnie and Dustin Summarized.md",
+    "Summaries/Tawnie Shelton 12-12-2020 To 02-14-2024.md",
+    "Summaries/Trauma.md",
+    "Summaries/Stevie.md",
+    "Summaries/Family Info.md",
+    "Summaries/AllSums.md",
+    "Summaries/All Summaries.md",
+    "Dustin Michael Smith-A Psychological Profile.md",
+    "Summaries/Dustin Michael Smith Life Timeline.md",
+    "Summaries/Blog Summaries/Blog Summaries",
     "Open Health Images/OH_logo_250x250.jpg",
     "Open Health Images/OH_logo_250x250.jpg.crdownload",
     "Open Health Images/OH_logo3.jpg",
@@ -213,30 +224,6 @@
     "Open Health Images/OH_Banner.jpg",
     "Open Health Images/OH_Banner.jpg.crdownload",
     "Open Health Images",
-    "New folder",
-    "README.md",
-    "Intake.md",
-    "Summaries/2009.md",
-    "Summaries/2010.md",
-    "Summaries/2011.md",
-    "Summaries/2012.md",
-    "Summaries/2013.md",
-    "Summaries/2014.md",
-    "Summaries/2015.md",
-    "Summaries/2016.md",
-    "Summaries/2017.md",
-    "Summaries/2018.md",
-    "Summaries/2019.md",
-    "Summaries/2020.md",
-    "Summaries/2021.md",
-    "Summaries/2022.md",
-    "Summaries/2023.md",
-    "Summaries/AllSums 1.md",
-    "Summaries/AllSums.md",
-    "Cause and Effect/Relationship Trauma.md",
-    "Summaries/Blog Years.md",
-    "Summaries/Facebook Years.md",
-    "Summaries/DO Summaries.md",
     "Attachments/wisdombanner.jpg",
     "Attachments/URWhatUThinkAbout.jpg"
   ]
